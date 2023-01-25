@@ -12,6 +12,8 @@ En fin. Los voy regalando igual, porque yo no quiero ser como vosotros, yo no qu
 
 Proyectos compartidos en Github:
 
+ - [recolector-web](https://github.com/allnulled/recolector-web): Servidor rápido para pasarse datos desde el navegador a tu local. 
+ - [infojobs-envio-automatico-de-cv](https://github.com/allnulled/infojobs-envio-automatico-de-cv): Script de envío automático de CV en InfoJobs, plataforma de empleo nº1 en España con sede en países nórdicos y comandada por el holding empresarial Schibsted. 
  - [restologia](https://github.com/allnulled/restologia): Generador de red de servidores REST multiproyecto sincronizados.
  - [contador-de-rimas](https://github.com/allnulled/contador-de-rimas): Aplicación cutre pero que te cuenta los espacios y así cuentas las sílabas.
  - [youtube-list-farmer](https://github.com/allnulled/youtube-list-farmer): Script recopilatorio de links para las páginas de listas de vídeos de Youtube.
