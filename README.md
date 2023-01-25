@@ -189,3 +189,9 @@ Proyectos compartidos en Github:
 1. [fast-scrap](https://github.com/allnulled/fast-scrap): Web scrapping made funny (based on ScrapperJS)
 1. [logger](https://github.com/allnulled/logger): Simple JavaScript logger utility, with automatic object debugging and different levels of logging already available.
 1. [js-test-boilerplate](https://github.com/allnulled/js-test-boilerplate): Boilerplate testing environment for JavaScript. Based on: Grunt (task manager) + Karma + Mocha + Chai + Sinon (unit testing) + CasperJS (end to end testing)
+
+
+Para que se vea, que en realidad sois más robots que persona, dejo una imagen de mi bandeja de entrada de todas las ofertas de trabajo a las que he aplicado. En total, más de 2.800 CV enviados a través de la plataforma nº1 de empleo en España: InfoJobs.
+
+![mas_de_2800_cvs_enviados_a_infojobs_para_nada](https://github.com/allnulled/allnulled/blob/main/2800_candidaturas_en_infojobs_para_nada.png)
+
