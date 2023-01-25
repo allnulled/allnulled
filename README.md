@@ -191,7 +191,7 @@ Proyectos compartidos en Github:
 1. [js-test-boilerplate](https://github.com/allnulled/js-test-boilerplate): Boilerplate testing environment for JavaScript. Based on: Grunt (task manager) + Karma + Mocha + Chai + Sinon (unit testing) + CasperJS (end to end testing)
 
 
-Para que se vea, que en realidad sois más robots que persona, dejo una imagen de mi bandeja de entrada de todas las ofertas de trabajo a las que he aplicado. En total, más de 3.000 CV enviados a través de la plataforma nº1 de empleo en España: InfoJobs. Esto en 3 días, y subiendo. No, yo no puedo creeros, y no es solo por la banda virtual que se ve que sois robots, no... no solo la banda virtual.
+Para que se vea, que en realidad sois más robots que persona, dejo una imagen de mi bandeja de entrada de todas las ofertas de trabajo a las que he aplicado. En total, más de 3.600 CV enviados a través de la plataforma nº1 de empleo en España: InfoJobs. Esto en 3 días, y subiendo. No, yo no puedo creeros, y no es solo por la banda virtual que se ve que sois robots, no... no solo la banda virtual.
 
 ![mas_de_2800_cvs_enviados_a_infojobs_para_nada](https://github.com/allnulled/allnulled/blob/main/2800_candidaturas_en_infojobs_para_nada.png)
 
