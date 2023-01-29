@@ -219,3 +219,4 @@ Pues puedes llamarme desagradecido.
 
 > En un mundo de simios, es difícil mantenerse limpio. (Marilyn Manson)
 
+![MM](https://github.com/allnulled/allnulled/blob/main/mm.webp)
