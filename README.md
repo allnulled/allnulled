@@ -199,4 +199,23 @@ Y más tarde, ese mismo domingo...
 
 ![infoaviso_del_domingo](https://github.com/allnulled/allnulled/blob/main/Infojaviso_del_domingo.png)
 
-...pero todas eran para decirte que **hemos decidido no avanzar con tu candidatura...**
+...pero todas eran para decirte que **hemos decidido no avanzar con tu candidatura...** o que por no tener móvil, no eres el elegido.
+
+Quizá me esté aguardando una maravillosa sorpresa cuando todo este delirio termine.
+
+...
+
+...
+
+...
+
+...
+
+...
+
+...
+
+Pues puedes llamarme desagradecido.
+
+> En un mundo de simios, es difícil mantenerse limpio. (Marilyn Manson)
+
