@@ -195,3 +195,8 @@ Para que se vea, que en realidad sois más robots que persona, dejo una imagen d
 
 ![mas_de_2800_cvs_enviados_a_infojobs_para_nada](https://github.com/allnulled/allnulled/blob/main/2800_candidaturas_en_infojobs_para_nada.png)
 
+Y más tarde, ese mismo domingo...
+
+![infoaviso_del_domingo](https://github.com/allnulled/allnulled/blob/main/Infojaviso_del_domingo.png)
+
+...pero todas eran para decirte que **hemos decidido no avanzar con tu candidatura...**
