@@ -219,4 +219,6 @@ Pues puedes llamarme desagradecido.
 
 > En un mundo de simios, es difícil mantenerse limpio. (Marilyn Manson)
 
-![MM](https://github.com/allnulled/allnulled/blob/main/mm.webp)
+Sin ofender a los monos, claro. Mis respetos a los monos monos, los buenos, los de verdad.
+
+![monito_listo](https://github.com/allnulled/allnulled/blob/main/monito_listo.png)
