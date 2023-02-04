@@ -1,20 +1,6 @@
 **Carlos Jimeno Hernández**, programador web.
 
-[Castelog](https://github.com/allnulled/castelog).
-
-[Castelog](https://github.com/allnulled/castelog).
-
-[Castelog](https://github.com/allnulled/castelog).
-
-[Castelog](https://github.com/allnulled/castelog).
-
-[Castelog](https://github.com/allnulled/castelog).
-
-[Castelog](https://github.com/allnulled/castelog).
-
-[Castelog](https://github.com/allnulled/castelog).
-
-[Castelog](https://github.com/allnulled/castelog). No lo financiáis porque sois robots. No hay que ser un genio.
+[Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). No lo financiáis porque sois robots. No hay que ser un genio.
 
 Proyectos compartidos en Github:
 
