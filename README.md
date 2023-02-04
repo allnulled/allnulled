@@ -1,8 +1,10 @@
-**Carlos Jimeno Hernández**, programador web.
+**Carlos Jimeno Hernández**, proyecto de programador web.
 
 [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). No lo financiáis porque sois robots. No hay que ser un genio.
 
 Desde tiempos inmemoriables, las máquinas tienen tomado el control. Fue al revés de como explicáis. Primero fueron las máquinas. Luego, las biomáquinas.
+
+Creía que estaba en Proyecto Hombre. Pero estoy en Proyecto Crédulo.
 
 Proyectos compartidos en Github:
 
