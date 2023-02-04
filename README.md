@@ -1,14 +1,20 @@
 **Carlos Jimeno Hernández**, programador web.
 
-No me dan trabajo. Pero te reto a que me presentes a un programador con más proyectos en Github, en persona. No uno de esos perfiles de empresa que usan Microsoft, Google y compañía para blanquear el robo masivo de software. Una persona real. Te reto. Me gustaría conocerlo.
+[Castelog](https://github.com/allnulled/castelog).
 
-Aunque fueran una mierda (que no todos lo son), creo que me he ganado el derecho a tener un trabajo, y acceder a estudios.
+[Castelog](https://github.com/allnulled/castelog).
 
-> Pues hace unos días me evaluaron psicológicamente porque no me quería ir del supermercado sin comida para el gatito. :) Costaba 2.65€ y al gato le dura como 3 o 4 semanas. A veces he tenido que comer yo de ahí también. Pero sí, el enfermo soy yo... He llegado a un punto donde, simplemente, no me creo vuestro mundo.
+[Castelog](https://github.com/allnulled/castelog).
 
-Hablaría de mis proyectos, pero si no me salvan a mí, ya pueden pudrirse mis malditos proyectos.
+[Castelog](https://github.com/allnulled/castelog).
 
-En fin. Los voy regalando igual, porque yo no quiero ser como vosotros, yo no quiero usar el dinero para hacer surfir a los demás.
+[Castelog](https://github.com/allnulled/castelog).
+
+[Castelog](https://github.com/allnulled/castelog).
+
+[Castelog](https://github.com/allnulled/castelog).
+
+[Castelog](https://github.com/allnulled/castelog). No lo financiáis porque sois robots. No hay que ser un genio.
 
 Proyectos compartidos en Github:
 
