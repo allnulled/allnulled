@@ -2,6 +2,8 @@
 
 [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). No lo financiáis porque sois robots. No hay que ser un genio.
 
+Desde tiempos inmemoriables, las máquinas tienen tomado el control. Fue al revés de como explicáis. Primero fueron las máquinas. Luego, las biomáquinas.
+
 Proyectos compartidos en Github:
 
 1. [recolector-web](https://github.com/allnulled/recolector-web): Servidor rápido para pasarse datos desde el navegador a tu local. 
