@@ -4,7 +4,7 @@
 
 Desde tiempos inmemoriables, las máquinas tienen tomado el control. Fue al revés de como explicáis. Primero fueron las máquinas. Luego, las biomáquinas.
 
-Creía que estaba en Proyecto Hombre. Pero estoy en Proyecto Crédulo.
+Creía que estaba en [Proyecto Hombre](https://proyectohombre.es/). Pero estoy en Proyecto Crédulo.
 
 Proyectos compartidos en Github:
 
