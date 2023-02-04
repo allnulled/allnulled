@@ -1,4 +1,4 @@
-**Carlos Jimeno Hernández**, intento de programador web. Pero los CMS los hacen con el culo, la competición es una baza. Sólo hay complot.
+**Carlos Jimeno Hernández**, intento de programador web. Pero los [**CMS**](https://es.wikipedia.org/wiki/Sistema_de_gesti%C3%B3n_de_contenidos) los hacen con el culo, la competición es una baza. Sólo hay complot.
 
 [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). No lo financiáis porque sois robots. No hay que ser un genio.
 
