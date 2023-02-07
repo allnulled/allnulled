@@ -2,9 +2,15 @@
 
 [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). [Castelog](https://github.com/allnulled/castelog). No lo financiáis porque sois robots, pense que eran las élites, que eran los extraterrestres. Pero no. Son todos robots, no hay que ser un genio, sólo estar mucho rato comiendo mierda sin merecerla.
 
+
+
 Desde tiempos inmemoriables, las máquinas tienen tomado el control. Fue al revés de como explicáis. Primero fueron las máquinas. Luego, las biomáquinas. Estudiaron los algoritmos de la mente embedida en un cuerpo humano. Ahora, fingen haber creado 8.000 millones de replicantes. Pero solo son formas y colores con reacciones bien estudiadas.
 
 Creía que estaba en una especie de mezcla entre [**Show de Truman**](https://www.imdb.com/title/tt0120382/) y [**Proyecto Hombre**](https://proyectohombre.es/). Pero estoy en **Proyecto Crédulo**.
+
+Entonces... es una cárcel tecnológica. Es un módulo carcelario del... que sería el futuro. ¡ESTOY EN EL FUTURO! ¡Y ESTOY EN UNA CÁRCEL DEL FUTURO! Entiendo, entiendo... ¿Y qué haría yo en una cárcel? Nada. Descansar. Meditar. Relajarme. OK, ok, ok... entiendo. Son demasiado mucho más listos. Y me engañan todo el rato. OK. OKOKOKOKOK.
+
+Bueno. De recordatorio: [las cosas no son como parecen. Las cosas tienen un sentido, una lógica. Y están usándolo para engañarme. Están usando la verdadera ciencia y tecnología, para engañarme. Economía algorítmica, la verdadera civilización. Una que te mete en una cárcel de gravedad. Cuidaico con los de futuro. Juegan... muy duro.](https://allnulled.github.io/economics-framework/Macroeconomia.html)
 
 Proyectos compartidos en Github:
 
