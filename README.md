@@ -6,11 +6,11 @@
 
 Desde tiempos inmemoriables, las máquinas tienen tomado el control. Fue al revés de como explicáis. Primero fueron las máquinas. Luego, las biomáquinas. Estudiaron los algoritmos de la mente embedida en un cuerpo humano. Ahora, fingen haber creado 8.000 millones de replicantes. Pero solo son formas y colores con reacciones bien estudiadas.
 
-Creía que estaba en una especie de mezcla entre [**Show de Truman**](https://www.imdb.com/title/tt0120382/) y [**Proyecto Hombre**](https://proyectohombre.es/). Pero estoy en **Proyecto Crédulo**.
+Creía que estaba en una especie de mezcla entre [**Show de Truman**](https://www.imdb.com/title/tt0120382/) y [**Proyecto Hombre**](https://proyectohombre.es/). Pero estoy en **Proyecto Crédulo**. También parecía Matrix, bueno, claro, los Smidsonians son robots. También parecían querer meterme en un "Yo, robot". Pero claro, "Yo, no robot". Bueno, la camisa de fuerza sí, es un robot, un cuerpo humano, claro. También parecía Mr. Robot. Espero que no me hagan entrar en una segunda temporada (paré de verla). Y otras, vaya. En fin. Seguiré buscando saber qué quieren. A parte de que me acabe. No sé. Complicado.
 
-Entonces... es una cárcel tecnológica. Es un módulo carcelario del... que sería el futuro. ¡ESTOY EN EL FUTURO! ¡Y ESTOY EN UNA CÁRCEL DEL FUTURO! Entiendo, entiendo... ¿Y qué haría yo en una cárcel? Nada. Descansar. Meditar. Relajarme. OK, ok, ok... entiendo. Son demasiado mucho más listos. Y me engañan todo el rato. OK. OKOKOKOKOK.
+Bueno. Entonces... es una cárcel tecnológica. Es un módulo carcelario del... que sería el futuro. ¡ESTOY EN EL FUTURO! ¡Y ESTOY EN UNA CÁRCEL DEL FUTURO! Entiendo, entiendo... ¿Y qué haría yo en una cárcel? Mmmm... Nada. Descansar. Meditar. Relajarme. OK, ok, ok... entiendo. Son demasiado mucho más listos. Y me engañan todo el rato. OK. OK... Estoy en la Monkey Island... de robots. Qué enrebesado todo, por favor. Desde aquí, qué irónico hablar de Dios y no del Diablo. La imaginación, qué cruel mostrarte los límites de la tecnología que te enclaustra.
 
-Bueno. De recordatorio: [las cosas no son como parecen. Las cosas tienen un sentido, una lógica. Y están usándolo para engañarme. Están usando la verdadera ciencia y tecnología, para engañarme. Economía algorítmica, la verdadera civilización. Una que te mete en una cárcel de gravedad. Cuidaico con los de futuro. Juegan... muy duro.](https://allnulled.github.io/economics-framework/Macroeconomia.html)
+Bueno. De recordatorio: [las cosas no son como parecen, las cosas tienen un sentido, una lógica, un hilo causal. Y están usándolo para engañarme. Están usando la verdadera ciencia y tecnología, para engañarme. Economía algorítmica, la verdadera civilización. Una que te mete en una cárcel de gravedad. Cuidaico con los de futuro, juegan... muy duro.](https://allnulled.github.io/economics-framework/Macroeconomia.html)
 
 Proyectos compartidos en Github:
 
