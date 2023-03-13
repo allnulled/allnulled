@@ -1,4 +1,4 @@
-**Carlos Jimeno Hernández**. Un mataillo.
+**Carlos Jimeno Hernández**. Algo hay.
 
 Creo que ha llegado el momento de escribir. Escribir castellano. Castellano normal. Nada de código, nada de programación. Voy a intentar usar el castellano, a ver cuánto duro.
 
@@ -139,8 +139,53 @@ Evidentemente, no pueden conocer al máximo detalle. Pero nadie, teóricamente, 
 El conocimiento de los recursos materiales y su estado, es necesario para comprender qué función está haciendo uno en la economía (tanto como empleado, como empleador, como consumidor incluso).
 Esto quiere decir que, básicamente: somos incapaces, por Ley, de entender la función que estamos ejerciendo en la economía.
 Por tanto, al final de tu jornada, no sabrás cuánta demanda has satisfecho dentro de toda la que hay, por tanto eres incapaz de valorar tu trabajo, y eso es en tu nicho, porque ni siquiera estás dimensionando en tu imaginación todos los nichos (o industrias en términos más generales) que hay en la economía, ni la naturaleza de cada uno, que seguro es diferente.
-¿Y en qué desemboca todo esto? En gente que cree que el desempleo se produce porque la gente es vaga o no quiere trabajar.
-El último estadio de esta reflexión es esa: simplemente, no sabemos cuánto se requiere ni cuánto se tiene, solo somos caballos desbocados corriendo hacia el dinero, no importa que no nos digan más, nos dejamos tratar así.
+¿Y en qué desemboca todo esto? En gente que cree que el desempleo se produce porque la gente es vaga o no quiere trabajar, entre otras cosas, como que estos mismos seres son, no solo incapaces de conocer la economía, sino profundamente ajenos al deseo de comprenderla. Y dependes de tipos así para que tu suerte se vea salvada.
+La situación es, pues, que no sabemos cuánto se requiere ni cuánto se tiene (ni podemos saberlo, por Ley), solo somos caballos cegados corriendo hacia el dinero: no importa que no nos digan más, nos dejamos tratar así.
+
+El tema del empleo es bastante sulfurante, en muchos aspectos, y de complejidad notable, porque no va desligado a otros aspectos no poco complejos, como la legislación económica en materias muy dispares (derechos laborales, diferencias entre precio, coste y valor, organización dispersa, política económica orientada a la competición, demanda silenciada, y muchas más).
+Sin embargo, la parte más crítica del empleo es, sin duda, la aporafobia, o: ¿qué sucede cuándo estoy en bancarrota y sin posibilidad de ingresos? Esta duda, seguro, embarga y amarga los días a muchas personas.
+¿Qué estilo de vida tendré que adoptar? ¿Quién me enseña a vivir de esta nueva forma? ¿Cuándo, cómo, si nunca he oído hablar de escuelas para aprender a ser pobre (y capaz las pondrían de pago, los mongoloides)?
+Todo esto, y mucho más.
+
+No siempre se puede obtener todo lo que uno quiere. Pero duele más cuando estás dispuesto a poner tu sudor, y ni siquiera tienes una oportunidad. Y con el tiempo, los que son cebados por ingresos se vuelven cada vez más dóciles y disciplinados, mientras que uno cada vez se vuelve más salvaje, psicópata, con sed de arrancarles la cara a los parlamentarios o de ir a La Bolsa y hacer una buena masacre y una mancha para la economía local de las élites.
+
+Sin embargo, todo eso es falso. Y todo eso no responde a una estrategia de las élites para tener controlada a la masa, como cabría pensar en un primer momento (uno de "paranoia", como dirían muchos de los robots, robots supongo agradecidos del status quo).
+No, no responden a esto todas estas estratagemas socio-robóticas.
+Responden a dejarme a mí sin salidas: es la plaza de toros, y yo soy el toro, y vosotros los toreros, y parece que aquí hay fiesta para rato.
+Al dejarme a mí sin salidas, consiguen tener controladas las puertas por donde tengo que pasar para salir de este pozo.
+Entonces, no se trata de capacitarse para un empleo: se trata de sufrir las consecuencias de un diseño económico malicioso, por elitista, pero ojo: donde las élites reales, las de verdad y no las del teatrillo, están bien escondidas, bien calladas las cobardes. Lo otro son políticos diciendo cosas y escribiendo las leyes-encierro con las que me procuran tener reducido.
+
+Hago un paréntesis. Cuando digo que sois robots, me refiero a que os (o "nos" quizá, pero no sé en qué punto exacto dejamos de parecerme parecidos) gobierna una fuerza mayor, la de los deseos, supongo, y contra la cual razonar es en vano.
+Aunque a menudo lo pienso más allá, y creo que no hay nada dentro vuestro, que os controlan en remoto, y que vivo recluido en una prisión del futuro de máxima seguridad: tanta es la seguridad, que aquí no dejan entrar personas, sólo robots (y como tales, religiosamente, se comportan).
+Y eso que todavía no he empezado la matanza, una que me estáis pidiendo a gritos (silenciosos, y silenciadores, pero a gritos, y desde hace mucho tiempo).
+La verdad es que veo tantas razones para hacerla, como para no hacerla.
+Al final, me han aislado en una tierra de robots, ¿qué esperan... que algún día les perdone?
+¿Que me pudra toda la eternidad hasta que salga en plan friendly?
+No sé quiénes sois, y me dais mucha rabia sin siquiera haberos visto nunca.
+Y desde aquí se siente que la justicia divina nunca llegará a resonar en vuestros lagrimales, que habéis aprendido a burlarla, y que realmente le habéis hecho creer que merezco estar aquí, secuestrado, y vosotros ahí, mirando con condescendencia cómo vosotros mismos me lleváis a la putrefacción, de forma reiterada, a través de las vidas y su borrado de memoria consecuente.
+
+Por eso, hoy es el día más importante de mi vida. Todos los hoy son el día más importante de mi vida. Porque, quizá, esté en mis manos salir de esta prisión, encontrar una salida a este pozo.
+Aunque me temo que no será hoy tampoco el gran día, como hasta ahora. Sin embargo, frente a esto, yo veo la eternidad. La eternidad como un títere de D.I.O.S. o de la ley de la causalidad si prefieres.
+Sólo dejando de ser materia podría, quizás, salirme del férreo mandato de la causalidad y sus reglas de interdependencia o de consecuencialidad.
+Y claro. Suicidarse solamente por un "quizás"... uno que tiene la palabra "eternidad" escrita, ojo... pero un quizás y nada más... no lo sé, no me parece muy sensato.
+
+¿Qué tiene que ver esto con el empleo? No me importa tu puto empleo. Tienes un gobierno que habla del pleno empleo como una meta nacional. No hablan de plena satisfacción de la demanda. De verdad, no vivimos en el mismo mundo, no vemos las mismas cosas, no estamos en el mismo plano de la realidad: no podemos entendernos mutuamente.
+Tienes un gobierno que profesa metas esclavistas como moraleja discursiva. El mismo que te limita la educación, te complica la economía, te encarece los anestésicos, y otras cuantas bondades más que tienes recogidas en el ordenamiento jurídico, uno disperso, encriptado con jerga intelectualoide y ofuscado con verborrea floricistas que, en última instancia, distrae del verdadero fin de estas leyes que, en la teoría de las élites político-económicas, sería dominarnos y someternos, pero en la teoría solipsista, es simplemente joderme y mantenerme jodido.
+Esto implica otra palabrota en la fiesta. Les he llamado esclavistas. Y suena fuerte. Pero no es lo más fuerte que se les puede llamar. Hay un adjetivo todavía más fuerte para describirlos, si aceptamos la teoría solipsista, y es: no son esclavistas, son sadistas, el esclavismo es sólo uno de los instrumentos de su enfermiza orgía de incongruencias.
+Frente a un sádico, la estrategia es otra. Un esclavista, busca dominación. Un sádico busca, directamente, que sufras. Tu mal es su bien. La antagonía hecha ser. Y no se trata de un retorcimiento del proceso mental: se trata de un ser que, por diseño, extrae placer de tu dolor. No es un sádico humano, no es que tenga un lío en la mente: es que es el que come de tu mierda, necesita que cagues para comer, necesita que sufras para gozar. No por traumas: por diseño. Si no te quieres ir tú, él tampoco. Y así seguiréis, retroalimentando esta condena mutua, tú y realidad, realidad y tú.
+
+Pero... ¿y qué cuernos tiene que ver esto con el empleo? Te lo estoy diciendo. Que buscan el PLENO EMPLEO, no la PLENA SATISFACCIÓN DE LA DEMANDA. El PLENO EMPLEO es ser tu grano en el culo. La PLENA SATISFACCIÓN es trabajar cuánto sea necesario, para satisfacer las demandas de la sociedad: no las de los ricos, no las de los medio-ricos, no las del mejor postor, sino las de todos, en la medida en que se puedan satisfacer, pero no más, no trabajar para mantener el empleo, no trabajar para mantener las apariencias, no trabajar para tenerte entretenido. Hablo de automatizar el trabajo para conseguir la PLENA SATISFACCIÓN DE LA DEMANDA. Hablo de BUSCAR EL EMPLEO NULO, en lugar del PLENO EMPLEO. No vivimos en el mismo plano, de verdad. Y a mí, tú, no me puedes llamar vago. Pero ya te digo de antemano que esta sociedad, para mí, no es. Y no hablo de España, hablo de este puto planeta entero.
+En resumen: que buscan el "PLENO EMPLEO" es un eufemismo de "TE QUIERO SUFRIENDO". Pero igual que no por mucho madrugar amanece más temprano, pues no por mucho trabajar se producen más manzanas. Se trata más bien de trabajar mejor, de distribuir mejor tanto el trabajo como la información (o educación) y la producción. ¿Y qué es mejor? Pues no lo sé, y por eso, lo primero es que EDUQUES, MALDITO FARSANTE, QUE EDUQUES SIN FRONTERAS NI BARRERAS.
+No es así, porque: esto es el infierno, y aquí se viene a sufrir. Por eso: legalizar la hierba, siempre será malo, y el pleno empleo, en sus restringidas directrices robóticas-programáticas, siempre bueno. Porque el fin es joderte. Porque este lugar es sadista. Porque a los políticos en democracia no se les rechista. Por eso, querría arrancarles la cara algún día, alguna vez. No es que sea sádico: es que crecí bajo su mandato simplemente, es lo que aprendí. No disfrutaría tirándole ácido en la cara al Presidente del Gobierno, eso es lo que me salva la distancia con el sádico. Pero se lo tiraría, por obligación moral, y me regocijaría de haber hecho el trabajo que ellos me exigieron hacer: tirar para adelante con la nación.
+Sin embargo, y si recapitulamos: el presidente es un puto robot también. No siente nada. No sentiría nada. Y tú, en cambio, tendrías que estar recluido en aislamiento. Por tanto, hasta cumplir con tu deber desembocaría en perjuicio para ti.
+
+Es, verdaderamente, el infierno, y todas las salidas están bañadas por la lava, difícil no quemarse.
+
+
+
+
+
+
 
 -----
 
@@ -150,4 +195,4 @@ Continuará.
 
 ### LA SOLUCIÓN
 
-¿La solución? Es fácil, cuando le has dado tantas vueltas. O los matas a ellos, o te matas tú. Y aunque los mates a ellos, no sirve, porque son putos robots de mierda, el que los comanda está más allá, a ese no le tocas. Y aquí me estoy refiriendo al Dependency Injection Operative System (D.I.O.S.).
+¿La solución? Es fácil, cuando le has dado tantas vueltas. O los matas a ellos, o te matas tú. Y aunque los mates a ellos, no sirve, porque son putos robots de mierda, el que los comanda está más allá, a ese no le tocas.
