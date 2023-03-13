@@ -8,7 +8,9 @@ Supongo que queréis la lista de detalles que me hacen caer en la anomia, la cua
 ¿Por qué? Porque el sistema de recompensa mental no se sacia con sus parámetros de "vida laboral". Y el porro, sí. Por muy caro que sea, el porro sí consigue la recompensa, y sus conversaciones no, sus dineros condicionados no, ni siquiera sus consejos de vida, o la escasa información sobre psicología y sobre el cerebro que me han dejado adquirir. Ninguna está ni estará al nivel de un buen cigarro amarihuanado, si la marihuana lo vale.
 Pero vosotros queréis la lista, supongo.
 
----- LA MARIHUANA ----
+------
+
+### LA MARIHUANA
 
 Bueno. Empezaré por mi parte:
   - El kilogramo de marihuana, debido a su prohibición, vale 10.000€. El de arroz, apenas 1€.
@@ -25,6 +27,7 @@ Podría reflexionar sobre la conformidad, sobre cómo el uso de sustancias puede
 Podría reflexionar sobre la mucho mayor importancia de aplacar esa irreverencia al poder establecido, fruto del abuso del consumo de sustancias furtivas, que el hecho de "proteger su salud", puesto que los delitos por drogas presumen defender la "salud pública", no los "intereses partidistas de las élites político-económicas".
 Podría reflexionar incluso sobre el segundo estadio de esta reflexión, donde: no me creo que haya gente tan avariciosa, y entiendo que toda esa teatralización responde, única y exclusivamente, a joderme, a mí, concretamente a mí: no a los yonkis, no a los fumadores de marihuana: A MÍ.
 Y en cierta forma, con este vistazo superficial, lo consideraré reflexionado. No quiero ahondar, no es necesario.
+
 Los dato en esto son:
   - kg. de marihuana vale 10.000€, y kg. de arroz vale 1€.
   - así no se debilitan las mafias: se engrosan. Las tres mafias se fortalecen:
@@ -37,6 +40,7 @@ Dicho esto, puedo añadir muchas más: que para mí es una medicina, es una prot
 Pero también sé que con unos días de dejar de tomarla, vuelvo a no necesitarla (tanto, siempre la necesitaré, porque vuestro mundo me remite siempre a "vuestras mierdas", y éstas me remiten al refugio cannábico, prácticamente siempre).
 Sin embargo, una cosa es que acepte dejar la marihuana para no sufrir. Pero otra muy diferente es que no me vaya a vengar, tomado o no por la adicción, la ruina económica en la que me sumieron, la complicación de la vida a la que me sometieron, y directamente la exposición a la enfermedad mental sin la medicina cannábica. Nada de eso es compensado por nada de lo que ellos ofrecen, ni ofrecerán (¡qué gran error es esperar su comprensión o empatía antes que su atragantamiento y cese vital, ay, políticos!).
 Por la parte de la marihuana, solo añadir que en India es un arbusto, una mala hierba. 10.000€ por la fruta de una mala hierba que crece sola y que produce más de 1 kilo de fruto perfectamente en tan solo 6 meses, incluso en el clima español, es, simplemente, chotearse de mí.
+
 Por esta parte, dejémoslo ahí. Culpables:
   - Políticos
   - Ministerio de Salud, Interior y Educación
@@ -47,7 +51,9 @@ Por esta parte, dejémoslo ahí. Culpables:
 
 La solución no es solo legalizar. Pero ilegalizar es contribuir a las mafias. Y ahí, wild contradiction arised.
 
----- LA EDUCACIÓN ----
+-----
+
+### LA EDUCACIÓN
 
 Bueno. Si solo fuera esto, puede que la mejor solución sea aceptar que esa planta está maldita, y separarse y alinearse con "la sociedad" (eufemismo, hay mucha "sociedad" que estaría a favor de la legalización) fuera mejor opción.
 Pero hay muchas más contradicciones.
@@ -60,9 +66,10 @@ No voy a seguir listando razones. Creo que estas 3 razones son paradigmáticas, 
 
 Solo apuntar una afirmación... filosófica, existencial, universal y eterna si quieres. Y es la siguiente:
   - Para hacer algo (de forma consciente), hay que:
-    1) saber hacerlo
-    2) poder hacerlo
-    3) querer hacerlo
+    1. saber hacerlo
+    1. poder hacerlo
+    1. querer hacerlo
+
 Pues la educación es el punto 1. De 3, el primero. El segundo punto trata más de tener los recursos o medios materiales para cometer el acto, la acción consciente. Esto tiene más complejidad, porque el conocimiento no es fungible, pero los recursos materiales sí. Compartir el conocimiento no hace que el conocimiento propio mengüe, al contrario. Compartir manzanas, en cambio, sí hace que mengüen las manzanas propias.
 Dada la naturaleza no fungible del conocimiento, el crear instituciones (universidades e institutos sobre todo) que condicionen la adquisición de conocimientos a la capacidad adquisitiva, desemboca en varios despropósitos:
     - Limitar el conocimiento acumulado por persona. Solo son libros, y exámenes. Pedir dinero por eso, consigue que la gente, simplemente, no aprenda, ni quiera aprender.
@@ -92,7 +99,9 @@ Si te bloquean en el primer round (SABER), te quedas ahí.
 
 Esto, en tanto que a la educación, que está podrida. Pero hay más, claro.
 
----- EL EMPLEO ----
+-----
+
+###  EL EMPLEO
 
 En cuanto al empleo, bueno. Yo he hecho mis investigaciones, y no por enviar 4.000 currículums en Infojobs (plataforma de empleo número 1 en España) te dejan entrar en el mercado laboral.
 El Mercado Laboral es la antesala del dinero. Si no atraviesas esta sala, no llegas a obtener dinero (a no ser por ayudas estatales o personales).
@@ -127,7 +136,12 @@ Por tanto, al final de tu jornada, no sabrás cuánta demanda has satisfecho den
 ¿Y en qué desemboca todo esto? En gente que cree que el desempleo se produce porque la gente es vaga o no quiere trabajar.
 El último estadio de esta reflexión es esa: simplemente, no sabemos cuánto se requiere ni cuánto se tiene, solo somos caballos desbocados corriendo hacia el dinero, no importa que no nos digan más, nos dejamos tratar así.
 
-----
+-----
+
+Continuará.
+
+-----
+
+### LA SOLUCIÓN
 
 ¿La solución? Es fácil, cuando le has dado tantas vueltas. O los matas a ellos, o te matas tú. Y aunque los mates a ellos, no sirve, porque son putos robots de mierda, el que los comanda está más allá, a ese no le tocas.
-
