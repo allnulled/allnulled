@@ -65,6 +65,7 @@ Pero hay muchas más contradicciones.
 No voy a seguir listando razones. Creo que estas 3 razones son paradigmáticas, y de ellas se pueden extrapolar otras razones más genéricas. Pero, sin basarse en análisis socio-económicos (países pobres e índice de alfabetización, fracaso educativo e índice de criminalidad, etc.).
 
 Solo apuntar una afirmación... filosófica, existencial, universal y eterna si quieres. Y es la siguiente:
+
   - Para hacer algo (de forma consciente), hay que:
     1. saber hacerlo
     1. poder hacerlo
@@ -72,6 +73,7 @@ Solo apuntar una afirmación... filosófica, existencial, universal y eterna si 
 
 Pues la educación es el punto 1. De 3, el primero. El segundo punto trata más de tener los recursos o medios materiales para cometer el acto, la acción consciente. Esto tiene más complejidad, porque el conocimiento no es fungible, pero los recursos materiales sí. Compartir el conocimiento no hace que el conocimiento propio mengüe, al contrario. Compartir manzanas, en cambio, sí hace que mengüen las manzanas propias.
 Dada la naturaleza no fungible del conocimiento, el crear instituciones (universidades e institutos sobre todo) que condicionen la adquisición de conocimientos a la capacidad adquisitiva, desemboca en varios despropósitos:
+
     - Limitar el conocimiento acumulado por persona. Solo son libros, y exámenes. Pedir dinero por eso, consigue que la gente, simplemente, no aprenda, ni quiera aprender.
     - Es contradictorio pedir perfiles de estudiantes avanzados para la mayoría de empleos, por un lado, y poner limitadores de conocimiento a las personas, por el otro.
     - El individuo ignorante puede ser fácilmente manipulado. Desde las élites. Las élites que procuran su ignorancia.
@@ -80,6 +82,7 @@ Con el tiempo, este quiste se convierte en un tumor, y al envejecer en una mochi
 Y mi mente sigue queriendo vengarse por ponerme estos limitadores, y estarme reprochando que no soy productivo, y estarme complicando por no tener poder adquisitivo.
 Ministros de educación, de universidades, de trabajo y formación profesional. Estas figuras están en la mira.
 Sin embargo, la lista de culpables es mayor:
+
     - Políticos
     - Ministerio de Educación, Universidades, Ciencia y Tecnología, Trabajo y Formación Profesional.
         - Consejos y comisiones definitorias del currículo educativo
@@ -106,6 +109,7 @@ Esto, en tanto que a la educación, que está podrida. Pero hay más, claro.
 En cuanto al empleo, bueno. Yo he hecho mis investigaciones, y no por enviar 4.000 currículums en Infojobs (plataforma de empleo número 1 en España) te dejan entrar en el mercado laboral.
 El Mercado Laboral es la antesala del dinero. Si no atraviesas esta sala, no llegas a obtener dinero (a no ser por ayudas estatales o personales).
 Personalmente, veo varios problemas en el mundo laboral y su planteamiento.
+
   - Contratos laborales limitantes. O 8 horas 5 días a la semana. O nada. Luego hay un 14% de paro sistémico en España, constante y sostenido. ¿Lo tengo que desarrollar, o sabemos restar y dividir y solucionar los prolemas con números y lógica? No voy a desarrollarlo. En mi caso, llevo tanto tiempo sin acceso al mercado laboral, que conciliar una jornada laboral diaria de 8 horas con las horas de sueño, o de gestión de las tareas domésticas, se me hace prácticamente imposible (desajustes de sueño, falta de energía para recorrer 13km. para hacer la compra, etc.).
   - Profesión fija: empobrecimiento moral, cognitivo y social. La especialización que requiere el mercado laboral de hoy, junto con todas las complicaciones desde el área de educación, llevan a personas-oficio: personas que se dedican toda su vida a una sola y misma cosa. Esto convierte a las personas en pobres de cognición (solo ven su nicho), en pobres sociales (solo pueden empatizar con su nicho) y en pobres morales (su autoestima cae puesto que se les da el mensaje de que solo sirven para una cosa). El resultado son personas muy limitadas, como vengo diciendo es su intención. En una última instancia teórica, donde todo lo hacen para joderme: quieren que me imagine una vida de robot, levantándose todos los días para cumplir una función limitada, toooodos los días (o casi). El infierno robótico, vaya. Incluso por mucho que te guste tu nicho, te vuelves pobre mental, te cristalizas en un rincón del mundo, y solo te sientes poderoso (o más bien, capaz, capacitado) si se está tratando de tu nicho. En esencia, la rotación profesional es complicada, conflictiva (si estudio de qué vivo, cómo pago los estudios, me servirá para un trabajo o no, etc.). No, no interesa individuos polifacéticos. En un segundo momento, supongo que no queréis que me haga a la idea de que voy a vivir mucho, y sin rotación profesional, se te quitan las ganas de vivir demasiado, atrapado entre una rutina monotemática, y la aporafobia adquirida y reforzada cada día por la media y por las entidades estatales, también oxigenada por los civiles y sus costumbres.
   - Desconocimiento de la economía. Este, aunque no lo parezca, es para mí el más grave. Porque desemboca en gente pagada para hacer el mono. Y la lista de monos laborales es larga, incluso puede ser mucho mayor según el criterio para discriminar: monerías/vs/necesidades.
@@ -114,6 +118,7 @@ Personalmente, veo varios problemas en el mundo laboral y su planteamiento.
       - Por ejemplo, youtubers y similares. Gente haciendo el simio en la cámara, a ver si atrae la atención de alguien, y así un poco de dinero. Es ridículo. Pero es diario, constante, está sucediendo hoy. Sobre todo: no les pagan a casi ninguno, y a los que pagan, suelen pagar nimiedades, no son estilos de vida estables financieramente (con excepciones, claro, con cebos para que piquen los pececitos).
       - Por ejemplo, un programador (los culpables) que defiende el uso de una tecnología que hace que le tengan que contratar 1 mes, frente a otra tecnología con la que podría obtener un producto igual o similar, en cuestión de 1 día. Como programador, sé que existe esta estrategia a la hora de diseñar software: diseñar soluciones empaquetadas con futuras demandas de más servicios. Como programador, me gusta hacer software para terminar y cerrar una tarea. Sin embargo, a una empresa no le suele interesar esto, más que: nuevas formas de mantener a los clientes soltando dinero.
         - El producto cambia cuando su objetivo es solucionar un problema de cuando su objetivo es mantener un estilo de vida conforme a las leyes y la economía.
+
 El producto es el centro de la economía: del valor, del trabajo, del consumo, de la oferta y la demanda, etc.
 
 > El producto cambia cuando su objetivo es solucionar un problema de cuando su objetivo es mantener un estilo de vida conforme a las leyes y la economía.
@@ -125,6 +130,7 @@ Podría hacer una larga lista de despropósitos que se suceden en el ámbito eco
 
 El hecho de desconocer el estado de los recursos (también los humanos), de las tecnologías (propietarias o no) y de las investigaciones (públicas o privadas), conlleva muchos despropósitos también. Sobre todo, y me gustaría recalcar, la incapacidad de criticar a la función pública.
 Esta información la tienen ciertos ministerios, ciertos organismos públicos, o al menos, éstos son los que, oficialmente, tienen más información sobre estos temas:
+
   - Hacienda conoce el estado financiero y movimientos de recursos que cada empresa comete.
   - Economía conoce las empresas más grandes, y los inversores, y sus fluctuaciones de dinero.
   - Oficina Española de Patentes y Marcas. Aunque la gran mayoría de los secretos industriales residen en la misma industria, puertas adentro de las empresas.
@@ -138,7 +144,7 @@ El último estadio de esta reflexión es esa: simplemente, no sabemos cuánto se
 
 -----
 
-Continuará.
+Continuará. Porque esto no acaba con estas solamente. Ya iré poniendo más sobre "vuestras mierdas".
 
 -----
 
