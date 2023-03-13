@@ -125,7 +125,7 @@ El producto es el centro de la economía: del valor, del trabajo, del consumo, d
         
 Por eso, el profesor siempre dirá que las pantallas son frías, no educan en valores, etc. Porque el producto que le interesa al profesor es el que le mantiene el estilo de vida, no el que enseña más, mejor y más rápido y eficientemente. No digo que no tenga razón, digo que la parte de razón que tiene es tan pequeña, y la que no tan grande, que, de nuevo... a new wild contradiction arised. No es una contradicción, claro: acabo de explicar la causa de lo que defiende cada parte. Pero es que, además: puedes poner los vídeos y PDFs en internet, para todos (para que puedan entrar en el libre mercado cada vez más especializado más rápidamente), sin despedir al profesor.
 Por esa misma razón también, hay una bombilla encendida desde 1901, pero las nuevas bombillas tienen fecha de caducidad.
-Por esa misma razón, taaaaaantas estrategias de negocio exitosas enmascaran la ingeniería de la ruina, esto es: priorizar el lucro sobre la eficiencia y eficacia. ¿Por qué? Porque yo no estoy compitiendo (con la competencia): yo sólo quiero mi bombilla, y la quiero siempre, eres tú el que me quiere arruinar para, presúntamente. Digo presúntamente, porque cuando llevas unos años en este lugar, ya lo ves: que está diseñado para tener esclavos, no para tener una sociedad.
+Por esa misma razón, taaaaaantas estrategias de negocio exitosas enmascaran la ingeniería de la ruina, esto es: priorizar el lucro sobre la eficiencia y eficacia. ¿Por qué? Porque yo no estoy compitiendo (con la competencia): yo sólo quiero mi bombilla, y la quiero siempre, eres tú el que me quiere arruinar para, presúntamente, hacer algo más de dinero. Digo presúntamente, porque cuando llevas unos años en este lugar, ya lo ves: que está diseñado para tener esclavos, no para tener una sociedad.
 Podría hacer una larga lista de despropósitos que se suceden en el ámbito económico (no solo laboral) de la diferencia entre «producto más satisfactorio» y «producto más rentable». Pero prácticamente toda la práctica económica está impregnada de este defecto, y si analizas con conocimiento e imaginación, podrás ver cómo el optimizar procesos económicos, en cierta parte, deja de interesar a las élites, porque su sociedad de esclavos cambiaría a una sociedad de parados. Y los parados, no se quedarán quietos, porque no están cansados. Y eso, les daría problemas. Pero insisto: todo esto es presuntamente. En última instancia, esto se hace para que el tonto (yo) pueda ir y mejorar cualquier nicho, o al menos pensárselo, porque claro, todo avanza, y ya hay otros pensando cómo hacerlo (claro, claro, los veo muy pensantes, sí, pero para lo que quieres, no para todo, para todo no son pensantes, claro, claro...).
 
 El hecho de desconocer el estado de los recursos (también los humanos), de las tecnologías (propietarias o no) y de las investigaciones (públicas o privadas), conlleva muchos despropósitos también. Sobre todo, y me gustaría recalcar, la incapacidad de criticar a la función pública.
@@ -144,7 +144,7 @@ El último estadio de esta reflexión es esa: simplemente, no sabemos cuánto se
 
 -----
 
-Continuará. Porque esto no acaba con estas solamente. Ya iré poniendo más sobre "vuestras mierdas".
+Continuará.
 
 -----
 
