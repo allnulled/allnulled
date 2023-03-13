@@ -1,4 +1,4 @@
-**Carlos Jimeno Hernández**. Algo hay.
+**Carlos Jimeno Hernández**. Un mataillo.
 
 Creo que ha llegado el momento de escribir. Escribir castellano. Castellano normal. Nada de código, nada de programación. Voy a intentar usar el castellano, a ver cuánto duro.
 
@@ -74,21 +74,21 @@ Solo apuntar una afirmación... filosófica, existencial, universal y eterna si 
 Pues la educación es el punto 1. De 3, el primero. El segundo punto trata más de tener los recursos o medios materiales para cometer el acto, la acción consciente. Esto tiene más complejidad, porque el conocimiento no es fungible, pero los recursos materiales sí. Compartir el conocimiento no hace que el conocimiento propio mengüe, al contrario. Compartir manzanas, en cambio, sí hace que mengüen las manzanas propias.
 Dada la naturaleza no fungible del conocimiento, el crear instituciones (universidades e institutos sobre todo) que condicionen la adquisición de conocimientos a la capacidad adquisitiva, desemboca en varios despropósitos:
 
-    - Limitar el conocimiento acumulado por persona. Solo son libros, y exámenes. Pedir dinero por eso, consigue que la gente, simplemente, no aprenda, ni quiera aprender.
-    - Es contradictorio pedir perfiles de estudiantes avanzados para la mayoría de empleos, por un lado, y poner limitadores de conocimiento a las personas, por el otro.
-    - El individuo ignorante puede ser fácilmente manipulado. Desde las élites. Las élites que procuran su ignorancia.
+  - Limitar el conocimiento acumulado por persona. Solo son libros, y exámenes. Pedir dinero por eso, consigue que la gente, simplemente, no aprenda, ni quiera aprender.
+  - Es contradictorio pedir perfiles de estudiantes avanzados para la mayoría de empleos, por un lado, y poner limitadores de conocimiento a las personas, por el otro.
+  - El individuo ignorante puede ser fácilmente manipulado. Desde las élites. Las élites que procuran su ignorancia.
 
 Con el tiempo, este quiste se convierte en un tumor, y al envejecer en una mochila con la que cargas el resto de tus días, tus días de ignorante en una tierra de ciegos orgullosos.
 Y mi mente sigue queriendo vengarse por ponerme estos limitadores, y estarme reprochando que no soy productivo, y estarme complicando por no tener poder adquisitivo.
 Ministros de educación, de universidades, de trabajo y formación profesional. Estas figuras están en la mira.
 Sin embargo, la lista de culpables es mayor:
 
-    - Políticos
-    - Ministerio de Educación, Universidades, Ciencia y Tecnología, Trabajo y Formación Profesional.
-        - Consejos y comisiones definitorias del currículo educativo
-    - Instituciones educativas: institutos, universidades/rectorados, academias, etc.
-    - Editoriales de contenidos educativos: Mac Graw Hill, Macmillan, Edelvives, Anaya, Oxford, Paraninfo, Vicens Vives, etc.
-    - Otros intermediarios e interesados en el abuso de nicho.
+  - Políticos
+  - Ministerio de Educación, Universidades, Ciencia y Tecnología, Trabajo y Formación Profesional.
+    - Consejos y comisiones definitorias del currículo educativo
+  - Instituciones educativas: institutos, universidades/rectorados, academias, etc.
+  - Editoriales de contenidos educativos: Mac Graw Hill, Macmillan, Edelvives, Anaya, Oxford, Paraninfo, Vicens Vives, etc.
+  - Otros intermediarios e interesados en el abuso de nicho.
 
 Los colegios, realmente, en esta crítica no entran (caso España). Principalmente, porque no hay apenas analfabetización. Pero sí hay diferencias entre ir a un colegio donde enseñan 3 idiomas y uno que enseñan 1 y gracias, por ejemplo. Hay diferencias, y si éstas se salvan pagando (sea el extra de la privada, sea con academias), entonces la educación seguirá subyugada al elitismo socio-económico. Para mí no, para mí es algo espiritual, sagrado, y lo mejor que puede hacerse con él es compartirlo, aunque nos evoque a la catastrofia incluso (opinión personal, pero sí, mentir es de perdedores, y abusar del poder todavía más).
 Luego entran todos los colectivos prácticamente, porque todos son celosos con el conocimiento, porque todos abusan de la injusticia que se produce en este rincón de la sociedad, donde se escoge la forma en que los individuos son capacitados mentalmente para... tareas avanzadas, a veces también básicas. Cocinar, por ejemplo, no enseñan (luego apelan a los estereotipos sexuales, desde el Gobierno, inventándose ministerios incluso en presunta defensa de ese bien jurídico). Ni cultivar. Ni construirse una casa. Ni siquiera lógica, conectivas lógicas, lenguajes formales o programación, que es el "abc" del funcionar de las cosas.
