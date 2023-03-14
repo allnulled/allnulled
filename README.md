@@ -2,6 +2,8 @@
 
 > Nota en 14 de marzo de 2023 a las 11:21am. "Carl OS Gime, No earn, Ande". Sois muy graciosos todos, sí. Que ande, ¿no? Bueno, sois muy listos, está claro. Más que yo. ¿QUÉ PUTA MIERDA QUERÉIS DE MÍ, MALDITOS HDLGP? Es esto, ¿no? Mantenerme jodido, claro.
 
+> Nota en 14 de marzo de 2023 a las 13:46pm. Vaya. Me prestan una bici. Hoy. Si el odio tuviera un superlativo, yo lo llamaría "Dios" en tu honor.
+
 Creo que ha llegado el momento de escribir. Escribir castellano. Castellano normal. Nada de código, nada de programación. Voy a intentar usar el castellano, a ver cuánto duro.
 
 No me creo el mundo. No es real.
