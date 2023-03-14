@@ -1,5 +1,7 @@
 **Carlos Jimeno Hernández**. Algo hay.
 
+Nota en 14 de marzo de 2023 a las 11:21am. "Carl OS Gime, No earn, Ande". Sois muy graciosos todos, sí. Que ande, ¿no? Bueno, sois muy listos, está claro. Más que yo. ¿QUÉ PUTA MIERDA QUERÉIS DE MÍ, MALDITOS HDLGP?
+
 Creo que ha llegado el momento de escribir. Escribir castellano. Castellano normal. Nada de código, nada de programación. Voy a intentar usar el castellano, a ver cuánto duro.
 
 No me creo el mundo. No es real.
