@@ -238,6 +238,16 @@ El problema es que ya no son las élites. Bueno, sí son las élites. El problem
   - Cultura y tradición: confunden oligarquía con democracia, el elitismo ha incidido hasta en su vocabulario base. Y yo me salvo porque fui un oportunista en su momento y pude entrar unos años en la universidad a estudiar Filosofía, de la cual apenas me acuerdo, mucho más uso lo que pude sacar yo por mí mismo leyendo a otros, que lo que pude sacar de ellos directamente, es decir, poco de lo que escribo aquí tiene que ver con lo que aprendí en ese nicho de estudio, y ningún significado hay que no puedas averiguar con una búsqueda rápida en Wikipedia. No sé con quién hablo, aquí solo estamos dos, ¿verdad? Párame cuando quieras, eso ya lo sabes.
   - Sociedad: desde niños, hay una autoridad. Pues... se quedan en niños. Por eso pueden ver la tele y no volverse locos. Supongo. De otras, yo no me lo explico ya. Encender la tele es recibir insultos. Es... visualizar la emisión de un delirio de grandeza, uno continuado por gente que trabaja 1 mes por, literalmente, dos papeles que no saben de dónde salen, ni de dónde pueden salir. De verdad, no vivimos en el mismo plano de la realidad.
 
+No sé. Da igual. Doy muchos rodeos. Me gustaría entregarlo bien compacto. Pero... ya lo sabes, joder.
+
+Si ya lo sabes.
+
+Colapso de rabia cuando... no sé. Te hago un diagrama con Mermaid explicando la realidad, y cómo se entrelazan las causas y desembocan en despropósitos. Pero es que se llama "mermaid" el lenguaje de diagramas. "Mermado" en inglés. Quiero decir... que ni dándotelo masticado podría generar en ti la mitad de lo que genera en un tío que vive en la mierda y de ahí no sale ni puede salir.
+
+¿Quieres que te describa la sensación? La sensación de cuando rozo la comprensión de que eres el putodios este, que utiliza las caras y cuerpos ajenos para marearme, y cuando te voy a contar... ¡vaya, qué sorpresa! No lo entiendes. No te interesa. No te importa. No es lo tuyo. Todos sois igual, de verdad.
+
+Prefiero vivir lejos de vosotros. Es muy conflictivo, y creo que digo muchas cosas, pero ésta es muy importante para la gente a la que le pueda interesar como persona, no como programador ni nada de eso: «cuando hablamos, dejas entrever tus formas de pensar elitistas, y no, el tener dinero no te hace (1) ni merecerlo, (b) ni mejor». Pero no te lo voy a robar. Simplemente, seguiré en un rincón de la existencia, repitiéndome como niño autista que nada de esto es real, que algo interrumpirá esta pesadilla pronto, y que el mundo era un teatrillo y las personas estaban, realmente, vacias por dentro. Que todo era una prueba. Que estaba en un juego que salió mal. Que no me espera una condena eterna iterando vidas de mierda como ésta, una, y otra, y otra vez. No, no, no, no, no, no, no... algún día pasará todo. Y no hará falta que te excuses, no hará falta que te justifiques. Algún día, todo se entenderá, y verás que lo que te pasaba, no era culpa tuya: que éste era el único camino posible, que los juegos rotos son temporales, que no existe la eternidad, el infinito, que nada durará para siempre, ni siquiera yo.
+
 -----
 
 Continuará.
