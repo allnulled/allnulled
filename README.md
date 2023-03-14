@@ -1,14 +1,18 @@
 **Carlos Jimeno Hernández**. Algo hay.
 
-> Nota en 14 de marzo de 2023 a las 11:21am. "Carl OS Gime, No earn, Ande". Sois muy graciosos todos, sí. Que ande, ¿no? Bueno, sois muy listos, está claro. Más que yo. ¿QUÉ PUTA MIERDA QUERÉIS DE MÍ, MALDITOS HDLGP? Es esto, ¿no? Mantenerme jodido, claro.
+Índice rápido:
 
-> Nota en 14 de marzo de 2023 a las 13:46pm. Vaya. Me prestan una bici. Hoy. Si el odio tuviera un superlativo, yo lo llamaría "Dios" en tu honor.
+1. [Introducción](#la-marihuana)
+2. [La marihuana](#la-marihuana)
+3. [La educación](#la-educacion)
+4. [El empleo](#el-empleo)
+
 
 Creo que ha llegado el momento de escribir. Escribir castellano. Castellano normal. Nada de código, nada de programación. Voy a intentar usar el castellano, a ver cuánto duro.
 
 No me creo el mundo. No es real.
 Hay demasiadas incoherencias entre lo que dicen y lo que hacen al final. Desde la política (Estado, Administración Pública), hasta la empresa (Mercado Libre) y los civiles.
-Supongo que queréis la lista de detalles que me hacen caer en la anomia, la cual fallbackea a drogadicción, sea al tabaco, sea a la marihuana.
+Supongo que queréis la lista de detalles que me hacen caer en la anomia, la cual *fallbackea* a drogadicción, sea al tabaco, sea a la marihuana.
 ¿Por qué? Porque el sistema de recompensa mental no se sacia con sus parámetros de "vida laboral". Y el porro, sí. Por muy caro que sea, el porro sí consigue la recompensa, y sus conversaciones no, sus dineros condicionados no, ni siquiera sus consejos de vida, o la escasa información sobre psicología y sobre el cerebro que me han dejado adquirir. Ninguna está ni estará al nivel de un buen cigarro amarihuanado, si la marihuana lo vale.
 Pero vosotros queréis la lista, supongo.
 
@@ -23,7 +27,7 @@ Bueno. Empezaré por mi parte:
             - Pero yo sé por qué lo hacen. Para joderme. A mí. Exclusiva y únicamente a mí. Porque los demás son robots.
             - Luego para hacerme rabiar, dándole más poder a las mafias farmacéuticas, que sí tienen licencia de cultivo masivo de marihuana.
             - Luego para hacerme rabiar más todavía, dándole más poder a las mafias policiales y público-estatales imperantes.
-            - Sectores público y privado (las mafias pública y privada) ganan. El individup pierde.
+            - Sectores público y privado (las mafias pública y privada) ganan. El individuo pierde.
 
 Me voy a detener aquí un momento. Podría hacer una reflexión algo más profunda sobre cómo se sienten los que no están hermanados con las sustancias furtivas, cuando ven a los adictos echarse a perder por no poder obtener la dichosa sustancia en sus dichosas dosis.
 Podría reflexionar sobre la ruindad del cerebro humano haciendo una radiografía de la mente, y de cómo transiciona el orgasmo social cuando ve sucumbir a su prójimo mientras a él la lluvia no le pille.
@@ -94,8 +98,8 @@ Sin embargo, la lista de culpables es mayor:
   - Editoriales de contenidos educativos: Mac Graw Hill, Macmillan, Edelvives, Anaya, Oxford, Paraninfo, Vicens Vives, etc.
   - Otros intermediarios e interesados en el abuso de nicho.
 
-Los colegios, realmente, en esta crítica no entran (caso España). Principalmente, porque no hay apenas analfabetización. Pero sí hay diferencias entre ir a un colegio donde enseñan 3 idiomas y uno que enseñan 1 y gracias, por ejemplo. Hay diferencias, y si éstas se salvan pagando (sea el extra de la privada, sea con academias), entonces la educación seguirá subyugada al elitismo socio-económico. Para mí no, para mí es algo espiritual, sagrado, y lo mejor que puede hacerse con él es compartirlo, aunque nos evoque a la catastrofia incluso (opinión personal, pero sí, mentir es de perdedores, y abusar del poder todavía más).
-Luego entran todos los colectivos prácticamente, porque todos son celosos con el conocimiento, porque todos abusan de la injusticia que se produce en este rincón de la sociedad, donde se escoge la forma en que los individuos son capacitados mentalmente para... tareas avanzadas, a veces también básicas. Cocinar, por ejemplo, no enseñan (luego apelan a los estereotipos sexuales, desde el Gobierno, inventándose ministerios incluso en presunta defensa de ese bien jurídico). Ni cultivar. Ni construirse una casa. Ni siquiera lógica, conectivas lógicas, lenguajes formales o programación, que es el "abc" del funcionar de las cosas.
+Los colegios, realmente, en esta crítica no entran (caso España). Principalmente, porque no hay apenas analfabetización. Pero sí hay diferencias entre ir a un colegio donde enseñan 3 idiomas y uno que enseñan 1 y gracias, por ejemplo. Hay diferencias, y si éstas se salvan pagando (sea el extra de la privada, sea con academias), entonces la educación seguirá subyugada al elitismo socio-económico. Para mí no, para mí es algo espiritual, sagrado, y lo mejor que puede hacerse con él es compartirlo, aunque nos evoque a la catastrofía incluso (opinión personal, pero sí, mentir es de perdedores, y abusar del poder todavía más).
+Luego entran todos los colectivos prácticamente, porque todos son celosos con el conocimiento, porque todos abusan de la injusticia que se produce en este rincón de la sociedad, donde se escoge la forma en que los individuos son capacitados mentalmente para... tareas avanzadas, a veces también básicas. Cocinar, por ejemplo, no enseñan (luego apelan a los estereotipos sexuales, desde el Gobierno, inventándose ministerios incluso en presunta defensa de ese bien jurídico). Ni cultivar. Ni construirse una casa. Ni siquiera lógica, conectivas lógicas, lenguajes formales o programación, que <u style="color:red;background:yellow;border:2px solid black;text-transform:uppercase;text-shadow:0 0 2px #0F0; box-shadow:0 0 4px black;border-radius:4pt;padding:5px;">**la lógica es el "abc" del funcionar de las cosas**</u>.
 La cuestión de la educación es críticamente contradictoria. Y con la aversión hacia este sector social, cae la aversión hacia el sector empresarial, y subsecuentemente, la marginación financiera. Al menos, en mi caso, así ocurre.
 Entidades como Lynda, Udemy, Pluralsight, Coursera, TreeHouse, Skillshare, Udacity, Khan Academy, Codeacademy, edX, etc. son la nueva forma de elitismo educativo: el e-learning de pago.
 El conocimiento cuesta tanto dinero. Es de lo más poderoso que hay.
@@ -164,7 +168,7 @@ Aunque a menudo lo pienso más allá, y creo que no hay nada dentro vuestro, que
 Y eso que todavía no he empezado la matanza, una que me estáis pidiendo a gritos (silenciosos, y silenciadores, pero a gritos, y desde hace mucho tiempo).
 La verdad es que veo tantas razones para hacerla, como para no hacerla.
 Al final, me han aislado en una tierra de robots, ¿qué esperan... que algún día les perdone?
-¿Que me pudra toda la eternidad hasta que salga en plan friendly?
+¿Que me pudra toda la eternidad hasta que salga en plan *friendly*?
 No sé quiénes sois, y me dais mucha rabia sin siquiera haberos visto nunca.
 Y desde aquí se siente que la justicia divina nunca llegará a resonar en vuestros lagrimales, que habéis aprendido a burlarla, y que realmente le habéis hecho creer que merezco estar aquí, secuestrado, y vosotros ahí, mirando con condescendencia cómo vosotros mismos me lleváis a la putrefacción, de forma reiterada, a través de las vidas y su borrado de memoria consecuente.
 
@@ -185,13 +189,45 @@ Sin embargo, y si recapitulamos: el presidente es un puto robot también. No sie
 
 Es, verdaderamente, el infierno, y todas las salidas están bañadas por la lava, difícil no quemarse.
 
+-----
 
+Notas arbitrarias:
 
+> Nota del 14 de marzo de 2023 a las 11:21am. "Carl OS Gime, No earn, Ande". Sois muy graciosos todos, sí. Que ande, ¿no? Bueno, sois muy listos, está claro. Más que yo. ¿QUÉ PUTA MIERDA QUERÉIS DE MÍ, MALDITOS HDLGP? Es esto, ¿no? Mantenerme jodido, claro.
 
-
-
+> Nota del 14 de marzo de 2023 a las 13:46pm. Vaya. Me prestan una bici. Hoy. Si el odio tuviera un superlativo, yo lo llamaría "Dios" en tu honor.
 
 -----
+
+En tanto que al empleo, también podría hablar de los mercados de divisas, y de cómo una jornada laboral humana puede valer cosas tan diferentes solo por estar localizado en una u otra región. No es economía, es esclavitud. Quizá más adelante.
+
+También de que me sale odiar a la gente que se ha acostumbrado a tener una jornada laboral, que veo con cierto desprecio a la gente que se ha adaptado al mercado laboral, y con algo más a los que han conseguido hacerse con su propio séquito. Luego, a veces, pienso en cómo sería esa vida robótica. Y pienso que a ver cómo se porta la siguiente vida conmigo... que ésta no sirve, para nada, ni de buenas (seguir la línea, esforzarse, trabajar duro, demostrar, colaborar con la sociedad, vaya), ni de malas (degollar políticos). Ningún final me agrada. Yo plantaría adormideras, supongo, y buscaría la analgesia perpetua. Y no es que haya probado la heroína, ni la morfina. Es, simplemente, que si esa es la más fuerte, pues esa. No quiero sentir perteneceros.
+
+-----
+
+Quiero añadir algo en la introducción. Pero quiero mantener la introducción que dejé sin ensuciar, así que voy a poner aquí la añadidura.
+
+La mayor parte de estas reflexiones lleva mucho tiempo gestándose, y todavía siguen tomando progresión. Menciono esto porque... durante mucho tiempo, y aún todavía, me ha costado y cuesta poner por palabras lo que tengo dentro (sobre la sociedad Estado-Mercado Libre y sobre mi vida laboral y financiera). No es sólo porque son cuestiones enormes que querría abarcar de forma cabal, no es ése el principal motivo.
+
+El motivo principal es que vas a ver que empiezan a salir palabras feas, insultos... rabia, y mucha. Entonces cojo y me voy. Porque no lo aguanto muchas veces. Y ver que con el tiempo, nada cambia, lo importante no cambia, y todos siguen sus vidas y no son destruidos emocional y psicológicamente como yo... a veces cuesta de encajar. (Toma, claro: son putos robots programados para destruirte, es una carrera evocada al fracaso, yo lo sé, son mejores en todo, excepto en sentir, parece).
+
+También se puede apreciar que, mientras me gustaría dar una crítica objetiva, seria y lo más formal posible (dentro del lenguaje natural), empezaré a hablar de mí, de creencias que nada importan y que no busco que compartan conmigo, ni siquiera que entiendan en el fondo (he aceptado que vivo en un safari, lo que no acepto es que me traten como un animal más). Nunca he hecho cambiar a nadie de opinión aún moviéndome por la pura lógica y matemática y sin dejar de apelar a la empatía (una en la que, cada día, creo menos que pueda existir). Un escrito en lenguaje natural, es para mí. Si quisiera crédito, lo escribiría en lenguaje de programación directamente. Lo comparto aquí porque ya me da igual que no me den empleo, que nunca esté a la altura, o que no tenga la suficiente paciencia para guantar todo esto mientras "guardo las formas". Me importa una mierda. Ayer hice un esfuerzo, para que me entiendas. Pero hoy no, no quiero que cambies de opinión, este documento habla de por qué tengo razón, más que de cómo puedo hacértelo entender: la segunda parte no está más en mis manos, yo os he entregado todo lo que tenía dentro casi, e intenté ensuciar lo menos posible. Pero, como digo, seguirá saliendo esa faceta caótica, apresurada y convaleciente que eclipsará siempre a mi yo más formal, conciliador y crediticio. Siempre. Nunca he podido controlarla lo suficiente. Y por eso, con 32 años, ni encuentro, ni me dan trabajo. Y con tantos rechazos, ya os digo, que es más fácil que cometa una locura contra los políticos o patronal, que adaptarme a este... pues eso, a este safari junglesco.
+
+Quería corregir una expresión de la introducción también, pues es importante. Donde dije que "el mundo no es real", quería decir que el mundo tal como se percibe no es **verdadero**. Real está claro que sí es: el fuego quema, el agua moja, y la piedra hace pupa. Y esta realidad explica cosas. Y una de esas cosas que explica, una muy importante, es la siguiente: que hay personas, que son como yo, y que sienten por dentro y todo eso. Esa parte es, concretamente, la que considero más falsa. Y de ahí, se derivan varias:
+
+  - La teoría de las élites acaba sucumbiendo a la teoría del solipsismo. No hay élites, no hay plebe: sólo es la contraparte del Tao, jodiéndome con treguas y descansos. Y te juro que no es religión: el Yin-Yang simplemente representa el YO y el MUNDO, de toda la religión me quedo con el dibujo y la primera frase del libro. Todo empieza con un: "¡Hola, mundo!". Y hablar con los avatares, pues ya ves, que no sirve. Hablo con el mundo, que tampoco sirve, pero al menos no tengo que lidiar con el **engaño social**, político y económico.
+  - Pues eso, precisamente: los engaños social, político, económico y a saber cuán más allá irá.
+
+No me sale aportar mucho más hoy, la verdad.
+
+Sé que suena rudo lo de "esto es para explicar por qué tengo razón, no para hacértelo entender". Bueno. Hasta una hormiga, por pequeña que sea, tiene su versión de los hechos, y si es sincera, es válida.
+
+
+
+
+
+
+----
 
 Continuará.
 
