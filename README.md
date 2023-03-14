@@ -228,9 +228,17 @@ Y dudo que ese gilipollas tenga sentido del humor. No tal y como yo lo entiendo,
 
 Por esto, quiero que me den mi comida, mis porros, y mi espacio, y me dejen putotranquilo pensar cómo sacar de la mierda de dinámica esclavista a los que vienen: porque los que están, es que ya están adaptados, a estos les da igual que el mundo vaya conduciendo de culo, mientras a ellos no les toque la mierda.
 
-
-
 ----
+
+Creía que podría contener mi rabia y frustración. Pero se ha agravado mucho a través de los años. Y eso que no enciendo la televisión, que no me dejo provocar directamente por las élites en mi propio espacio (bueno, "mi", ya saben, vivo de prestado, no genero dinero).
+
+El problema es que ya no son las élites. Bueno, sí son las élites. El problema es que como semihomeless, prácticamente cualquiera parece élite. Y no porque tengan poder sobre la masa: es por su actitud elitista despreciable y arrogante, la cual comprendo que es inyectada por varias vías:
+
+  - Media: medios de comunicación masivos, redes sociales, prensa...
+  - Cultura y tradición: confunden oligarquía con democracia, el elitismo ha incidido hasta en su vocabulario base. Y yo me salvo porque fui un oportunista en su momento y pude entrar unos años en la universidad a estudiar Filosofía, de la cual apenas me acuerdo, mucho más uso lo que pude sacar yo por mí mismo leyendo a otros, que lo que pude sacar de ellos directamente, es decir, poco de lo que escribo aquí tiene que ver con lo que aprendí en ese nicho de estudio, y ningún significado hay que no puedas averiguar con una búsqueda rápida en Wikipedia. No sé con quién hablo, aquí solo estamos dos, ¿verdad? Párame cuando quieras, eso ya lo sabes.
+  - Sociedad: desde niños, hay una autoridad. Pues... se quedan en niños. Por eso pueden ver la tele y no volverse locos. Supongo. De otras, yo no me lo explico ya. Encender la tele es recibir insultos. Es... visualizar la emisión de un delirio de grandeza, uno continuado por gente que trabaja 1 mes por, literalmente, dos papeles que no saben de dónde salen, ni de dónde pueden salir. De verdad, no vivimos en el mismo plano de la realidad.
+
+-----
 
 Continuará.
 
