@@ -222,8 +222,11 @@ No me sale aportar mucho más hoy, la verdad.
 
 Sé que suena rudo lo de "esto es para explicar por qué tengo razón, no para hacértelo entender". Bueno. Hasta una hormiga, por pequeña que sea, tiene su versión de los hechos, y si es sincera, es válida.
 
+Y no, no es que odie a los currantes, ni a los empresarios. Es que desde aquí parece que os burléis de mí: me criticáis por no trabajar (me gustaría verte a ti aquí en mi piel), pero cuando os intento explicar por qué mi cabeza se rebela contra el status quo de forma automática, ahí os calláis la puta boca porque me dejaréis solo siempre. Desde aquí, se os ve como DIOS riéndose de mí.
 
+Y dudo que ese gilipollas tenga sentido del humor. No tal y como yo lo entiendo, eso para mí es sadismo, no humor.
 
+Por esto, quiero que me den mi comida, mis porros, y mi espacio, y me dejen putotranquilo pensar cómo sacar de la mierda de dinámica esclavista a los que vienen: porque los que están, es que ya están adaptados, a estos les da igual que el mundo vaya conduciendo de culo, mientras a ellos no les toque la mierda.
 
 
 
