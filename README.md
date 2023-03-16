@@ -2,15 +2,15 @@
 
 Índice rápido:
 
-1. [Introducción](#la-marihuana)
-2. [La marihuana](#la-marihuana)
-3. [La educación](#la-educacion)
-4. [El empleo](#el-empleo)
-5. [La ley](#la-ley)
-  5.1. [La democracia](#la-democracia)
-  5.2. [La constitución](#la-constitucion)
-  5.3. [Los partidos](#los-partidos)
-  5.4. [La bipolaridad ideológica](#la-bipolaridad-ideologica)
+- [Introducción](#la-marihuana)
+- [La marihuana](#la-marihuana)
+- [La educación](#la-educacion)
+- [El empleo](#el-empleo)
+- [La ley](#la-ley)
+  - [La democracia](#la-democracia)
+  - [La constitución](#la-constitucion)
+  - [Los partidos](#los-partidos)
+  - [La bipolaridad ideológica](#la-bipolaridad-ideologica)
 
 
 Creo que ha llegado el momento de escribir. Escribir castellano. Castellano normal. Nada de código, nada de programación. Voy a intentar usar el castellano, a ver cuánto duro.
