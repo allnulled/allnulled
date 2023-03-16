@@ -6,6 +6,11 @@
 2. [La marihuana](#la-marihuana)
 3. [La educación](#la-educacion)
 4. [El empleo](#el-empleo)
+5. [La ley](#la-ley)
+  5.1. [La democracia](#la-democracia)
+  5.2. [La constitución](#la-constitucion)
+  5.3. [Los partidos](#los-partidos)
+  5.4. [La bipolaridad ideológica](#la-bipolaridad-ideologica)
 
 
 Creo que ha llegado el momento de escribir. Escribir castellano. Castellano normal. Nada de código, nada de programación. Voy a intentar usar el castellano, a ver cuánto duro.
@@ -247,6 +252,87 @@ Colapso de rabia cuando... no sé. Te hago un diagrama con Mermaid explicando la
 ¿Quieres que te describa la sensación? La sensación de cuando rozo la comprensión de que eres el putodios este, que utiliza las caras y cuerpos ajenos para marearme, y cuando te voy a contar... ¡vaya, qué sorpresa! No lo entiendes. No te interesa. No te importa. No es lo tuyo. Todos sois igual, de verdad.
 
 Prefiero vivir lejos de vosotros. Es muy conflictivo, y creo que digo muchas cosas, pero ésta es muy importante para la gente a la que le pueda interesar como persona, no como programador ni nada de eso: «cuando hablamos, dejas entrever tus formas de pensar elitistas, y no, el tener dinero no te hace (1) ni merecerlo, (b) ni mejor». Pero no te lo voy a robar. Simplemente, seguiré en un rincón de la existencia, repitiéndome como niño autista que nada de esto es real, que algo interrumpirá esta pesadilla pronto, y que el mundo era un teatrillo y las personas estaban, realmente, vacias por dentro. Que todo era una prueba. Que estaba en un juego que salió mal. Que no me espera una condena eterna iterando vidas de mierda como ésta, una, y otra, y otra vez. No, no, no, no, no, no, no... algún día pasará todo. Y no hará falta que te excuses, no hará falta que te justifiques. Algún día, todo se entenderá, y verás que lo que te pasaba, no era culpa tuya: que éste era el único camino posible, que los juegos rotos son temporales, que no existe la eternidad, el infinito, que nada durará para siempre, ni siquiera yo.
+
+-----
+
+### LA LEY
+
+El corazón de Babilonia. Algo que en principio, debería ser una fuente de soluciones, de tranquilidad.
+
+No hay una ley que diga cuánta comida merece una persona sin recursos. La comida, a los pobres, nos la dan ONGs, como Cáritas, o Cruz Roja: no el Estado, no Servicios Sociales, sino ONGs (Organizaciones NO GUBERNAMENTALES). Servicios Sociales ha jugado conmigo y la comida. Abusan de la incertidumbre. Algunos funcionarios, realmente, se merecen un degüello rápido e indoloro. Pero, en su defensa, ellos profesan: "las órdenes vienen de arriba". Son basura, los embajadores de la pobreza. Te hacen creer que te salvan porque les caes bien o algo así. No entienden: *es que si no me salvas, me matas, y si me vas a matar, te mato yo antes*.
+
+Claro que entienden, en realidad. Son putos robots comandados en remoto. No me creo que nadie sea tan imbécil para no comprender las palabras: incertidumbre, hambre y miedo. Tampoco la de desesperación. Te provocan. Te provocan, para ver si les haces algo, y el maltrato pueden derivarlo a las cárceles, donde las condiciones de trato serán, imagino, más críticas.
+
+Sé que quieren que continúe esta historia en la cárcel, lo sé. Y sé que están poniendo esfuerzos para ver si cometo un delito suficiente, y así poder llamarme criminal, y traspasarme la carga social y mental del crimen.
+
+Y no te voy a engañar: no mato a nadie, porque mataría a tantos, que colapso en la decisión de a cuál. Pero mi mente vuelve todo el tiempo al mismo punto: quiero porros, necesito THC, y no tengo dinero, y aunque lo tuviera, me lo fundiría rápido dado el precio. No tengo que demostrar mi historial delictivo, pero entrar en RTVE a romper cables el día de mi 30 cumpleaños fue el único regalo que me hizo el mundo para la treintena. Lo otro es una multa por conducir fumado un sábado noche del trabajo del Burguer King a casa. Y delitos cometidos... nada. Verbalidades. Decirle a la gente lo que pienso. Pero ninguno fue más allá. Ni siquiera por robo se me puede culpar, porque no robo, no mato. Pero un apunte: cada día hay voces que me dicen que debería matar. No robar, porque no siento que ir haciendo eso solucione nada más que temporalmente. No. Digo matar políticos. Que aunque no solucione nada tampoco, al menos da en la diana del problema: la escoria elitista que decide la suerte nuestra (mía) desde sus comitivas a puerta cerrada en nombre de la democracia. Es decir: no tengo nada especial en contra del supermercado, y considero que robarles comida estaría más que justificado, porque ellos sin comida no se quedarán. Y aún y así, cuando lo he ido a hacer, ha sido antes por un gato que por mí. 2.65€ de comida de gato. Iba a robarla, directamente, la verdad. Pues la cosa, por no ponerme violento contra una segurata (que le podría haber destrozado realmente, si hubiera querido) y una cajera que me viene con un palo (y que le podría haber metido el palo por la cuenca de los ojos si me hubiera dado por ello). Pues la cosa... acaba con 6 policías enviándome, aceptando voluntariamente yo antes, a una evaluación psicológica. Y me terminan dando antidepresivos.
+
+¿La pobreza se cura con antidepresivos? El conductor de la ambulancia, al final, es el que me da 4€ para que alimente al gato. El conductor. La conclusión es simple: hay que matar políticos. Yo no me voy a quedar sin gato por pobre. Y si es así, pues ya está, no hay nada más que hablar. Con nadie. Y, efectivamente, así es: no hay nada más que hablar con nadie. Por eso escribo aquí.
+
+Pero bueno, querría desarrollar un poco más en este apartado. Por eso, he dividido este apartado en varios puntos, donde ahondaré un poco más objetivamente. Esta introducción era un poco más subjetiva, sólo quería apuntar sobre las bases más críticas de la ley y su vínculo con el dinero, esto es: **la aporafobia como un bien jurídico encubierto**. Pero a continuación separaré más los puntos.
+
+#### La democracia
+
+**Democracia**, etimológicamente, es **demo** (pueblo) + **cracia** (poder). Poder del pueblo. ¿A ti te parece que el pueblo tiene el poder de decidir sobre sí?
+
+Una votación. Cada 4 años. Para decidir, no la ley, sino el grupito que quieres que tenga más voz para decidir la ley.
+
+No es una democracia. El concepto correcto es **oligarquía**. Por el simple hecho de que en ningún momento, en ninguno, el pueblo decide qué hacer con la ley. Ni siquiera están obligados, los grupitos, a cumplir con lo que prometieron.
+
+Ellos lo llaman **democracia representativa**. Sí, un dibujo del sol representa al sol. Pero si espero que el dibujo ilumine la habitación y me dé calor, voy listo. Además, que si me representan o no, eso lo digo yo. Pues aunque las votaciones rocen el 50% de participación (casi 1 de cada 2 no vota), la siguen llamando representativa, y los siguen llamando representantes.
+
+La democracia, hace ya más de medio siglo que tenemos internet, debería haber evolucionado a redes sociales donde la gente decida, igual con grupitos pero como opción personal, qué movimientos hacer con la ley. Las personas deciden. Y los grupitos pueden gestionar la delegación del voto en votaciones concretas o, si el votante lo prefiere, en todas las decisiones y preguntas de la democracia y el proceso legislativo. Pero se hacen los tontos, e incluso en los noticiarios de RTVE verás cómo mencionan a las cuentas de Twitter de los políticos. Es decir: las redes sociales existen. Pero no para que hables tú.
+
+¿Y a quién te quejas? ¿A la RAE? ¿Al defensor del pueblo? ¿A los tribunales internacionales? El único país que tiene algo un poco parecido a democracia es Suiza, dicen.
+
+El planeta entero está podrido: esa es la historia de base de este juego maldito, la de un planeta tomado por... bueno, por otros, siempre.
+
+#### La constitución
+
+La Constitución es la primera ley de todas, la base de todas las otras. En España, hay un artículo 47 que dice que todo el mundo tiene derecho a una vivienda digna. Yo he visto homeless en Barcelona, ¿tú no? Durmiendo en la calle, en cajeros, ¿tú no?
+
+Dicen, los entendidos, que el sentido de esa ley es: nadie te impide tener una casa. No te están diciendo que te vayan a cubrir con un techo: te están diciendo, simplemente, que todas las demás leyes deben tener en cuenta que "todos podemos tener una casa". Es decir... ¿hacemos una ley para dejar claro que todo el mundo puede tener un coche? ¿Otra para que se sepa que todo el mundo puede tener ropa en su haber? Y hacemos una ley para que se sepa, que las cosas que se compran, todas, pueden poseerse. ¿Lo hacemos? No. No lo hacemos.
+
+No estoy afinando mucho hoy en mi redacción, siento. Pero sé por qué puntos tengo que pasar, mi mente ha recorrido estos sitios muchas veces ya.
+
+La otra cosa que quería destacar en este apartado sobre la constitución (española, aunque apuesto que es bastante más generalizado) es que los agentes más importantes de ese papel (escritos con mayúscula inicial), son:
+
+  - La **Corona**. Como si siguiéramos en el medievo.
+  - El **Estado**. Y sus subconjuntos (Parlamento, Congreso, Senado, Diputación, Administración Pública...). Los que la redactaron, vaya.
+  - La **Iglesia**. Medievo total.
+  - El **Libre Mercado**. Bueno, los inversores de esta empresa pública, claro.
+
+Entre ellos, se lo dicen todo. Te pregunto.
+
+  - ¿Y el **Individuo**, dónde queda?
+
+Nada. La unidad mínima es la Familia. El Individuo es la UNIDAD MÍNIMA. Pues... no. No aparece. No es el centro.
+
+Y sé por qué lo hacen.
+
+En la teoría de las élites, es, simplemente, para mantener los privilegios y el poder de arriba separado de los de abajo. En la teoría solipsista, es directamente para que me asocie con ellos. Es para que no haya protección, para estar conectado al juego y sus robots. Robots comandados por algo o alguien, y para joderme.
+
+#### Los partidos
+
+Poco que decir. Son organizaciones que protegen el acceso a la representatividad legislativa. ¿Cómo? Bueno. Para escalar, tendrás que hacer amigos. Y los amigos, los irás haciendo a medida que te vayas corrompiendo como ellos quieren, moldeando tu opinión y tu forma de ser para lo que ellos quieren. Y el producto es ese: "representantes" que ya están podridos, sólo ellos pueden subir. Alguien noble y cuerdo no escala esa pirámide, simplemente. Y en las bases de la pirámide, no vales nada prácticamente.
+
+Ni entro. Todos funcionan igual, alguno sí es asambleario, que luego vete a saber en qué se traduce, pero alguno sí hay que deja a las bases votar todo, o al menos eso dicen. Pero bueno, ya con unas ideas base.
+
+Son sectas. Simplemente. Seguro que hay partidos de todo tipo. Pero, los que suben, todos, TODOS, son putas sectas de mierda, y nada más. Y para entrar, ya tienes que tener unas líneas de pensamiento mínimas. Por eso, no sirve ninguno.
+
+Poco más, ya les coges asco con el tiempo de verlos aparecer en televisión y medios. Y si no... bueno, no sé, yo no puedo meterme en las cabezas ajenas. Si es que hay algo ahí, porque si están comandados en remoto, igual no.
+
+#### La bipolaridad ideológica
+
+En este punto, siempre se habla de capitalismo y comunismo como única polaridad en política económica. Y lo cierto es que es un híbrido lo que impera: capitalismo intervencionista.
+
+El capitalismo puro, sería una suerte de anarquía individual, donde el asociacionismo tomaría una forma de tribus piratas mafiosas, donde no hay un Estado que regule nada.
+
+El comunismo puro, dicen, también, en su útima forma es una suerte de anarquía comunal. Pero empieza en forma de dictadura. Del proletariado, sí, pero dictadura.
+
+Pero... ¿y la democracia? ¿Y el escoger todos por igual? Digo la democracia de verdad, no esta oligarquía disfrazada. ¿Dónde queda la democracia en esa bipolaridad? Bueno, es cierto que por «democracia» no se está pronunciando nada sobre política económica. Pero, es que... ¿acaso hay que pronunciarse de antemano en eso? ¿No podemos ir decidiendo, punto por punto? Bueno, pues según ellos, ese momento en la historia ya pasó, ya se decidió. Y se quedó en esto, un híbrido donde los que hablan, son siempre ellos.
+
+El otro punto es... que hablen de izquierda y derecha. Es, de sobras sabido, que aquí la lateralidad es: arriba y abajo. Y tanto en el capitalismo, como en el comunismo, los de arriba son los de arriba, y los de abajo, los de abajo. Por eso, muchas veces, uno piensa en ir y rajarles el puto cuello. Para que sepan, que tan arriba no están.
 
 -----
 
