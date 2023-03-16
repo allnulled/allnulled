@@ -343,3 +343,5 @@ Continuará.
 ### LA SOLUCIÓN
 
 ¿La solución? Es fácil, cuando le has dado tantas vueltas. O los matas a ellos, o te matas tú. Y aunque los mates a ellos, no sirve, porque son putos robots de mierda, el que los comanda está más allá, a ese no le tocas.
+
+Estoy subiendo un MP3 para tener este escrito en voz. El último está aquí: [https://file.io/kxHH5dx7LmNO](https://file.io/kxHH5dx7LmNO)
