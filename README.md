@@ -11,7 +11,9 @@
   - [La constitución](#la-constitucion)
   - [Los partidos](#los-partidos)
   - [La bipolaridad ideológica](#la-bipolaridad-ideologica)
-
+- [Las comunicaciones](#las-comunicaciones)
+- [La tecnología](#la-tecnologia)
+- [La riqueza](#la-riqueza)
 
 Creo que ha llegado el momento de escribir. Escribir castellano. Castellano normal. Nada de código, nada de programación. Voy a intentar usar el castellano, a ver cuánto duro.
 
@@ -333,6 +335,79 @@ El comunismo puro, dicen, también, en su útima forma es una suerte de anarquí
 Pero... ¿y la democracia? ¿Y el escoger todos por igual? Digo la democracia de verdad, no esta oligarquía disfrazada. ¿Dónde queda la democracia en esa bipolaridad? Bueno, es cierto que por «democracia» no se está pronunciando nada sobre política económica. Pero, es que... ¿acaso hay que pronunciarse de antemano en eso? ¿No podemos ir decidiendo, punto por punto? Bueno, pues según ellos, ese momento en la historia ya pasó, ya se decidió. Y se quedó en esto, un híbrido donde los que hablan, son siempre ellos.
 
 El otro punto es... que hablen de izquierda y derecha. Es, de sobras sabido, que aquí la lateralidad es: arriba y abajo. Y tanto en el capitalismo, como en el comunismo, los de arriba son los de arriba, y los de abajo, los de abajo. Por eso, muchas veces, uno piensa en ir y rajarles el puto cuello. Para que sepan, que tan arriba no están.
+
+-----
+
+### LAS COMUNICACIONES
+
+Un tema muy poco tratado, tanto en los medios como en las tertulias de bar, es el de las comunicaciones. No hablo de tener un teléfono, con tus contactos y ya. Tampoco de tener una red de contactos en una red social. Más bien hablaría de la **invisibilización interpersonal**. 
+
+Ya desde antes de lo del Covid, yo tenía este tema cruzado. Pero con el Covid, esto se hizo mucho más significativo. Me voy a intentar explicar.
+
+Cuando todo esto del Covid empezó, se empezaron a anunciar muertes. Ya los años anteriores, se decía que morían unas 15.000 personas en España por la *influenza* o por resfriados y gripes, vaya. Con lo del Covid, esto pasó, si no recuerdo mal, a doblarse: 30.000 muertes en un año. Al margen de que un hospital era, seguramente, el peor sitio donde tratarse este virus, y es imposible calcular cuánto es achacable al entorno hospitalario, y cuánto al efecto propio del virus, afirmaremos que hubo un incremento notable de la mortalidad anual debido al virus, directamente. No es este el problema. El problema es: **¿cómo puede un ciudadano común saber cuánta gente realmente muere en su país?**. Pues la respuesta es la que sigue: **un ciudadano común no puede saber cuánta gente muere en su nación, puesto que no puede saber siquiera cuánta gente vive**. Algunos dirán: *sí que puede, hay un censo, un registro de la vida humana que entra y sale del país*. Sin embargo, yo no figuro en ninguna base de datos pública, junto con el resto. Es decir: que yo esté vivo no es comprobable por un ciudadano anónimo digamos... de Jaén. Como mucho, mi vecino puede picar a la puerta, y ver si estoy. Pero no tenemos una lista de nombres de los que cayeron por Covid, y aunque la tuviéramos, si no teníamos una lista de los que estaban vivos, pues tampoco es muy de fiar.
+
+Las comunicaciones sirven para este tipo de cosas: comunicarnos. Y si ni siquiera nos sirven para comunicarnos **quién vive y quién no**, entonces... no estamos muy comunicados, la verdad.
+
+En otras palabras: yo, en tiempos de Covid, eché en falta una base de datos pública de las personas que viven en España. Me percaté que algunos organismos sí tienen acceso a los supuestos censos. Por ejemplo, la Policía es la que expede los DNIs. Pues no sé si tendrán acceso o no, pero en principio, ellos tienen el permiso de efectuar agunas operaciones en esa base de datos: la de ingresar un nuevo DNI, la de modificar (cuando se renueva) el DNI y la de dar de baja el DNI. Esto significa que, por tanto, el Ministerio de Interior, por lo menos él, sí tiene acceso. Pero el resto, nos tenemos que creer los datos que nos digan ellos y los medios de comunicación. Pero, realmente, que Pepito Palomo de Cáceres ha fallecido, a mí no me dice nada, y sobre todo: no puede decirme nada, porque antes tampoco tenía forma de saber si estaba vivo.
+
+¿Qué quiero decir con esto? Pues que estamos **incomunicados por ley**, que somos invisibles unos de otros, y esto sucede: por ley. ¿Y cuál es el problema? El problema es que no nos podemos ver. Así, no nos podemos organizar, asociar, buscar y encontrar entre nosotros. Por tanto, y más rápidamente dicho: no existimos unos para otros, no existe un **nosotros** como nación. Una forma simple de impersonalizarnos, de hacernos ser nadie.
+
+¿Que cuál es el problema? El problema es que no existe España. Existe el Gobierno de España. Y existe gente que vive en el territorio de España. Pero ni tú ni yo sabemos quiénes somos España, quiénes conformamos el grupo de personas que se etiquetan bajo el nombre de españoles. Por tanto: no existe España para los españoles. Existe España para el Ministerio de Interior, y amigos. Pero para el resto de españoles, España es un conjunto de personas indeterminado que somos unos putos pringados que no se enteran de una mierda. Y así, es más fácil decir en qué consiste ser de España: para el Estado y para los medios de comunicación (incluyendo el RTVE, medio de comunicación del Estado).
+
+Este hecho, llevado a otros temas, desemboca en que: yo no puedo encontrar a gente que le interese este tema, no tengo forma de encontrar a gente que esté buscando las mismas cosas que yo. Claro, puedo buscar por internet, puedo poner anuncios, y todo eso. Pero el Estado no ayuda a que nos encontremos.
+
+Esto parece que no sea un problema. El problema quizá no sea este, sino el hecho de que un solo medio de comunicación (aunque fueran solo 2 tíos: un cámara y un actor) representa más a España que el conjunto de los 47 millones restantes de personas que conforman la población española. Y la influencia de estos dos tíos en la identidad española, um cámara y un actor, es no equivalente sino mayor que los 47 millones restantes de personas. ¿Por qué? Porque los demás no tienen capacidad para comunicarse con el resto, mientras que estos dos tíos, sí. Y ya es eso: no estoy hablando siquiera de una forma de comunicación masiva, de 1 a 47 millones. Ya digo, simplemente, de 1 a otro 1. Puedo comunicarme con el vecino. Pero no con el tipo de Jaén, de Cáceres, de Pontevedra.
+
+Me está costando expresar la importancia de este tema, creo. Pero es simple: no existe España más que en tu imaginación. España, como territorio, puede. Pero España, como masa de personas, no existe más que en la imaginación, para los mundanos, y en las bases de datos, para los organismos que sí tienen acceso a estas bases de datos. Lo demás, es lo que nos digan que tenemos que creer.
+
+Bien. Aclarado que esto podría resolverse con una API REST (si no sabes lo que es y te interesa, lo buscas) levantada en cosa de segundos, y un chat abierto entre nosotros donde podamos crear grupos y comunicarnos entre nosotros, en cosa también de escasos segundos (si tuvieras acceso a la base de datos, claro), paso a analizar y contrastar con las dos teorías.
+
+En la teoría de las élites, esto conlleva a tener una masa dispersa, que no puede organizarse *(o comunicarse entre sí)* de forma efectiva. Esto la hace débil, y maleable a los que ostentan los medios de comunicación que sí son efectivos (canales de televisión principalmente, pero también prensa y redes sociales). Ellos sí pueden comunicarse con el resto. Pero el resto, no con ellos, ni entre sí. Por esto es, que entrar en RTVE a romper cables me parece una idea soberbia, y yo lo hice, yo entré en RTVE a romper cables. ¿Y saben qué encontré? Instalaciones vacías. No había apenas nadie en uno de los edificios, me paseé tranquilamente por todo el estudio, vi los camerinos de "Saber y ganar", entré en salas que no había nada. Y llegué a la sala de cables y servidores parecían. Y yo, pues... aunque sé algo de programación, pues no sé tanto de telecomunicaciones. Así que empecé a romper cables y clavijas. El día de la cabalgata de reyes del 2021. No sé si repercutió en absoluto, porque no enciendo la tele desde hace ya tiempo. Luego llegué a aquella sala, de pantallas, donde estaba aquel tío. Y me acerqué. Y me dijo: *¿qué está pasando, se han caído nosequé?* Y yo le dije: *ya, me lo están comentando, no sé qué ha debido ser*. Y le di a un botón de una regleta de uno de los ordenadores de la sala, disimuladamente. Y me fui. Lo siguiente fue la llamada de la Policía, bastantes meses más tarde, sobreentendiendo que había sido yo. Esto, en la teoría de las élites, es una forma de debilitar dividiendo y desuniendo, pues ya se venía diciendo: divide y vencerás, y la unión hace la fuerza, por tanto la desunión hace la debilidad. Sí, muy bien, vale. Pero... ¿y en la teoría del solipsismo?
+
+En la teoría del solipsismo, el hecho de no poder comunicarse con otros, responde a varias intenciones. La primera: la fortaleza solo puede brotar del individuo, del individualismo puro. La fortaleza última y verdadera no puede depender del equipo, sólo del individuo. La otra es que, efectivamente, aquí no hay ni plebe ni élite, aquí solo está el **yo** y el **mundo**. Y en el mundo, se empaquetan todos los demás. Vamos: que no te engañes buscando en los demás, porque los demás son todos lo mismo: mundo. El yo es el yo. Y es el importante, el mundo se puede ir por el sumidero.
+
+¿Tanto importa? Bueno. Te hacen creer que perteneces a un colectivo, España. Y en realidad, perteneces a otro: los parguelas fácilmente manejables. Pero, en última instancia, y en la teoría del solipsismo, lo puedes ver en forma positiva: no busques en los demás. Lo dice alguien que ha efectuado investigaciones en redes sociales como Quora o Twitter para buscar gente mediante scripts de JavaScript (la tecnología de la web). Y no sirve de putonada: en Quora hay mucha gente pero que no se puede ver por los algoritmos de ordenación de la plataforma (y dudo que sean reales), y en Twitter, sólo hay ruido. Si hubiera alguien, echaría en falta esto. Y quién sabe, igual hay alguien más, perdido en la multitud de nombres. Pero no vi a nadie suficientemente despierto como para reivindicar la visibilidad en las comunicaciones. Así que bueno, punto y aparte.
+
+En cuanto al resto de formas de telecomunicación, ocurre prácticamente lo mismo. En Facebook, Twitter, Instagram, TikTok... las arquitecturas de estas plataformas te permiten ver a tus vecinos, y a través de los algoritmos de ordenación del servidor. El servidor sería como... el canal de televisión: el árbitro que te dice qué son los otros, qué dicen los otros. Esto me recuerda a mi despedida de Facebook: puse un post donde hablaba del intercambio de material bélico entre España y otros del eje europeo y americano, con Arabia Saudí y Qatar, paises pivote que transfirieron material bélico al DAESH/ISIS. Y no me veía nadie, o nadie decía nada. Y me emparanoié, porque no sabía si era que la gente tenía miedo (como yo, aunque no por eso iba a dejar de denunciarlo), que no les importaba una mierda, o que Facebook me estaba invisibilizando por tocar temas tabú. Y decidí salirme de ese estercolero. Y no volví a entrar en redes sociales de gente conocida. Solo de gente que no conocía. Y no sirve de nada tampoco, seguramente sirve de menos. Pero bueno, tuve que hacer mis investigaciones.
+
+En resumen, las comunicaciones no son limpias, desde la teoría de las élites. Pero desde la teoría del solipsismo, se puede agradecer que el engaño no escale. Porque si todos son robots, se agradece que no me hagan pensar más que son personas, la verdad: soy muy crédulo yo con las caritas de semisimio.
+
+### LA TECNOLOGÍA
+
+En cuanto a la tecnología, intentaré ser breve, aunque no sé cómo saldrá.
+
+La tecnología es el tema central de la existencia. Un cuerpo humano es tecnología. De hecho, se supone, es de la última tecnología. Y no hablemos del cerebro, que es la máxima obra del universo. Pero dejando este estadio para después, me centraré en las otras tecnologías, las que el ser humano es propietario.
+
+En esto, ya he dejado un escrito aparte donde profundizo mucho más. Está aquí: [https://allnulled.github.io/economics-framework/Macroeconomia.html](https://allnulled.github.io/economics-framework/Macroeconomia.html). En él hablo sobre economía, y sobre tecnología, y la relación entre ambas.
+
+Hoy estoy cansado, quizá más adelante complete este apartado.
+
+Brevemente, explicaría que la tecnología es un salto cualitativo (y no cuantitativo) en la riqueza de una comunidad. Si hoy se inventara la magia. Y gracias a ella, pudiéramos tener, cada uno y sin la ayuda de nadie más, comida al momento... ¿cuánto valdría? Pues lo que se ha venido dando hasta ahora, serían pequeños pasos hacia la magia. Por ejemplo... ¿qué tanta ventaja tendría un primitivo, si le enseñaras a usar un mechero? Cambiarías la historia totalmente. ¿Qué valor económico tendría eso, el darle el poder de imponerse tecnológicamente a uno, en lugar de a otro? No es computable. Borras del mapa al que se suponía tenía que trascender, y a toda su estirpe. Y le das ese poder a otro. ¿Cuánto vale eso? Pues lo que viene ocurriendo con la tecnología, es algo no parecido, sino exactamente así.
+
+No sé cuál es el hallazgo tecnológico más importante. Pero sé que es muy cómodo abrir el grifo, y obtener agua potable. También dar a un interruptor, e iluminar la sala. También enviar un mensaje personal a Australia y en cuestión de segundos obtener un *feedback*. Y también poder utilizar la lógica de forma automática con un ordenador. Y también tener comida fresca que dure meses, incluso años. Y también poder hacer click y tener un pequeño fuego controlado. Tecnologías. Nos ahorran mucho esfuerzo, tiempo, quebraderos de cabeza. Pero, al final, todo eso, ¿en qué queda si le decimos a un tío que no tiene "dinero" que debe dormir en la calle, a la intemperie? Mientras tenemos edificios vacíos. ¿Saben en qué queda? Para mí, queda en que la tecnología "cerebro" no se está actualizando al mismo ritmo que el resto de tecnologías. Y por eso hice NaturalScript, primero, y después Castelog. Porque me preocupaba mucho que la tecnología cerebro se esté quedando tan obsoleta. Y sí, sí: totalmente obsoleta. Yo, personalmente, prefiero fumar porros, que trabajar para esta forma de organización. Porque todo el esfuerzo se lo están llevando los propietarios. Hoy he leído una expresión bella, que no la había leído. Y estaba escrito en 2014 (estamos a 2023). Y hablaba sobre la industria farmacéutica (2014 es mucho antes del Covid). Dice así, y dejo la [referencia](https://elclarin.cl/archivo/2014/11/07/ebola-y-negocios-pablo-escobar-es-un-nino-de-pecho-al-lado-de-la-industria-farmaceutica):
+
+> En el acelerado proceso de concentración monopólica que vive el mundo, se destaca la industria farmacéutica, pequeño grupo de compañías trasnacionales ultra concentrado, que actúa como cartel, presiona a Gobiernos, controla medios de comunicación y atemoriza a la humanidad. Las denuncias de John Le Carré, ex agente británico, en su novela El Jardinero Fiel, crispan la piel, más aún cuando en su Epílogo afirma: “esto es pura ficción, la realidad es infinitamente peor”.
+
+**Acelerado proceso de concentración monopólica que vive el mundo**. Me encantó leer esa expresión. Y qué gran acierto, hablando de las industrias farmacéuticas (las que sí pueden cultivar hierba masivamente con licencia). Si las cabezas funcionaran mejor... Si la tecnología cerebro se hubiera actualizado...
+
+La lectura en teoría de élites, es simple: concentración monopólica. Los estratos propietarios están concentrando no solo riqueza económica, sino también tecnológica.
+
+La lectura en teoría solipsista, es más complicada. Porque yo soy tecnología. De hecho, en esta teoría, yo sería la tecnología de la esperanza. Y este escrito sería una de las muestras de esperanza más grandes que da de sí esta tecnología: el testimonio de que estoy despierto, de que veo lo que ocurre, de que me doy cuenta de que estoy siendo engañado. Por lo cual, este apartado quedaría abierto a lo que se viene escribiendo y sucediendo en mí.
+
+Y por hoy, lo dejaré aquí.
+
+### LA RIQUEZA
+
+En este apartado, y por ahora, no voy a agregar nada, más que el hecho de que 8 tipos concentren la mitad de la riqueza mundial, es suficiente para dejar de trabajar, y empezar a pensar qué cuernos es este planeta de semisimios.
+
+Ya está por hoy.
+
+
+
+
+
+
+
 
 -----
 
