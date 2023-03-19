@@ -398,6 +398,8 @@ La lectura en teoría de élites, es simple: concentración monopólica. Los est
 
 La lectura en teoría solipsista, es más complicada. Porque yo soy tecnología. De hecho, en esta teoría, yo sería la tecnología de la esperanza. Y este escrito sería una de las muestras de esperanza más grandes que da de sí esta tecnología: el testimonio de que estoy despierto, de que veo lo que ocurre, de que me doy cuenta de que estoy siendo engañado. Por lo cual, este apartado quedaría abierto a lo que se viene escribiendo y sucediendo en mí. Pero no, no es tan maja esta tecnología del cerebro. Se vuelve en mi contra también. De hecho, a veces pienso que es el puerto de explotación, que me están vulnerando a través de él. Sí, a menudo. Sí, es algo que va conmigo. Bueno, soy sincero, oye. Quiero decir... sé que miran mal por admitir cosas así. Pero es lo que siento a menudo. No digo para mal, a veces me río, y me da pistas. Pero sí, también para mal, porque me confunde, me complica, y me hace sufrir, y por eso quiero hierba, para que no me haga sufrir.
 
+Pero es eso. El mundo. Y el cerebro es del mundo. Y la hierba también. Y el dinero. Y las caritas. Y la comida.
+
 Y por hoy, lo dejaré aquí.
 
 ### LA RIQUEZA
