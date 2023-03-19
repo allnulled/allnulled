@@ -396,7 +396,7 @@ Hoy he leído una expresión bella, que no la había leído. Y estaba escrito en
 
 La lectura en teoría de élites, es simple: concentración monopólica. Los estratos propietarios están concentrando no solo riqueza económica, sino también tecnológica.
 
-La lectura en teoría solipsista, es más complicada. Porque yo soy tecnología. De hecho, en esta teoría, yo sería la tecnología de la esperanza. Y este escrito sería una de las muestras de esperanza más grandes que da de sí esta tecnología: el testimonio de que estoy despierto, de que veo lo que ocurre, de que me doy cuenta de que estoy siendo engañado. Por lo cual, este apartado quedaría abierto a lo que se viene escribiendo y sucediendo en mí.
+La lectura en teoría solipsista, es más complicada. Porque yo soy tecnología. De hecho, en esta teoría, yo sería la tecnología de la esperanza. Y este escrito sería una de las muestras de esperanza más grandes que da de sí esta tecnología: el testimonio de que estoy despierto, de que veo lo que ocurre, de que me doy cuenta de que estoy siendo engañado. Por lo cual, este apartado quedaría abierto a lo que se viene escribiendo y sucediendo en mí. Pero no, no es tan maja esta tecnología del cerebro. Se vuelve en mi contra también.
 
 Y por hoy, lo dejaré aquí.
 
