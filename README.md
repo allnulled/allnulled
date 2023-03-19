@@ -408,7 +408,31 @@ En este apartado, y por ahora, no voy a agregar nada, más que el hecho de que 8
 
 Ya está por hoy.
 
+### LA MORAL
 
+La ética da forma a las cosas. La ética de un gato (o su bien y su mal) es diferente a la de un pez. El gato ve unas formas, y se ve de una forma. El pez ve otras formas, y se ve de otra. ¿Por qué? Porque la ética da forma a las cosas.
+
+Y al final, es la función de cada objeto. La ética de ese objeto es su función. Y la vida, una obra de teatro. Donde cada uno hace su función.
+
+Bienestar, malestar. Placer, dolor, y todos sus matices. Pistas de la ética. Luego, esas funciones se mezclan con el lío de la función teatral con sus leyes naturales, y ahí cada uno saca sus conclusiones. CAOS.
+
+D.I.O.S. Dependecy Injection Operative System. El sistema operativo de inyección de dependencias. Éste define las dependencias del gato, la ética del gato. Le da forma al gato. Define el gato. La dependencia representa la relación de necesidad lógica, representa la unidad mínima de significado. Una cosa se define por las cosas que **necesita** reunir para **ser** tal cosa. D.I.O.S. es eso.
+
+Pues... la moral es algo que imparten los políticos y medios de comunicación, hoy en día. Minoritariamente, curas y otros jefes de secta menor.
+
+Y además, existe el [deep fake](https://es.wikipedia.org/wiki/Deepfake).
+
+Y además, existe el [deep fake](https://es.wikipedia.org/wiki/Deepfake).
+
+Y además, existe el [deep fake](https://es.wikipedia.org/wiki/Deepfake).
+
+Y además, existe el [deep fake](https://es.wikipedia.org/wiki/Deepfake).
+
+Y además, existe el [deep fake](https://es.wikipedia.org/wiki/Deepfake).
+
+Y además, existe el [deep fake](https://es.wikipedia.org/wiki/Deepfake).
+
+Y a saber cuánto más estarán manejando. A saber si no soy una API REST.
 
 
 
