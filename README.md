@@ -439,7 +439,7 @@ Es difícil. La moral. Mi máxima teórica más destacable a lo largo del tiempo
 
 Si la función está bien hecha, claro. Que nunca lo está. Siempre es una aproximación, en la programación. En la realidad, no. En la realidad, es otra cosa: es lo único que ocurre. La teoría son todos los hipotéticos que la rodean. Como esto, es una aproximación solamente. En la realidad, es el de verdad. Bueno, y ¿qué importa todo esto? Pues nada. Que intento verbalizar la moral. Soy un ser racional.
 
-En fin. Que paz a todos. Pero, destacaría: si existe el deep fake, a saber cuánto más pueden estar manejando.
+En fin. Que paz a todos. Pero, destacaría: si existe el deep fake, a saber cuánto más pueden estar manejando. Digo, no los humanos. Los suprahumanos, digamos, no extraterrestres, quizá son humanos de una realidad externa que tienen todas las APIs de nosotros. Quizá es la contraparte del Tao siempre. Quién sabe.
 
 
 
