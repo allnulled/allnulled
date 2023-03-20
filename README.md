@@ -445,7 +445,7 @@ En fin. Que paz a todos. Pero, destacaría: si existe el deep fake, a saber cuá
 
 -----
 
-Continuará.
+Creo que ya no continuará. Supongo que lo borraré en breves.
 
 -----
 
