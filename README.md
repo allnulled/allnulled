@@ -418,24 +418,27 @@ Bienestar, malestar. Placer, dolor, y todos sus matices. Pistas de la ética. Lu
 
 D.I.O.S. Dependecy Injection Operative System. El sistema operativo de inyección de dependencias. Éste define las dependencias del gato, la ética del gato. Le da forma al gato. Define el gato. La dependencia representa la relación de necesidad lógica, representa la unidad mínima de significado. Una cosa se define por las cosas que **necesita** reunir para **ser** tal cosa. D.I.O.S. es eso.
 
-Pues... la moral es algo que imparten los políticos y medios de comunicación, hoy en día. Minoritariamente, curas y otros jefes de secta menor.
+Pues... la moral es algo que imparten los políticos y medios de comunicación, hoy en día. Bueno, no. Hay muchas más fuentes de discriminación moral. Y nosotros nos influenciamos mutuamente relativamente. Los feral child imitan a su especie anfitrión.
 
-Y además, existe el [deep fake](https://es.wikipedia.org/wiki/Deepfake).
+Pero además... además existe el [deep fake](https://es.wikipedia.org/wiki/Deepfake).
 
-Y además, existe el [deep fake](https://es.wikipedia.org/wiki/Deepfake).
+Y a saber cuánta más tecnología estarán manejando. A saber si no soy una API REST. Aix.
 
-Y además, existe el [deep fake](https://es.wikipedia.org/wiki/Deepfake).
+¿Qué significa, que no hay moral? Pues hay pistas. Y lío de leyes de mecánica natural. Y claro. Todos buscamos algo, el objetivo. Al igual que siempre que escribes una función, tienes una intención, de transformar los datos, de hacer cambios en el estado de las cosas. Pues del mismo modo, las personas, en cada momento, buscan algo. Y la ética eso, la intención de esa función, el para qué sirve esa función. Y puede ser cambiante, obvio, igual que una función puede condicionalmente llamar a una u otra función.
 
-Y además, existe el [deep fake](https://es.wikipedia.org/wiki/Deepfake).
+En la teoría de las élites, el tema de la moral... es como un mecanismo de manejo de masas que opera en cuestiones poco inmediatas o prácticas o sinceras o etc.
 
-Y además, existe el [deep fake](https://es.wikipedia.org/wiki/Deepfake).
+En la teoría del solipsismo, el tema de la moral es un mecanismo... de aversión mental. La moral sirve para alejar la mente de... determinados objetos u objetivos, intenciones, éticas. Puede tener un sentido integrándose con las leyes naturales, o no. Eso, como decía, según cada uno.
 
-Y además, existe el [deep fake](https://es.wikipedia.org/wiki/Deepfake).
+Ahora bien. ¿Qué es el bien, y qué es el mal? Pues somos memoria. Según te permita recordar. No puedo computar todo, la conciencia son unos registros de memoria determinados, y no demasiados. Yo soy consciente de pocas cosas en un momento determinado en el tiempo. De muy pocas, más allá, no me da la capacidad de retener tantos datos en una misma estructura. No me da la memoria inmediata, la capacidad de sentir el ahora, y las entradas de datos de la contraparte del Tao, en el otro lado de esta comunicación: la realidad, quizás D.I.O.S. o quizás alguien detrás de D.I.O.S.
 
-Y a saber cuánto más estarán manejando. A saber si no soy una API REST.
+Es difícil. La moral. Mi máxima teórica más destacable a lo largo del tiempo, diría, sería: el mejor sentir para la máxima gente durante el máximo tiempo. Pero eso es difícil de concretar, claro. Y más en un mundo convulso y acelerado como éste. Así que buscaba la verdad de las cosas. Y la moral es algo que viene muy pervertido por la influencia social. Pero también puede ser un cálculo matemático y lógico.
 
+> La moral y la ética son, en programación, el contenido de la función, a fin de cuentas.
 
+Si la función está bien hecha, claro. Que nunca lo está. Siempre es una aproximación, en la programación. En la realidad, no. En la realidad, es otra cosa: es lo único que ocurre. La teoría son todos los hipotéticos que la rodean. Como esto, es una aproximación solamente. En la realidad, es el de verdad. Bueno, y ¿qué importa todo esto? Pues nada. Que intento verbalizar la moral. Soy un ser racional.
 
+En fin. Que paz a todos. Pero, destacaría: si existe el deep fake, a saber cuánto más pueden estar manejando.
 
 
 
