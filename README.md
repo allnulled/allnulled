@@ -415,9 +415,9 @@ La ética da forma a las cosas. La ética de un gato (o su bien y su mal) es dif
 
 Y al final, es la función de cada objeto. La ética de ese objeto es su función. Y la vida, una obra de teatro. Donde cada uno hace su función.
 
-Bienestar, malestar. Placer, dolor, y todos sus matices. Pistas de la ética. Luego, esas funciones se mezclan con el lío de la función teatral con sus leyes naturales, y ahí cada uno saca sus conclusiones. CAOS.
+Bienestar, malestar. Placer, dolor, y todos sus matices. Pistas de la ética. Luego, esas funciones se mezclan con el lío de la función teatral con sus leyes naturales, y ahí cada uno saca sus conclusiones. Caos.
 
-D.I.O.S. Dependecy Injection Operative System. El sistema operativo de inyección de dependencias. Éste define las dependencias del gato, la ética del gato. Le da forma al gato. Define el gato. La dependencia representa la relación de necesidad lógica, representa la unidad mínima de significado. Una cosa se define por las cosas que **necesita** reunir para **ser** tal cosa. D.I.O.S. es eso.
+D.I.O.S. Dependecy Injection Operative System. El sistema operativo de inyección de dependencias. Éste define las dependencias del gato, la ética del gato. Le da forma al gato. Define el gato. La dependencia representa la relación de necesidad lógica, representa la unidad mínima de significado. Una cosa se define por las cosas que **necesita** reunir para **ser** tal cosa. D.I.O.S. es el que define cosas.
 
 Pues... la moral es algo que imparten los políticos y medios de comunicación, hoy en día. Bueno, no. Hay muchas más fuentes de discriminación moral. Y nosotros nos influenciamos mutuamente relativamente. Los feral child imitan a su especie anfitrión.
 
