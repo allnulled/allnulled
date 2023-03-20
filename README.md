@@ -442,6 +442,9 @@ Si la función está bien hecha, claro. Que nunca lo está. Siempre es una aprox
 En fin. Que paz a todos. Pero, destacaría: si existe el deep fake, a saber cuánto más pueden estar manejando. Digo, no los humanos. Los suprahumanos, digamos, no extraterrestres, quizá son humanos de una realidad externa que tienen todas las APIs de nosotros. Quizá es la contraparte del Tao siempre. Quién sabe.
 
 
+Para mí la moral es algo muy serio. Pero el mundo ya se ha reído de mí suficiente. Defino lo más básico. Profundizar, no sirve de gran cosa. Es un mundo engañoso. Dicen muchas cosas por las cuales no darán porqués. Y luego están los límites entre lo humano y lo natural.
+
+Es un tema muy controvertido y eso. Para mí, la ética, al final, sería eso: la función de cada cosa. Pero uno no se ve el código fuente. Se lo puede ir revisando a base de mirar las ejecuciones anteriores. Pero uno no puede saber lo que es, hasta que lo es.
 
 -----
 
