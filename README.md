@@ -1,5 +1,7 @@
 **Carlos Jimeno Hernández**. Algo hay.
 
+Yo creo que los reclutadores de mierda entienden que alguien que no cobra un duro por darlo todo, no puede estar igual de motivado que un mierdas de los suyos que recibe un pastizal diario por representar a los elitistas de mierda que nos mantienen a ciegas y continuar su juego de ratones atrapados. Pero no sé, me he encontrado reclutadores de IT que me preguntan si sé jQuery y luego si sé JavaScript. No lo sé, no tengo fe en los simios de mierda, la verdad.
+
 Índice rápido:
 
 - [Introducción](#la-marihuana)
