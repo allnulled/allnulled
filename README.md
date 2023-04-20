@@ -13,3 +13,5 @@ Quiero porros. No gente, no personas. Cuando haya porros, hablamos. Pero son muc
 Gestionadlo como queráis, pero yo no pacto con la realidad si no me asegura porros.
 
 Si no, esperaos cualquier cosa, en cualquier momento.
+
+Lo siento. Mucho tiempo sintiéndome no-representado en una democracia no-representativa.
