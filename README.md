@@ -9,6 +9,6 @@ Todo está construído ya: no hay que hacer nada. Es suyo. Simplemente, es eso.
 
 - **Pero entonces, pregúntame, y yo te lo digo (corriendo)**. *Es que tú no das la verdad: la sudas.*
 
-Soy un número. Y doy números. No sé cuán interesantes tampoco. Ah, cierto. Para luego poder imitarme. Cierto. Joder...
+Soy un número. Y doy números. No sé cuán interesantes tampoco. Ah, cierto. Para luego poder imitarme. Cierto. Joder... Para poder crear robots y envolverte en vainas igual. Robots cada vez más sabedores de tus números. Joder...
 
 ![./todos_los_proyectos_de_github.png](./todos_los_proyectos_de_github.png)
