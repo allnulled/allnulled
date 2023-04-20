@@ -15,3 +15,5 @@ Gestionadlo como queráis, pero yo no pacto con la realidad si no me asegura por
 Si no, esperaos cualquier cosa, en cualquier momento.
 
 Lo siento. Mucho tiempo sintiéndome no-representado en una democracia no-representativa.
+
+Quiero decir, aunque diera todo lo que hago de gratis, no iban a entender este amor: la prefieren prohibida. Les renta más, supongo. Para mí es un puto arbusto de mierda, es como el orégano de aquí, pero originario de otro lugar. Si una planta, sin procesos, puede producir algo así, prohibirlo es un crimen mundial. La hipocresía entorno a esta planta es extrema. Es un puto arbusto sucio de India. Pero crea una sustancia única en el reino animal y vegetal. Y crea atracción. Pues la prohiben. Y explotan su magnetismo para lo económico. Me da mucha rabia el gobierno, demasiada, no los aguanto, no puedo ni pedirles la ayuda, antes se la lío en persona creo. No estoy seguro. Pero vamos.
