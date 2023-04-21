@@ -9,7 +9,7 @@ Todo está construído ya: no hay que hacer nada. Es suyo. Simplemente, es eso.
 
 - **Pero entonces, pregúntame, y yo te lo digo (corriendo)**. *Es que tú no das la verdad: la sudas.*
 
-Saber tus reacciones bajo a distintas situaciones nos ayudan a crear movimientos más parecidos, mejores actores.
+Saber tus reacciones bajo distintas situaciones nos ayudan a crear movimientos más parecidos, mejores actores.
 
 Pues mi respuesta sería que ya son muy buenos actores, que ya sobrepasan mi capacidad. Me los creo siempre.
 
