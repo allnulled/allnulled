@@ -1,17 +1,9 @@
-Palabras, palabras. Símbolos, símbolos. Ideas, ideas. Palabras.
+Toda la vida pendiendo de un hilo. Toda la vida aguantando tus gilipolleces a través de una pantalla, a través de una cara.
 
+¿Qué puta hostia quieres?
 
-**Real, surreal. Dar, sudar.**
+Odio el dinero. Odio tu sociedad de mentirosos. Odio tu invento. Y me haces sentir mal queriendo.
 
-- **Estoy buscando la surrealidad**. *Claro, porque es suya. Los porros son suyos también.*
+Me haces sentir sucio, tanto si trabajo como si no, tanto si me rebelo como si no. Porque si fuera a por tus mafiosos, me torturarías con el remordimiento, y vete tú a saber qué más. Y si no fuera, también: remordimiento, y más.
 
-Todo está construído ya: no hay que hacer nada. Es suyo. Simplemente, es eso.
-
-- **Pero entonces, pregúntame, y yo te lo digo (corriendo)**. *Es que tú no das la verdad: la sudas.*
-
-Saber tus reacciones bajo distintas situaciones nos ayudan a crear movimientos más parecidos, mejores actores.
-
-Pues mi respuesta sería que ya son muy buenos actores, que ya sobrepasan mi capacidad. Me los creo siempre.
-
-
-![./todos_los_proyectos_de_github.png](./todos_los_proyectos_de_github.png)
+Hierba + Espacio. Y en tu mentira, lo mantienes como si fuera un privilegio. Qué va: era mejor el prehistórico. No hay trato.
