@@ -1,13 +1,7 @@
-Toda la vida pendiendo de un hilo. Toda la vida aguantando tus gilipolleces a través de una pantalla, a través de una cara.
+¿Era eso entonces? Un algoritmo que me iba a estar haciendo la puñeta si no es con los porros, con el dinero, o con mierdas varias.
 
-¿Qué puta hostia quieres?
+No sé. Entiendo que no hay nada que hacer, pero lo de no llegar nunca, lo de ni siquiera progresar... no te puedo creer.
 
-Odio el dinero. Odio tu sociedad de mentirosos. Odio tu invento. Y me haces sentir mal queriendo.
+No enseñan. No amparan. No escuchan. Ni aseguran nada. Pero nunca acabas de tocar la lava, ya. Pero siempre ahí, reconcomiéndote, amenazándote, etc. Eres bastante sucio, no sé qué pretendes, supongo que me suicide. O que sufra. Pero entre esas. Hasta conformarse con una planta de mierda lo prohibes. Y para todo tienes escusas absurdas.
 
-Me haces sentir sucio, tanto si trabajo como si no, tanto si me rebelo como si no. Porque si fuera a por tus mafiosos, me torturarías con el remordimiento, y vete tú a saber qué más. Y si no fuera, también: remordimiento, y más.
-
-Hierba + Espacio. Y en tu mentira, lo mantienes como si fuera un privilegio. Qué va: era mejor el prehistórico. No hay trato.
-
-Dime qué quieres, y si puedes dejarte de hacerme rabiar y tal. 
-
-![./que-quieres.png](./que-quieres.png)
+Eres bastante odioso, Dios de mierda. Ya veo que a ti te importa una puta mierda, te importa lo putojusto para salvarme un rato y luego volverme a meter en tu tortura de diseño. Eres un desgraciado hijo de la gran puta, putodios. Y sé que podrías cebarte más. Y que no haría que fueras menos desgraciado hijo de la gran puta.
