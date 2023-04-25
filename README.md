@@ -7,3 +7,7 @@ Odio el dinero. Odio tu sociedad de mentirosos. Odio tu invento. Y me haces sent
 Me haces sentir sucio, tanto si trabajo como si no, tanto si me rebelo como si no. Porque si fuera a por tus mafiosos, me torturarías con el remordimiento, y vete tú a saber qué más. Y si no fuera, también: remordimiento, y más.
 
 Hierba + Espacio. Y en tu mentira, lo mantienes como si fuera un privilegio. Qué va: era mejor el prehistórico. No hay trato.
+
+Dime qué quieres, y si puedes dejarte de hacerme rabiar y tal. 
+
+![./que-quieres.png](./que-quieres.png)
