@@ -9,3 +9,7 @@ Eres bastante odioso, Dios de mierda. Ya veo que a ti te importa una puta mierda
 **¿O debo creer que no se entiende que la realidad es un programa, que el lenguaje es nuestro vehículo nº1 de comunicación, y que la mejor implementación de 'lenguaje para describir la realidad' la tiene un tío aislado en su garage que no le dan trabajo ni una mierda de nada, que lleva ataques contra webs de empleo para enviar masivamente currículums, y no le dan empleo, no le ayudan los médicos/burócratas-de-mierda, y bueno la cosa sigue así con mierdas todo el rato?**
 
 Que no, hombre. Tú has hecho esto queriendo. No sé a dónde quieres llegar. Bueno, o sí, y no es bonito.
+
+Que no es que le quite mérito a todo lo demás. PERO... claro, la ciencia tendría que intentar reescribirse en clave programática para ser representativo. Y JavaScript es el de las máquinas + Castellano el de las personas. Y Castelog el término medio suficiente para no hacer lo de siempre: alejar la tecnología de la persona.
+
+No sé. Lo releo. Y pienso, que debería darme vergüenza ser tan chulo y engreído. Luego pienso que esta gente no es consciente de que están secuestrados como especie entera. Luego pienso: sí, sí lo son, lo que aquí eres el único que existe de verdad.
