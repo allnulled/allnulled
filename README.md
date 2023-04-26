@@ -8,4 +8,4 @@ Eres bastante odioso, Dios de mierda. Ya veo que a ti te importa una puta mierda
 
 **¿O debo creer que no se entiende que la realidad es un programa, que el lenguaje es nuestro vehículo nº1 de comunicación, y que la mejor implementación de 'lenguaje para describir la realidad' la tiene un tío aislado en su garage que no le dan trabajo ni una mierda de nada, que lleva ataques contra webs de empleo para enviar masivamente currículums, y no le dan empleo, no le ayudan los médicos/burócratas-de-mierda, y bueno la cosa sigue así con mierdas todo el rato?**
 
-Que no, hombre. Tú has hecho esto queriendo. No sé a dónde quieres llegar.
+Que no, hombre. Tú has hecho esto queriendo. No sé a dónde quieres llegar. Bueno, o sí, y no es bonito.
