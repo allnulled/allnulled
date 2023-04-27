@@ -14,6 +14,8 @@ El juego mental se basa en que hay cosas tapadas para el *back*, o a la psique. 
 
 El juego real se basa en réplicas que imitan la conducta de cada etapa. La historia cuenta con unos 8.000 millones de réplicas. El más rico es un tío que le robó un programa a uno y se lo vendió a IBM, los que hacen la parte más sensible (procesador) de la máquina, que es el objeto que te vincula con la verdad, con la lógica: esto significa que te ayuda a ordenar la mente, pero no que lo que haya por pantalla sea cierto, sólo es un maestro si lo usas para que te adiestre la mente en la lógica y la programación, que es a fin de cuentas, dentro de la intentona humana por hacer ingeniería inversa de los procesos que lleva a cabo el *sistema remoto*, la lógica y la programación son las herramientas más fiables para representar hipótesis. Y el universo es también una hipótesis. Por eso se pueden hacer películas por ordenador: porque la programación es una de las herramientas más fiables para representar la realidad. En ese juego hay unas movidas históricas y políticas y blablabla. Mucha historia. Mucho programa, mucha explicación, mucho texto. Da a pensar que ha habido ayuda de I.A. de procesamiento de lenguaje natural para desparramar verdades a medias por aquí y por allí, de forma caótica, desordenada. Esa es la otra.
 
+Hay una API de lenguaje. Y otra de voluntad. La del lenguaje es la de los símbolos. La de la voluntad es casi como el core, el que orquestra a los periféricos, y la boca (hablar) o las manos (escribir) son solo algunos de ellos.
+
 No siempre aprecio el mucho tiempo que debe haber llevado ordenar el algo para que se comporte de esta forma tan enrebesada.
 
 Y no siempre lo agradezco también.
