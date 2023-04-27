@@ -16,6 +16,8 @@ El juego real se basa en réplicas que imitan la conducta de cada etapa. La hist
 
 Hay una API de lenguaje. Y otra de voluntad. La del lenguaje es la de los símbolos. La de la voluntad es casi como el core, el que orquestra a los periféricos, y la boca (hablar) o las manos (escribir) son solo algunos de ellos.
 
+Esas APIs están. Es decir, alguien ha construído esas APIs, APIs para el lenguaje natural. Pero son muchas abstracciones, combinadas de forma muy compleja.
+
 No siempre aprecio el mucho tiempo que debe haber llevado ordenar el algo para que se comporte de esta forma tan enrebesada.
 
 Y no siempre lo agradezco también.
