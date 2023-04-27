@@ -1,19 +1,20 @@
-¿Era eso entonces? Un algoritmo que me iba a estar haciendo la puñeta si no es con los porros, con el dinero, o con mierdas varias.
+Bueno.
 
-No sé. Entiendo que no hay nada que hacer, pero lo de no llegar nunca, lo de ni siquiera progresar... no te puedo creer.
+Parece que te has currado un programa **local** con *front* (realidad, empiria) y un programa *back* (mente, psique).
 
-No enseñan. No amparan. No escuchan. Ni aseguran nada. Pero nunca acabas de tocar la lava, ya. Pero siempre ahí, reconcomiéndote, amenazándote, etc. Eres bastante sucio, no sé qué pretendes, supongo que me suicide. O que sufra. Pero entre esas. Hasta conformarse con una planta de mierda lo prohibes. Y para todo tienes escusas absurdas.
+Luego tienes el programa *sistema* o **remoto** que sería otro software.
 
-Eres bastante odioso, Dios de mierda. Ya veo que a ti te importa una puta mierda, te importa lo putojusto para salvarme un rato y luego volverme a meter en tu tortura de diseño. Eres un desgraciado hijo de la gran puta, putodios. Y sé que podrías cebarte más. Y que no haría que fueras menos desgraciado hijo de la gran puta.
+El local recibe datos del remoto a través de *endpoints* dedicados unos al *front* (como los 5 sentidos) y otros al *back* directamente (como pensamiento, emoción, movimiento...).
 
-**¿O debo creer que no se entiende que la realidad es un programa, que el lenguaje es nuestro vehículo nº1 de comunicación, y que la mejor implementación de 'lenguaje para describir la realidad' la tiene un tío aislado en su garage que no le dan trabajo ni una mierda de nada, que lleva ataques contra webs de empleo para enviar masivamente currículums, y no le dan empleo, no le ayudan los médicos/burócratas-de-mierda, y bueno la cosa sigue así con mierdas todo el rato?**
+El **local** envía datos conscientes al remoto a través del movimiento (en el *front*) y de la voluntad (en el *back*), y datos inconscientes de--- supongo de todo tipo, ya que estás, lo habrás *hookeado* bien todo.
 
-Que no, hombre. Tú has hecho esto queriendo. No sé a dónde quieres llegar. Bueno, o sí, y no es bonito.
+El **back** envía y recibe datos del **local** por estas vías que ni siquiera sé listar. Esto hace pensar otra cosa.
 
-Que no es que le quite mérito a todo lo demás. PERO... claro, la ciencia tendría que intentar reescribirse en clave programática para ser representativo. Y JavaScript es el de las máquinas + Castellano el de las personas. Y Castelog el término medio suficiente para no hacer lo de siempre: alejar la tecnología de la persona.
+El juego mental se basa en que hay cosas tapadas para el *back*, o a la psique. Son cosas que son conocidas por el **sistema**, pero que son ignoradas por el **local**. Las vías para *destapar* estas cosas (datos) son el *percatarse*, el *relacionar*, el *ocurrírsele*... pero en un sentido técnico, es una transferencia de datos de un programa **remoto** a un programa **local**.
 
-No sé. Lo releo. Y pienso, que debería darme vergüenza ser tan chulo y engreído. Luego pienso que esta gente no es consciente de que están secuestrados como especie entera. Luego pienso: sí, sí lo son, lo que aquí eres el único que existe de verdad.
+El juego real se basa en réplicas que imitan la conducta de cada etapa. La historia cuenta con unos 8.000 millones de réplicas. El más rico es un tío que le robó un programa a uno y se lo vendió a IBM, los que hacen la parte más sensible (procesador) de la máquina, que es el objeto que te vincula con la verdad, con la lógica: esto significa que te ayuda a ordenar la mente, pero no que lo que haya por pantalla sea cierto, sólo es un maestro si lo usas para que te adiestre la mente en la lógica y la programación, que es a fin de cuentas, dentro de la intentona humana por hacer ingeniería inversa de los procesos que lleva a cabo el *sistema remoto*, la lógica y la programación son las herramientas más fiables para representar hipótesis. Y el universo es también una hipótesis. Por eso se pueden hacer películas por ordenador: porque la programación es una de las herramientas más fiables para representar la realidad. En ese juego hay unas movidas históricas y políticas y blablabla. Mucha historia. Mucho programa, mucha explicación, mucho texto. Da a pensar que ha habido ayuda de I.A. de procesamiento de lenguaje natural para desparramar verdades a medias por aquí y por allí, de forma caótica, desordenada. Esa es la otra.
 
-Que es mucho menos costoso computar 1 engañado y 1 engaño, que millones, que infinitos e infinitesimales engañados con sus respectivos engaños, bebiendo todos de una presunta, supuesta fuente de verdad unívoca.
+No siempre aprecio el mucho tiempo que debe haber llevado ordenar el algo para que se comporte de esta forma tan enrebesada.
 
-Mucho menos costoso. Crear una mentira es mucho menos costoso: solo tienes que engañar a uno. Crear un universo es demasiado costoso. Basta con computar las variables en un segundo plano. A esta gente le da bastante igual estar en una granja de producción a ciegas, o eso dan a entender. No parece importarles ser unos cerdos de granja, o unos monos de circo. No se sienten ofendidos, no son de fiar.
+Y no siempre lo agradezco también.
+
