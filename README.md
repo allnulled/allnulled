@@ -1,3 +1,7 @@
+Yonkipur al Estado: `si no hay hierba, no hay igual, no hay jerarquía, no hay autoridad y, por supuesto, no hay político: hay mafia`.
+
+----
+
 Bueno.
 
 Parece que te has currado un programa **local** con *front* (realidad, empiria) y un programa *back* (mente, psique).
