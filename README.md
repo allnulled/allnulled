@@ -6,6 +6,8 @@ Ah, y sigamos ignorando el nexo entre lenguaje de programación y lenguaje natur
 
 Que yo quiero que a todos nos vaya bien, no es... a ver, que es que ni siquiera pido dinero para seguir, con tener hierba yo puedo seguir. No dice mucho de mí, ni de mis derechos, pero podría. He seguido en peores. El problema es el precio: no creo en el precio que le das. La hierba te hace más inteligente, pero es por una gilipollez, pero que es crucial: sin hierba, les crees. Ellos son más listos, está claro. Pero ¿buenos? ¿Son buenos? ¿Son *bienintencionados*? No, compi: ponen los estudios de pago. Esta peña no quiere ni razonar, ni que razones. Con que obedezcas, les sirve. La hierba dicen que te hace tonto. Yo he desacreditado el sistema dinero gracias a mirarla fijamente. No sé. Tonto siento que es lo que era antes. Ahora también, pero comparado... joder, hay diferencia. Igual es más por pobre. O porque te bloquean el acceso laboral. Y no hay Defensor del Pueblo que valga. Y ale, suerte. No way, man. Yo me metí en la programación para que no me falte el trabajo y me esté comiendo la miseria, porque pedías programadores. No way, man. ¿Qué es esto, un callejón existencial sin salida? Me reservo la carta OM.
 
+Quiero decir... me he leído todos los manuales que me separaban de ser válido para la oferta. Y ahora no me quieres. ¿Te crees que puede un sujeto tolerar que le estén mareando así por la vida? ¿Te crees que me creo que una sociedad se monta para esta puta mierda de resultado? Te digo, me da igual lo que les digas de mí luego a ellos: son mermados antes y después de la noticia.
+
 ----
 
 Bueno.
