@@ -4,6 +4,8 @@ Las personas son como plantas. Y si a unas las riegas con fertilizante dinero, p
 
 Ah, y sigamos ignorando el nexo entre lenguaje de programación y lenguaje natural. Dejemos que el robo se suceda de manera natural. Igual que la **oligomatanza**.
 
+Que yo quiero que a todos nos vaya bien, no es... a ver, que es que ni siquiera pido dinero para seguir, con tener hierba yo puedo seguir. No dice mucho de mí, ni de mis derechos, pero podría. He seguido en peores.
+
 ----
 
 Bueno.
