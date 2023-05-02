@@ -8,6 +8,8 @@ Que yo quiero que a todos nos vaya bien, no es... a ver, que es que ni siquiera 
 
 Quiero decir... me he leído todos los manuales que me separaban de ser válido para la oferta. Y ahora no me quieres. ¿Te crees que puede un sujeto tolerar que le estén mareando así por la vida? ¿Te crees que me creo que una sociedad se monta para esta puta mierda de resultado? Te digo, me da igual lo que les digas de mí luego a ellos: son mermados antes y después de la noticia.
 
+Para mí, escribir esto sólo supone meter más remordimientos y miedos en mi mochila. No es una democracia. No son personas. Y no van ni a entenderte, ni a cambiar nada, menos por ti. Y decirlo en voz alta, no ayuda. No van a cambiar el precio de la hierba, hay mucho negocio. Y sin hierba... bueno, se puede ser feliz. Yo qué sé, ¿te ofende que quiera estar así dopado? Bueno, la pregunta es, ¿te extraña? Triunfar es ser un perdedor, es alinearse con todos esos mafiosillos. Ganar es aversivo. Perder es aversivo por naturaleza. No sé. Y ya ves que 1 no puede cambiar nada. No creo que te extrañe. Creo que es lo que buscabas.
+
 ----
 
 Bueno.
