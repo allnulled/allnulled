@@ -1,4 +1,4 @@
-*Es que si fuerais de verdad, ni que fuera por bocas, por no saber callarme la boca, me daríais una ayuda. No. Sois otra cosa.*
+*Es que si fuerais de verdad, ni que fuera por bocas, por no saber callarme la boca, me daríais una ayuda, por Síndrome de Tourette. No. Sois otra cosa.*
 
 
 
