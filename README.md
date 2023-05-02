@@ -1,4 +1,4 @@
-Yonkipur al Estado: **si no hay hierba, no hay igual, no hay jerarquía, no hay autoridad y, por supuesto, no hay político: hay mafia**.
+Yonkipur al Estado: **si no hay hierba, no hay igual, no hay jerarquía, no hay autoridad y, por supuesto, no hay político: hay mafia**.  Hayla, y desde hace mucho y por muchas razones. Bueno, cuando me harte, iré a por vosotros. Supongo que estáis ahí para eso, para cuando me harte.
 
 ----
 
