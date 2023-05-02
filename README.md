@@ -17,3 +17,23 @@ Y da miedo ponerse así de claro, porque estás a un tris de que todos se vuelva
 Por eso, no son solo creencias. Primero, son hipótesis que, a fin de cuentas, no se pueden ni demostrar ni refutar, porque yo en la piel del otro no puedo ponerme.
 
 Por tanto, no son solo creencias, son interpretaciones de la realidad que me persiguen. Y que a veces tienen más sentido que la realidad que pintan. Y en ese *a veces*, pierdo fuerza al decirlo. Pero... si defines más el límite... podría ser *siempre*, aunque me cueste de dimensionar en mi psique.
+
+Y vuelvo. Por si tu cabecita insiste.
+
+Que no puedes tomarte en serio a una gente que... a ver cómo te lo explico.
+
+```
+     Paro       |      Papeleo + 2 meses + igual te jodes   |
+{  Individuo  } |   Estudios (de pago)                      |  Dinero
+ 0€ de ingreso  |    + Experiencia                          |    + Salud mental
+                |    + Habilidades                          |    + Comida
+                |    + .... y sonriendo, sobre todo         |    + Hierba
+```
+
+Pues no es normal. No es de persona, es de animal de mierda que se merece un hachazo en la puta espalda y para abono. Sí, y eres un bruto. Pero sí, es de animales infectos hacer esto con la gente. Y sí, cada día, te los enseñan por la tele como diciendo: `oooole, torito`. Es así. Son así de mierdas.
+
+Y también es cierto, puedes mirar para otro lado. Respirar. Intentar no pensar. No dejar que te acorralen. Pero siempre habrá algo ahí flotando, diciendo que cualquier día, tú ya no vives ahí, tú no puedes hacer frente a los gastos, tú no eres ... y a eso súmale la hierba y sus bonitos precios.
+
+Es jodido, porque ahora es difícil mirar para otro lado. Muchos síndromes de abstinencia cagándome en los putos muertos del ministerio de salud, en la oms y en el puto Aznar de los cojones, y toda la industria farmacéutica. Muchos síndromes de abstinencia odiando a estos grandes hijos de la gran puta, si es que fueran verdad. Pinta que no.
+
+Intento respirar. Pero no veo razones por las que comprar la realidad. No me la creo. Y no quiero creérmela, mirar para otro lado no siempre va a funcionar.
