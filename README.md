@@ -4,7 +4,7 @@ Las personas son como plantas. Y si a unas las riegas con fertilizante dinero, p
 
 Ah, y sigamos ignorando el nexo entre lenguaje de programación y lenguaje natural. Dejemos que el robo se suceda de manera natural. Igual que la **oligomatanza**.
 
-Que yo quiero que a todos nos vaya bien, no es... a ver, que es que ni siquiera pido dinero para seguir, con tener hierba yo puedo seguir. No dice mucho de mí, ni de mis derechos, pero podría. He seguido en peores.
+Que yo quiero que a todos nos vaya bien, no es... a ver, que es que ni siquiera pido dinero para seguir, con tener hierba yo puedo seguir. No dice mucho de mí, ni de mis derechos, pero podría. He seguido en peores. El problema es el precio: no creo en el precio que le das. La hierba te hace más inteligente, pero es por una gilipollez, pero que es crucial: sin hierba, les crees. Ellos son más listos, está claro. Pero ¿buenos? ¿Son buenos? ¿Son *bienintencionados*? No, compi: ponen los estudios de pago. Esta peña no quiere ni razonar, ni que razones. Con que obedezcas, les sirve. La hierba dicen que te hace tonto. Yo he desacreditado el sistema dinero gracias a mirarla fijamente. No sé. Tonto siento que es lo que era antes. Ahora también, pero comparado... joder, hay diferencia.
 
 ----
 
