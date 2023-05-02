@@ -1,3 +1,7 @@
+*Es que si fuerais de verdad, ni que fuera por bocas, por no saber callarme la boca, me daríais una ayuda. No. Sois otra cosa.*
+
+
+
 Yonkipur al Estado: **si no hay hierba, no hay igual, no hay jerarquía, no hay autoridad y, por supuesto, no hay político: hay mafia**.  Hayla, y desde hace mucho y por muchas razones. En fin.
 
 Las personas son como plantas. Y si a unas las riegas con fertilizante dinero, porque son obedientes, pero a los que son excelentes, y te regalan todo lo que dan, sin acceder a tu obediencia, los riegas con fertilizante rabia cuando te están pidiendo un fertilizante solo, uno tipo arbusto malo de India... pues en fin, me has jodido la vida en verdad con el precio falso de la hierba de los cojones, y yo he ido accediendo a que me la jodas, porque sé que si no me la jodías con esto, me la hubieras jodido con otra cosa, ya solo con los anuncios de mierda que dejas que se sucedan, con los números que dejas que se sucedan, tú ya me has jodido la vida. Pero mezclemos las sustancias, a ver qué sucede. Y el factor nervio-pinzante del *no-tengo-dinero*, el reactivo de la mezcla. Al menos, le pondremos más pasión a la trampa del dinero, eso seguro.
