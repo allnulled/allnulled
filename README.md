@@ -54,3 +54,5 @@ Y también es cierto, puedes mirar para otro lado. Respirar. Intentar no pensar.
 Es jodido, porque ahora es difícil mirar para otro lado. Muchos síndromes de abstinencia cagándome en los putos muertos del ministerio de salud, en la oms y en toda la ley antisustancias de los cojones (porque al final... ¿qué más da quién y cuándo, si siempre es el qué y el cómo? me da igual quién, yo quiero lo que quiero), y toda la industria farmacéutica. Muchos síndromes de abstinencia odiando a estos grandes hijos de la gran puta, si es que fueran verdad. Pinta que no.
 
 Intento respirar. Pero no veo razones por las que comprar la realidad. No me la creo. Y no quiero creérmela, mirar para otro lado no siempre va a funcionar.
+
+Estar en un sitio donde vales `0`. Y todas tus opiniones son multiplicadas en importancia por `0`. E insisten en llamarlos "Democracia representativa" y "Libre mercado"... mmmm.
