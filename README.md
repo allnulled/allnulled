@@ -48,6 +48,7 @@ Que no puedes tomarte en serio a una gente que... a ver cómo te lo explico.
 ```
 
 Pues no es normal. No es de persona, es de animal de mierda que se merece un hachazo en la puta espalda y para abono. Sí, y eres un bruto. Pero sí, es de animales infectos hacer esto con la gente. Y sí, cada día, te los enseñan por la tele como diciendo: `oooole, torito`. Es así. Son así de mierdas.
+(Piensa que te están enseñando un bot. Ojo, y pobre de ti que lo trates como tal.)
 
 Y también es cierto, puedes mirar para otro lado. Respirar. Intentar no pensar. No dejar que te acorralen. Pero siempre habrá algo ahí flotando, diciendo que cualquier día, tú ya no vives ahí, tú no puedes hacer frente a los gastos, tú no eres ... y a eso súmale la hierba y sus bonitos precios.
 
