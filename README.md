@@ -51,6 +51,6 @@ Pues no es normal. No es de persona, es de animal de mierda que se merece un hac
 
 Y también es cierto, puedes mirar para otro lado. Respirar. Intentar no pensar. No dejar que te acorralen. Pero siempre habrá algo ahí flotando, diciendo que cualquier día, tú ya no vives ahí, tú no puedes hacer frente a los gastos, tú no eres ... y a eso súmale la hierba y sus bonitos precios.
 
-Es jodido, porque ahora es difícil mirar para otro lado. Muchos síndromes de abstinencia cagándome en los putos muertos del ministerio de salud, en la oms y en el puto Aznar de los cojones, y toda la industria farmacéutica. Muchos síndromes de abstinencia odiando a estos grandes hijos de la gran puta, si es que fueran verdad. Pinta que no.
+Es jodido, porque ahora es difícil mirar para otro lado. Muchos síndromes de abstinencia cagándome en los putos muertos del ministerio de salud, en la oms y en toda la ley antisustancias de los cojones (porque al final... ¿qué más da quién y cuándo, si siempre es el qué y el cómo? me da igual quién, yo quiero lo que quiero), y toda la industria farmacéutica. Muchos síndromes de abstinencia odiando a estos grandes hijos de la gran puta, si es que fueran verdad. Pinta que no.
 
 Intento respirar. Pero no veo razones por las que comprar la realidad. No me la creo. Y no quiero creérmela, mirar para otro lado no siempre va a funcionar.
