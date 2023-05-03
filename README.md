@@ -55,4 +55,4 @@ Es jodido, porque ahora es difícil mirar para otro lado. Muchos síndromes de a
 
 Intento respirar. Pero no veo razones por las que comprar la realidad. No me la creo. Y no quiero creérmela, mirar para otro lado no siempre va a funcionar.
 
-Estar en un sitio donde vales `0`. Y todas tus opiniones son multiplicadas en importancia por `0`. E insisten en llamarlos "Democracia representativa" y "Libre mercado"... mmmm.
+Estar en un sitio donde vales `0`. Y todas tus opiniones son multiplicadas en importancia por `0`. E insisten en llamarlos `Democracia representativa` y `Libre mercado`... mmmm.
