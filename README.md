@@ -57,3 +57,7 @@ Es jodido, porque ahora es difícil mirar para otro lado. Muchos síndromes de a
 Intento respirar. Pero no veo razones por las que comprar la realidad. No me la creo. Y no quiero creérmela, mirar para otro lado no siempre va a funcionar.
 
 Estar en un sitio donde vales `0`. Y todas tus opiniones son multiplicadas en importancia por `0`. E insisten en llamarlos `Democracia representativa` y `Libre mercado`... mmmm. Mmm.
+
+-----
+
+Pensaba: por la educación gratuita. Pensaba: por el trabajo como opción pública. Pensaba: por tener las cuentas del dinero transparentes. Qué va. La hierba. O das la hierba, o no me sirves como realidad. Lo siento, sois demasiado tontos, me aburrís. Necesito hierba, señor presidente, quédese las demás mafias, pero la de la hierba, destrúyala: a fin de cuentas, es por ella que cometería una locura, y ella me ayudaría a cometerla. Una locura necesaria en un ambiente de granja-corralito-y-a-ciegas. No tengo mucho más que hablar, o sois muy tontos, o os lo hacéis. Yo ya os lo he intentado explicar en el proyecto [economics-framework](github.com/allnulled/economics-framework), si os va bien y os basta con eso, para mí tampoco hay mucho más que hablar, es como si estuviérais en una guerra, en el otro bando, y yo soy Palestina, voy a piedras, vosotros Israel, a balas, para mí no hay chance. Pero ya está. Aquí tampoco querría quedarme mucho más, estáis enfermos, pero no significa que no sea lo normal.
