@@ -1,11 +1,1 @@
-Lo que me hacéis ahora, decís que lo hacéis porque fumo porros.
-
-Pero lo que me haríais si no fumara porros, diríais que lo hacéis porque soy pobre.
-
-Y si quitara lo de pobre, seguiría con esquizofrénico.
-
-Y si quitara lo de esquizofrénico, seguiría con subnormal.
-
-Y si quitara lo de subnormal, ya buscaríais otra.
-
-Por eso fumo porros. Para que me jodan, que me pillen bien psicótico.
+OK. Da igual, al final es cosa de la ley. Y a mí me dan mucho asco y miedo los políticos. Y la violencia física. La verbal solo sirve para ponerme mal yo. Y la física, mal, me da miedo. Así que se cierra el tema, Y si muero por cáncer, pues que les follen, soy un títere desde el principio, da mucha rabia, y una rabia exacerbada, de "que están en mis putas entrañas los hijos de la mierda también", una rabia de "quiero salirme de mí mismo y huir de esta cárcel de esta rata enferma que me tiene preso".
