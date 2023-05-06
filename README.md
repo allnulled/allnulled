@@ -68,4 +68,4 @@ Matiz innecesario 2: eso no lo van a negociar jamás, por eso hablo en estos té
 
 Y si alguien acaso ha llegado a leer hasta aquí, pues solo le falta entender que es parte del problema que, al humano, no le puedas hablar así para contarle las cosas. Que tienes que tratarlo bien, y hacerle sentir atraído por lo que dices, y todo eso. Esa es la razón por la que esa gente está en el poder, toreando al pueblo: por ese rasgo de no escuchar las cosas si te las dicen mal. Pero para los que dicen: 'no hobre, asi no'. Jeje. ¿Y cómo sí? ¿Cómo tratas con un yonki del dinero, del poder, un supremacista adicto legalizado incluso empoderado y promocionado? No hay otra. Hay que destruir a los caciques para despertar a las ratas de la melodía.
 
-Pero bueno, considero que las ratas ya están corruptas. Destruir los caciques no serviría de mucho.
+Pero bueno, considero que las ratas ya están corruptas. Destruir los caciques no serviría de mucho en ese sentido.
