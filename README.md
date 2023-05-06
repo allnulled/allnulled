@@ -5,7 +5,7 @@ Legado:
 - [Economics Framework](https://github.com/allnulled/economics-framework). Para salir del analfabetismo materialista.
 - [Yonkipur](https://github.com/allnulled/yonkipur). Para salir de la inopia religiosa.
 - [Predicaciones](https://github.com/allnulled/predicaciones). Para comprender las raíces.
-- [Castelog](https://github.com/allnulled/castelog). Sin documentar, porque bueno, ¿a quién le importa, verdad, si tenemos ChatGPT? Puta distopía robótica.
+- [Castelog](https://github.com/allnulled/castelog). Sin documentar, porque bueno, ¿a quién le importa, verdad, si tenemos ChatGPT? Puta distopía robótica. Esta tecnología fue absorvida por Microsoft vía MIT en su [Scratch](https://github.com/scratchfoundation). Ahora tienen un buen negociete, imagino. Pero no te preocupes, puedes darles más dinero [aquí](https://www.scratchfoundation.org/donate). No es un mal proyecto, lo único que me han jodido a mí. Pero bueno, tranquilo, solo soy uno.
 - [Shellver](https://github.com/allnulled/shellver). Para conectar navegador con servidor.
 - [Student Toolkit](https://github.com/allnulled/student-toolkit). Kit de herramientas para pillar apuntes y tener los más eficientes pupilos. Pero creo que daba problemas, total, al ministerio de educación le importa un cojón.
 - [Restologia](https://github.com/allnulled/restologia). Puede generar y desplegar miles de servidores Node.js que conformen una API de red sincronizada de datos HTTP REST automáticamente distribuidos. Pero bueno, morirá sin documentar, no soportaría terminar de hacer bien este proyecto y seguir viendo pasar ofertas de trabajo delante de mis narices, antes voy al 22@ y me lío a bombas de salfumán con clavos.
