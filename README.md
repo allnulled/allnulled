@@ -2,4 +2,6 @@ Bueno. Que definitivamente, si las palabras sirven, será para otros. Me siento 
 
 Pero claro, al ver cómo reaccionáis ante ello, pienso: si son iguales. Si son todos iguales.
 
-No puedo, no puedo callarme. Lo intento, pero sale. Y sale. Y sale. Y sale.
+No puedo, no puedo callarme. Lo intento, pero sale. Y sale. Y sale. Y sale. Que si me paro a pensarlo, pienso: obvio. Y cómo, mucho has tardado.
+
+Pero luego pienso: explícaselo a ese tonto que tienes delante. Imposible. Es incansablemente tonto conmigo. Por dentro será un dios. Pero cara a mí, es siempre un tonto, hasta como listo parece tonto, sabe parecer tonto.
