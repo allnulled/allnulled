@@ -1,1 +1,1 @@
-OK. Párole. No sé, ...¿confiemos en el algoritmo? No me fío. Pero no sé. Como en el Dragon Khan, creo. Que me lleve donde quiera, ya está, y si salgo volando pues no sé.
+Al ponerse el sol, me alegra de que al menos algo cambie en este planeta.
