@@ -1,9 +1,11 @@
-¿Sabes qué? Vamos a plantearlo diferente.
+Lo que me hacéis ahora, decís que lo hacéis porque fumo porros.
 
-Os quise acercar el lenguae lógico porque, observando vuestra sociedad, está claro que no nos forman en lógica, y eso es grave dentro de los sistemas animales inteligentes simbólicamente. Y la formación en lógica que dan, en Bachillerato por ejemplo, es malintencionada, hecha para que no se aprenda. Ya hice el [Lenguaje de los Porqués](https://github.com/allnulled/porque) intentando paliarlo, pero la respuesta fue... la misma: no, no me interesa, soy profe de lógica en la universidad y uso esta otra herramienta tal (que usa los símbolos raros que encriptan la lógica del lenguaje, también, pero claro son convención entre listos, en algún momento de esta historia se decidió así).
+Pero lo que me haríais si no fumara porros, diríais que lo hacéis porque soy pobre.
 
-Por eso hice [Castelog](https://github.com/allnulled/castelog), aunque antes hice NaturalScript y pedí financiación a algunas súperempresas tecnológicas, vía un correo informal. Pedí nada, apoyo simbólico, más que nada. Pues ni respondieron. Sin rencores: Microsoft, Oracle, IBM, Intel y no sé cuál más. Pero también a un montón de profesores universitarios. A nadie le interesa la lógica en lenguaje natural. xD Go fuck yourselves, fuckin nasty rats. Paralelamente... oh, [Scratch](https://scratch.mit.edu/) salvaje apareció (MIT + Microsoft). Con mis sintaxis integradas bonitamente. Y aquí no ha pasado nada. Porque que yo diga que las sintaxis me las han chivado metaseres, es una cosa. Pero no me refiero a ellos, ellos son personas, y lo han sacado después de mí, pero bueno, luego investigas y hay más lenguajes así silenciados, se los pueden inventar al vuelo, si da igual, no les voy a denunciar, solo es información: o son ratas, o son robots, pero muy personas, no parecen.
+Y si quitara lo de pobre, seguiría con esquizofrénico.
 
-Luego pues Castelog lo hice en castellano, porque ya no creo en el mundo real como tal. Pero bueno, me engañó así, haciéndome pensar que por saber programar tendría trabajo asegurado, porque programación es lo que más buscan. Qué va. Era para hacerme entender esta trampa de mierda. E incluso saber programación, sería usado en mi contra (es gustoso ver 40.000€b/a, 35.000€b/a, ...). No puedo decir que no les envidie (me veo en un vídeo yo con ese dinero aislándome exitósamente de la sociedad), pero tampoco puedo decir que me cambiaría (los daños mentales de trabajar para el sistema capitalista no los envidio, les hace sentir pobres, por eso no pueden compartir, en ese vídeo no me meto, pero tengo que comprenderles también, bueno o no porque ellos a mí no; pero sí, la sensación de escasez no se va simplemente con dinero, además se sienten estafados cuando comparten, lo recuerdo).
+Y si quitara lo de esquizofrénico, seguiría con subnormal.
 
-Yo lo aguanto porque ya es Yo y Dios. El resto habla un idioma diferente. Lo hago como reto masoquista planteado desde las esferas divinas. Pero si pensara que soy un igual, yo ya habría reventado hace mucho.
+Y si quitara lo de subnormal, ya buscaríais otra.
+
+Por eso fumo porros. Para que me jodan, que me pillen bien psicótico.
