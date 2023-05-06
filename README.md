@@ -73,3 +73,9 @@ Pero bueno, considero que las ratas ya están corruptas. Destruir los caciques n
 Lo último es que ir más allá, pasa por aceptar que la vida es un camino de uno solo, que entre los demás y el decorado, no hay tanta diferencia: son mecánicas, y tú no puedes conocerlas ni alterarlas, como mucho interrumpirlas brevemente. Pero son mecánicas, y las fuerzas que las dominan están escritas. Así que entre una persona y una piedra, en el fondo, no hay tanta diferencia. Eso sería ir más allá. Por eso pido porros. Porque todavía no quiero, y tengo fe todavía en que os pueda acorralar con el lenguaje lógico. Pero bueno, fácil salida tiene para vosotros eso también. Sería solo para irme con el papel de "INTENTO CONSEGUIDO PERO EN VANO".
 
 Es lógica. Por eso lo leo como que me estáis vacilando. Son matemáticas de primaria. Siempre voy a perder: siempre tiene ese margen la incertidumbre. ¿Explicarme mejor? Para qué. Si me repito mucho, es todo el rato lo mismo.
+
+Y pues eso, para ser parte del decorado de una prisión 3D tipo granja donde las élites están haciendo corralito y te hacen trabajar sin conocer el estado de los recursos ni pistas siquiera apenas, pues no sé. Es como si me dieras ese margen, el margen de tener la razón y enviarlo todo al carajo. Pero además, con razón. Con ese margen de razón.
+
+Es casi como que cuando hablo con ellos, hablara con otro. Pero no quiere hablarme directo.
+
+¿No? No. ¿No? No...
