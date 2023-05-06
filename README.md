@@ -1,81 +1,18 @@
-Mejor no decir nada. Porque sí, porque mejor no decir nada.
+Doctrinario.
 
-Y si no llego, pues qué más da. Parece que el juego era otro.
+- Arriba el capital.
+- Los ricos son mejores.
+- Los pobres son pobres por algo.
+- La droga es para los débiles.
+- La vida pone a cada uno en su sitio.
+- El trabajo purifica.
+- Todo sacrificio da sus frutos.
+- El flujo del capital se autorregula.
+- La democracia representa.
+- Lucha por tus sueños.
+- El universo conspira para cumplir tus deseos.
+- Las cosas no salen sin trabajo.
+- ¿No tienes dinero? ¡Pues trabaja!
 
-No dejes que hagan olla de presión contigo. Súdala. Súdala lo que necesites. El juego es suyo todo el tiempo.
+¿Sería mejor persona si me creyera ya no la mitad de estas, sino una sola?
 
-No te sientas con la responsabilidad de nada. El condicionamiento mental entorno al trabajo es una falacia: hay paro, no calculan nada, no dan datos de apenas nada, obstaculizan la educación, etc. Quieren criminales. Les justifican, por eso los quieren, para hacer quedar a su mafia menos mafia. Pero son mafia, funcionan como mafia, y realmente, la cara bonita es siempre un engaño cuando puedes dimensionar en tu recuerdo qué hacen contigo en todo su largometraje.
-
-¿Te puedes ver o no te puedes ver? ¿Puedes ver lo que hacen contigo, y a saber con cuántos más?
-
-Por favor, observa este croquis:
-
-```
-     Paro       |      Papeleo + 2 meses + igual te jodes     |
-{  Individuo  } |   Estudios (de pago)                        |  Dinero
- 0€ de ingreso  |    + Experiencia                            |    + Salud mental
-                |    + Habilidades                            |    + Comida
-                |    + .... y sonriendo, sobre todo           |    + Hierba
-                |    + que le gustes, que ahí ya... standby4e |
-```
-
-Sigamos.
-
-Son sectas y mafias, no por ser la mayoría y llamarse religión o administración pública, dejan de serlo. Y están podridas, es normal que te satures en tu crítica, digamos que es parte de su mafia.
-
-No te sientas con la responsabilidad de nada. El rey de esta selva no eres ni serás tú. Así que mantente marginadito el tiempo que necesites, y si te molestan, no te sientas con la obligación de nada. Ellos saben que están jugando contigo. Y tú sabes que ellos no van a dar la cara nunca. Sabes que te tienen preso. Pero decírtelo, a veces, no ayuda. Son así de crueles, quieren que te suicides. Y te tienen pillado con el dinero.
-
-Pero el dinero es otra falacia. La explicación más nerviosa la encuentras con la hierba. Pero el mercado de divisas, las concentraciones de capital, holdings, medios, legislación turbia... el dinero es una puta mentira necesaria para crear un entorno absurdo en el que ponerte a hacer absurdeces. Es así. Ellos lo niegan. Pero también lo saben. Saben que es así. Que el dinero es la baza para hacerte hacer tonterías. ¿Y qué que no siempre? ¿Y qué, si cuando haces una cosa seria, ni siquiera te responden? Que no, hombre. El dinero es la puta pinzada mayor de esta mierda de plataforma.
-
-Y da miedo ponerse así de claro, porque estás a un tris de que todos se vuelvan apocalipsis-zombie en tus creencias. Pero, aunque dé miedo, qué quieres que te diga. Tiene más sentido que un día a día en estas condiciones de animal de granja descuidado.
-
-Por eso, no son solo creencias. Primero, son hipótesis que, a fin de cuentas, no se pueden ni demostrar ni refutar, porque yo en la piel del otro no puedo ponerme.
-
-Por tanto, no son solo creencias, son interpretaciones de la realidad que me persiguen. Y que a veces tienen más sentido que la realidad que pintan. Y en ese *a veces*, pierdo fuerza al decirlo. Pero... si defines más el límite... podría ser *siempre*, aunque me cueste de dimensionar en mi psique.
-
-
-
-Y vuelvo. Por si tu cabecita insiste.
-
-Que no puedes tomarte en serio a una gente que... a ver cómo te lo explico.
-
-```
-     Paro       |      Papeleo + 2 meses + igual te jodes   |
-{  Individuo  } |   Estudios (de pago)                      |  Dinero
- 0€ de ingreso  |    + Experiencia                          |    + Salud mental
-                |    + Habilidades                          |    + Comida
-                |    + .... y sonriendo, sobre todo         |    + Hierba
-```
-
-Pues no es normal. No es de persona, es de animal de mierda que se merece un hachazo en la puta espalda y para abono. Sí, y eres un bruto. Pero sí, es de animales infectos hacer esto con la gente. Y sí, cada día, te los enseñan por la tele como diciendo: `oooole, torito`. Es así. Son así de mierdas.
-(Piensa que te están enseñando un bot. Ojo, y pobre de ti que lo trates como tal.)
-
-Y también es cierto, puedes mirar para otro lado. Respirar. Intentar no pensar. No dejar que te acorralen. Pero siempre habrá algo ahí flotando, diciendo que cualquier día, tú ya no vives ahí, tú no puedes hacer frente a los gastos, tú no eres ... y a eso súmale la hierba y sus bonitos precios.
-
-Es jodido, porque ahora es difícil mirar para otro lado. Muchos síndromes de abstinencia cagándome en los putos muertos del ministerio de salud, en la oms y en toda la ley antisustancias de los cojones (porque al final... ¿qué más da quién y cuándo, si siempre es el qué y el cómo? me da igual quién, yo quiero lo que quiero), y toda la industria farmacéutica. Muchos síndromes de abstinencia odiando a estos grandes hijos de la gran puta, si es que fueran verdad. Pinta que no.
-
-Intento respirar. Pero no veo razones por las que comprar la realidad. No me la creo. Y no quiero creérmela, mirar para otro lado no siempre va a funcionar.
-
-Estar en un sitio donde vales `0`. Y todas tus opiniones son multiplicadas en importancia por `0`. E insisten en llamarlos `Democracia representativa` y `Libre mercado`... mmmm. Mmm.
-
------
-
-Pensaba: por la educación gratuita. Pensaba: por el trabajo como opción pública. Pensaba: por tener las cuentas del dinero transparentes. Qué va. La hierba. O das la hierba, o no me sirves como realidad. Lo siento, sois demasiado tontos, me aburrís. Necesito hierba, señor presidente, quédese las demás mafias, pero la de la hierba, destrúyala: a fin de cuentas, es por ella que cometería una locura, y ella me ayudaría a cometerla. Una locura necesaria en un ambiente de granja-corralito-y-a-ciegas. No tengo mucho más que hablar, o sois muy tontos, o os lo hacéis. Yo ya os lo he intentado explicar en el proyecto [economics-framework](https://github.com/allnulled/economics-framework) (ya, yo no soy un medio de comunicación, bueno, ¿lo siento?), si os va bien y os basta con esto que llaman "democracia" y "libre mercado", ok, para mí tampoco hay mucho más que hablar, es como si estuviérais en una guerra, en el otro bando, y yo soy Palestina, voy a piedras, vosotros Israel, a balas, para mí no hay chance. Pero ya está. Aquí tampoco querría quedarme mucho más, estáis enfermos, pero no significa que no sea lo normal, o incluso lo obligatorio. Estáis fuera de la realidad, os dominan a una sociedad con hojas de árbol pintadas, pero sé que no os da para más. Y oféndase, por favor. Aunque no creo que dé ni para eso. Hasta la próxima.
-
-Matiz innecesario para el sagaz: liberar la mafia de la hierba significa darla, gratis.
-
-Matiz innecesario 2: eso no lo van a negociar jamás, por eso hablo en estos términos. En términos de au revoir. Yo no trabajo más para un mundo de mermados que no quiere escuchar. Ni puede, claro, está secuestrado.
-
-Y si alguien acaso ha llegado a leer hasta aquí, pues solo le falta entender que es parte del problema que, al humano, no le puedas hablar así para contarle las cosas. Que tienes que tratarlo bien, y hacerle sentir atraído por lo que dices, y todo eso. Esa es la razón por la que esa gente está en el poder, toreando al pueblo: por ese rasgo de no escuchar las cosas si te las dicen mal. Pero para los que dicen: 'no hobre, asi no'. Jeje. ¿Y cómo sí? ¿Cómo tratas con un yonki del dinero, del poder, un supremacista adicto legalizado incluso empoderado y promocionado? No hay otra. Hay que destruir a los caciques para despertar a las ratas de la melodía.
-
-Pero bueno, considero que las ratas ya están corruptas. Destruir los caciques no serviría de mucho en ese sentido. Y por mi parte, también: por mucho que tenga por decir o dar, está encriptado por la rabia. Y cuando lo saco, blupblupblup. No sé qué llega de lo que saco.
-
-Lo último es que ir más allá, pasa por aceptar que la vida es un camino de uno solo, que entre los demás y el decorado, no hay tanta diferencia: son mecánicas, y tú no puedes conocerlas ni alterarlas, como mucho interrumpirlas brevemente. Pero son mecánicas, y las fuerzas que las dominan están escritas. Así que entre una persona y una piedra, en el fondo, no hay tanta diferencia. Eso sería ir más allá. Por eso pido porros. Porque todavía no quiero, y tengo fe todavía en que os pueda acorralar con el lenguaje lógico. Pero bueno, fácil salida tiene para vosotros eso también. Sería solo para irme con el papel de "INTENTO CONSEGUIDO PERO EN VANO".
-
-Es lógica. Por eso lo leo como que me estáis vacilando. Son matemáticas de primaria. Siempre voy a perder: siempre tiene ese margen la incertidumbre. ¿Explicarme mejor? Para qué. Si me repito mucho, es todo el rato lo mismo.
-
-Y pues eso, para ser parte del decorado de una prisión 3D tipo granja donde las élites están haciendo [corralito (porque yo no sé cuánto sabes, es como decir que estás en jaque económico por los bancos, de serie, 100% legal, y en un momento dado, pueden dejarte de dar dinero, buendo la mierda de la mentira de la economía tiene mucha basura, es solo uno de los aspectos de la basura económica actual)](https://es.wikipedia.org/wiki/Corralito) y te hacen trabajar sin conocer el estado de los recursos ni pistas siquiera apenas, pues no sé. Es como si me dieras ese margen, el margen de tener la razón y enviarlo todo al carajo. Pero además, con razón. Con ese margen de razón.
-
-Es casi como que cuando hablo con ellos, hablara con otro. Pero no quiere hablarme directo.
-
-¿No? No. ¿No? No...
