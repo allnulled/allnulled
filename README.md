@@ -16,4 +16,4 @@ Legado:
 - [El Lenguaje de los Porqués](https://github.com/allnulled/porque). Argumentación práctica. Podría mejorarse, y sería bueno. Ya no para la educación, para todos, porque hay que asentar teoría todavía aquí. Pero bueno, *en este mundo convulso...* gobernado por leyes lógicas constantes. *Sí, pero tan convulso...* Ya, ya, que no pueden dar porros. Ya.
 - [Homactógrafo](https://github.com/allnulled/constructor-de-homactogramas-3d-de-castelog). Este mola, estoy con este ahora.
 
-Y bueno, va siguiendo así hasta un total de 200. ¿Me contrata alguien, por favor, POR FAVOR?
+Y bueno, va siguiendo así hasta un total de 200. ¿Me contrata alguien, por favor, POR FAVOR? Y no, compañero *recruiter*, no tengo móvil, ni webcam, y no puedo pedírsela al vecino o a alguien. :) Si vas a llamar para reirte de mí, compañero recruiter, te buscaré y te esperaré en la salida. Si te quieres reir, ríete, pero morirás. Y harás sufrir a tu familia.
