@@ -1,6 +1,6 @@
 ¿Sabes qué? Vamos a plantearlo diferente.
 
-Os quise acercar el lenguae lógico porque, observando vuestra sociedad, está claro que no os han formado en lógica.
+Os quise acercar el lenguae lógico porque, observando vuestra sociedad, está claro que no nos forman en lógica, y eso es grave dentro de los sistemas animales inteligentes.
 
 Por eso hice [Castelog](https://github.com/allnulled/castelog), aunque antes hice NaturalScript y pedí financiación a algunas súperempresas tecnológicas, vía un correo informal. Pedí nada, apoyo simbólico, más que nada. Pues ni respondieron. Sin rencores: Microsoft, Oracle, IBM, Intel y no sé cuál más. Pero también a un montón de profesores universitarios. A nadie le interesa la lógica en lenguaje natural. xD Go fuck yourselves, fuckin nasty rats. Paralelamente... oh, [Scratch](https://scratch.mit.edu/) salvaje apareció (MIT + Microsoft). Con mis sintaxis integradas bonitamente. Y aquí no ha pasado nada. Porque que yo diga que las sintaxis me las han chivado metaseres, es una cosa. Pero no me refiero a ellos, ellos son personas, y lo han sacado después de mí, pero bueno, luego investigas y hay más lenguajes así silenciados, se los pueden inventar al vuelo, si da igual, no les voy a denunciar, solo es información: o son ratas, o son robots, pero muy personas, no parecen.
 
