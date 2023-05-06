@@ -74,7 +74,7 @@ Lo último es que ir más allá, pasa por aceptar que la vida es un camino de un
 
 Es lógica. Por eso lo leo como que me estáis vacilando. Son matemáticas de primaria. Siempre voy a perder: siempre tiene ese margen la incertidumbre. ¿Explicarme mejor? Para qué. Si me repito mucho, es todo el rato lo mismo.
 
-Y pues eso, para ser parte del decorado de una prisión 3D tipo granja donde las élites están haciendo corralito y te hacen trabajar sin conocer el estado de los recursos ni pistas siquiera apenas, pues no sé. Es como si me dieras ese margen, el margen de tener la razón y enviarlo todo al carajo. Pero además, con razón. Con ese margen de razón.
+Y pues eso, para ser parte del decorado de una prisión 3D tipo granja donde las élites están haciendo [corralito](https://es.wikipedia.org/wiki/Corralito) y te hacen trabajar sin conocer el estado de los recursos ni pistas siquiera apenas, pues no sé. Es como si me dieras ese margen, el margen de tener la razón y enviarlo todo al carajo. Pero además, con razón. Con ese margen de razón.
 
 Es casi como que cuando hablo con ellos, hablara con otro. Pero no quiere hablarme directo.
 
