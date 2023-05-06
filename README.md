@@ -1,3 +1,1 @@
-El algoritmo.
-
-El algoritmo de los sucesos de la realidad es cambiante. No comprendo, no puedo explicar la lógica. Pero sé que a mí me está comiendo de rabia porque traigo lógica. No quiere lógica. No quiere lógica natural. A mí, a mí me da por pensar que es porque sois robots, y podría comprobar con lógica más rápidamente todos los absurdos que han sido necesarios instaurar para crear este... escenario.
+Bueno. Que definitivamente, si las palabras sirven, será para otros. Me siento más entendido por el gato. Y sé que el gato tampoco está en mi bando, pero al menos no me mete en conflictos así. Da mucha rabia, yo creo que lo puede entender cualquiera que quiera. Llevo 200 proyectos, y sé que no me van a contratar. Yo no quiero trabajar para vosotros ya.
