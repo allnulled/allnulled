@@ -2,4 +2,4 @@ Alejaos de mí por un tiempo. Os voy a odiar mucho otra vez por la hierba. Y no 
 
 Se acabó ya la puta broma. Confitaos vuestra puta mentira. Y a ti, Dios, pues a jugar con tus putos muertos, a mí déjame en paz.
 
-Ts. 200 proyectos de gratis y todavía no tengo derecho ni a porros, ni a ingresos. Os voy a matar, putos mierdas.
+Ts. 200 proyectos de gratis y todavía no tengo derecho ni a porros, ni a ingresos, bueno ni a casa ni a educación ni a nada. Os voy a matar, putos mierdas.
