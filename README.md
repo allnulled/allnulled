@@ -32,4 +32,4 @@ Porque está escrito también. Es tu reino. Pero yo no soy tu mascota. Te he qui
 
 PERO POR SI CAIGO, 1 kilo de arroz = 1 €; 1 kilo de marihuana = 10.000€, ERGO, SÉ QUE TENGO RAZÓN. Si no lo quieres entender, gou.
 
-Hay muchas injusticias, pero si los huevos los acabo sacando por la marihuana, DAME MARIHUANA.
+Hay muchas injusticias, pero si los huevos los acabo sacando por la marihuana, MARIHUANA ES LA REIVINDICACIÓN.
