@@ -1,1 +1,1 @@
-OK. Mátame, Dios, si me quieres, mátame. Y libérame de tu esclavitud mental, yo quiero entenderte, pero no te soporto.
+OK. Mátame, Dios, si me quieres, mátame. Y libérame de tu esclavitud mental, yo quiero entenderte, pero no te soporto. Mátame tú, anticípate. Yo de tu juego estoy harto. HARTO. Y sí, también he pillado lo del Arturo, y el harto. Vete a la mierda, hijodeputa.
