@@ -13,4 +13,4 @@ Y bueno, esto seguiría hasta corderito de la mafia. ¿Por qué mafia? Porque lo
 
 Claro que te sientes sucio. Pero son muchos años, chavales, muchos años la misma historieta. Un día se tenía que acabar, está claro. Ya está, fin del cuento, que comenten lo que quieran, yo qué le voy a hacer si no pueden entender que estoy acorralado, bueno no pueden entender que son un corral.
 
-El lenguaje no sirve. Os odio demasiado, me habéis estresado para que piense prometiéndome dinero, y ahora escondéis la cabeza. Qué va, os voy a matar.
+El lenguaje no sirve. Os odio demasiado, me habéis estresado para que piense (informática) prometiéndome dinero (empleo), y ahora escondéis la cabeza (ah, es "mercado libre", nadie tiene la obligación). Pues ya está, os voy a matar, y haced conmigo lo que queráis, metedme en una puta del DAESH que la violan entre 50, estoy hasta los cojones de que uséis el miedo conmigo. Va, a la mierda, yo no lo aguanto más, y si no lo entiendes pues aléjate y fuera.
