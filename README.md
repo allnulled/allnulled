@@ -2,7 +2,7 @@ Así que me encerrasteis en una mentira llena de robots hasta que me quisiera su
 
 Con una canción tampoco lo explicaría, pero al menos dice lo que tu puta música no.
 
-Música: [https://www.youtube.com/watch?v=JVISRjhXzzM](https://www.youtube.com/watch?v=JVISRjhXzzM)
+Música: [https://www.youtube.com/watch?v=JVISRjhXzzM](https://www.youtube.com/watch?v=JVISRjhXzzM) (vel. 1.25)
 
 Letra:
 
