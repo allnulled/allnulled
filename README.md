@@ -18,17 +18,17 @@ La gente no comprende o no lo quiere comprender
 
 ----
 
-La economía es un juego para hacerte sufrir
+La [economía](https://portal.mineco.gob.es/es-es/ministerio/Paginas/Contacto.aspx) es un juego para hacerte sufrir
 
-El yugo del esclavo está pidiendo sacudir
+El [yugo del esclavo](https://www.cnmv.es/portal/Utilidades/Contacto.aspx) está pidiendo sacudir
 
-Derechos adaptados para no saber vivir
+[Derechos adaptados](https://www.boe.es/buscar/act.php?id=BOE-A-1978-31229) para no saber vivir
 
-Educación a medias para nunca discutir
+[Educación a medias](https://www.educacionyfp.gob.es/ministerio/direcciones-telefonos.html) para nunca discutir
 
 ----
 
-Gobiernos que no escuchan ni nunca van a escuchar
+[Gobiernos](https://administracion.gob.es/pagFront/espanaAdmon/directorioOrganigramas/gobiernoEstado/gobiernoEstado.htm) que no escuchan ni nunca van a escuchar
 
 Discursos de mentiras escritos pa desquiciar
 
@@ -48,9 +48,9 @@ Es la sala del tiempo y la salida hay que encontrar
 
 ----
 
-Te traje un lenguaje pero no lo apreciarás
+Te [traje un lenguaje](https://github.com/allnulled/castelog) pero no lo apreciarás
 
-Te rogaba un trabajo pero no lo entenderás
+Te [rogaba un trabajo](https://github.com/allnulled/infojobs-envio-automatico-de-cv) pero no lo entenderás
 
 Siempre estando a cero no se puede disfrutar
 
@@ -92,7 +92,7 @@ La tele está gritando que este mundo es una mentira
 
 El Twitter lo confirma: no hay nadie, soy la cima
 
-El dinero es la droga y lo han hecho religión
+El [dinero es la droga y lo han hecho religión](https://github.com/allnulled/economics-framework)
 
 Pues llámame pagano yo no entro en ese ciclón
 
@@ -110,7 +110,7 @@ De esperar un mundo cuerdo cuando es pura decadencia
 
 ¿Qué es esto, es una cárcel con diseño recursivo?
 
-¿Qué es esto, es el infierno? Tú me duermes, yo me olvido
+¿Qué es esto, es el infierno? Tú [me duermes, yo me olvido](https://es.wikipedia.org/wiki/Sue%C3%B1o_de_movimientos_oculares_r%C3%A1pidos)
 
 ¿Qué eres, la tiniebla? Pues dime por qué motivo
 
@@ -118,7 +118,7 @@ Hay tanta oscuridad, tanto caos y tanto ruido
 
 ----
 
-Lo llamas democracia, si solo es oligarquía
+Lo llamas [democracia](https://es.wikipedia.org/wiki/Democracia_directa), si solo es [oligarquía](https://es.wikipedia.org/wiki/Oligarqu%C3%ADa)
 
 Llamas economía a un robo con policía
 
