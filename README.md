@@ -246,5 +246,3 @@ Bueno, ¿y esto?
 
 Pfff... OK. Ok...
 
-Pues sí.
-
