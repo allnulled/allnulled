@@ -8,4 +8,10 @@ Sí, me dices eso, por un lado. Por el otro, me estás provocando a saco y meti�
 
 > ¿Por qué sucumbir? ¿A una provocación?
 
-OK. Pacto. A provocación no. Pero tócame, o vacílame en la cara 1, solo 1, que hasta luego.
+OK. Pacto. A provocación no. Pero tócame, o vacílame en la cara 1, solo 1, que hasta luego. Si da igual, si me vas a vacilar en la cara, y no una. Si ya lo haces. Eres un hij...
+
+> Resiste, compi.
+
+...
+
+> La comunicación es inútil. Aquí y en la cárcel.
