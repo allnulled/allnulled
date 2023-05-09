@@ -181,4 +181,6 @@ Y que llevo 3 semanas haciendo programación en 3D. Y ya tengo lo que quería te
 
 Sé dónde me estás llevando. Y no sé, no tengo fe en que nunca te vayas a mostrar, detecto que no sientes necesidad.
 
-Es mucha alienación para soportarlo. E igual se va para un "Dios que quiere jugar", que igual se va para un "Dios que quiere hacerme sufrir" o para un "Dios que quiere enseñar". Y a parte, seguro, para un "Dios que no se quiere comunicar" y para un "Dios que me pide que le entienda y a la par te trata peor".
+Es mucha alienación para soportarlo. E igual se va para un "Dios que quiere jugar", que igual se va para un "Dios que quiere hacerme sufrir" o para un "Dios que quiere enseñar". Y a parte, seguro, para un "Dios que no se quiere comunicar directamente" y para un "Dios que me pide que le entienda y a la par te trata peor".
+
+No sé. Es aprender mientras asumo collejas, collejas por no aprender. No me quiero enfrentar. Pero tú sabes lo que estás haciendo conmigo, a ti no te lo tengo que explicar. Es asumir el rol del parguela solo para tener margen de espacio-tiempo para seguir avanzando.
