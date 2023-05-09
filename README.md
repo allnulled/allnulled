@@ -1,3 +1,3 @@
 Vale, ahora llevo dos caladas de un porro reconstruído de 4 colillas de porro. Y puedo pensar.
 
-No es que no sienta nada por vosotros. Es que siento que nadie siente nada aquí excepto yo. Por eso en África son pobres y vienen en patera, en Europa del este hacen guerra ahora, y esos hijos de puta (Pedro Sánchez, sí, y toda su mafia, sí, y toda la oposición, sí sí, todos, TODOS, ESTO NO ES UNA DEMOCRACIA, PREGUNTAN CADA 4 AÑOS QUÉ COLLAR QUIERES, NI SIQUIERA ESCOGES EL PERRO) siguen haciendo de las suyas en banda ancha. Porque estáis muertos en vida, sois zombis, sois robots, me llamáis yonki a mí y vosotros vais a por vuestra dosis de obediencia-premio cada día, cerdos de granja. No es un insulto. No para ti, sí para el cerdo.
+No puedo Dios. Has hecho un imperio muy asqueroso. Demasiado, no lo aguanto. El estado normal de las cosas es demasiado fascista para mí. Por eso quería porros. Pero tú quieres que sienta tu polla bien adentro, dilo, dilo Diosdemierda, dilo.
