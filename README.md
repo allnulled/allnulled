@@ -167,3 +167,12 @@ Baja y da la cara, ¿por qué vivo en un zulo?
 ¿Por qué te ríes de mí, si estoy atrapao en un bulo?
 
 ----
+
+
+He entendido bastantes cosas, no creas que no. Me vienes a decir que si no soy un penitente, no hay un lugar para mí aquí. No me vas a dar trabajo por mi irreverencia, ni dinero por consecuencia. Pero me permites reproducir Babilonia sin leyes naturales impuestas con BabylonJS. Y me pones la prueba, donde me dices, a mí y solo a mí, que son robots, que son-IA, que el gato puede estar vivo y puede estar muerto a la misma vez (Schrodinger), sí. Incluso re-construir Babilonia a mi modo, y explicárselo así a la gente por fin.
+
+Si lo he entendido. La pregunta es eso ahora, ¿no? ¿Soportas esa verdad, y continúas? ¿O te bajas ya?
+
+Tengo curiosidad. Pero no por saber cómo continúa el apaleamiento, ahora tendré que volver a pasar la abstinencia, y todo, los pensamientos, etc. Hambre, porque se me cerrará el estómago, no podré programar por bastante, y voy a tener ataques de odio que levantarás cuando se acerque el momento de la alienación.
+
+Sé que juegas. Me haces sufrir porque me das poder sin obligarme a interactuar con ellos. No me vas a enseñar a hacer MDMA tampoco. Ni me darás hierba. Pero me dejarás simular en el estado del PaloMan, que avanzaría a avatares realistas con el tiempo, los receptores y las cargas de todas las drogas que quiera inventarme.
