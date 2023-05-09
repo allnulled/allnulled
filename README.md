@@ -186,3 +186,5 @@ Es mucha alienación para soportarlo. E igual se va para un "Dios que quiere jug
 No sé. Es aprender mientras asumo collejas, collejas por no aprender. No me quiero enfrentar. Pero tú sabes lo que estás haciendo conmigo, a ti no te lo tengo que explicar. Es asumir el rol del parguela solo para tener margen de espacio-tiempo para seguir avanzando. Pero un margen muy justo para avanzar, y un nivel de parguela tipo doctorado.
 
 Y el avanzar va a hacer que me sienta peor con ellos. Para evitar esto, tengo que alienarme, pero no soy tan crédulo como para autoconvencerme de mi propia religión independiente en la que "tengo fe". Sé que todo lo que haga, no servirá. Y si sirviera, pues eso, ¿qué pasaría si me quedara aquí, en este punto, donde las cosas que hacía todavía no eran suficientes, no servían? Me duele pensarlo. Y me dolería no pensarlo cuando mi suerte cambiara. No sé.
+
+Y tú paralelamente en la relidad tratándome de averración y de que a ver si me suicido ya. Claro, por muy "hago robots.bullingear(tonto)" que sea para ti, por muy rápido, sencillo y fácil que resulte desde ahí, desde aquí es jodido. Ya te lo he dicho, yo me los creo.
