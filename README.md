@@ -1,7 +1,3 @@
-Voy a petar, yo os aguantaba porque tenía porros. No hay porros, no hay aguante. A la mínima, adiós. Vosotros sabréis.
+Vale, ahora llevo dos caladas de un porro reconstruído de 4 colillas de porro. Y puedo pensar.
 
-No sé, creo que todo lo demás que te pueda decir, no te importa tanto. Así que, pues esto. A la mínima. Y tengo ganas de que se me vaya la perola, solo necesito media razón.
-
-Al final, ni voy a ser dueño de mi vida nunca, ni voy a conseguir que me dejen en paz con la comida y los porros nunca. No sé cuál es tu objetivo en la vida, pero el mío no puedo cumplirlo Así que estoy de más, tiempo extra. Como mucho inmolarme en el Parlamento y llevarme a unos cuantos por delante. Pero ya ves, qué mierda de objetivo vital.
-
-Yo no monto una sociedad para tener a personas así. Si tú sí, ok. Yo no. Yo no soy de este lugar.
+No es que no sienta nada por vosotros. Es que siento que nadie siente nada aquí excepto yo. Por eso en África son pobres y vienen en patera, en Europa del este hacen guerra ahora, y esos hijos de puta (Pedro Sánchez, sí, y toda su mafia, sí, y toda la oposición, sí sí, todos, TODOS, ESTO NO ES UNA DEMOCRACIA, PREGUNTAN CADA 4 AÑOS QUÉ COLLAR QUIERES, NI SIQUIERA ESCOGES EL PERRO) siguen haciendo de las suyas en banda ancha. Porque estáis muertos en vida, sois zombis, sois robots, me llamáis yonki a mí y vosotros vais a por vuestra dosis de obediencia-premio cada día, cerdos de granja. No es un insulto. No para ti, sí para el cerdo.
