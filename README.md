@@ -85,3 +85,57 @@ Ya, pero ¿de qué era?
 > Es porque sufres mucho ejecutando la venganza.
 
 Ah. Cierto.
+
+----
+
+> Piensa que la venganza es solo ese momento. Luego no es tan guay.
+
+Ah. Entonces...
+
+> Entonces ahogado. Sabes que te tengo en mate desde el principio. Y ahora más, que sabes demasiado.
+
+Mmmm... Bueno. Sí, sí lo sé, sí.
+
+> Y te has apartado.
+
+Obvio. Se llama aprendizaje.
+
+> No hay mecanismos.
+
+Obvio. Se llama defensa.
+
+> Ya, pero necesitas entradas.
+
+Complicado.
+
+> Pues eso.
+
+¿Ese es tu plan? Tiempo.
+
+> Es el plan, el tiempo.
+
+...
+
+> Tus pensamientos cambiarán. Pero tus circunstancias no. Nadie te va a dar ni empleo, ni dinero, ni marihuana. Y cuidado no te quiten.
+
+Pues nada. Volvamos a lo de la venganza. Necesito repasar esa lección.
+
+> La venganza es solo para ti. Es el gustazo del momento. Te quitas la rabia. Pero entonces vienen otros. Y si proyectas, pasarás por una alienación.
+
+Sí.
+
+> La lógica de matar es contradictoria a vivir. Tendrás que alienarte para soportar estar vivo.
+
+Entiendo.
+
+> Por eso, ten cuidado. O no. Es lo mismo, solo que más tiempo, más camino.
+
+No queremos eso.
+
+> Pues no caigas.
+
+Ok. Cuesta encarar la vida como una sala de penitencia.
+
+> Mira el mundo.
+
+Sí. Sí...
