@@ -176,3 +176,7 @@ Si lo he entendido. La pregunta es eso ahora, ¿no? ¿Soportas esa verdad, y con
 Tengo curiosidad. Pero no por saber cómo continúa el apaleamiento, ahora tendré que volver a pasar la abstinencia, y todo, los pensamientos, etc. Hambre, porque se me cerrará el estómago, no podré programar por bastante, y voy a tener ataques de odio que levantarás cuando se acerque el momento de la alienación.
 
 Sé que juegas. Me haces sufrir porque me das poder sin obligarme a interactuar con ellos. No me vas a enseñar a hacer MDMA tampoco. Ni me darás hierba. Pero me dejarás simular en el estado del PaloMan, que avanzaría a avatares realistas con el tiempo, los receptores y las cargas de todas las drogas que quiera inventarme.
+
+Y que llevo 3 semanas haciendo programación en 3D. Y ya tengo lo que quería tener de base, y sé más o menos cómo seguir avanzando. Que la cosa está interesante. Si lo entiendo. Pero me obligas a alienarme por otro lado. Y luego me vas a seguir atacando. Hasta que los convierta de verdad, en mi mente, en robots, y ya me dé igual. Porque no soportaré estar reproduciendo la realidad, y que me sigas vacilando.
+
+Sé dónde me estás llevando. Y no sé, no tengo fe en que nunca te vayas a mostrar, detecto que no sientes necesidad.
