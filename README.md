@@ -15,3 +15,7 @@ OK. Pacto. A provocación no. Pero tócame, o vacílame en la cara 1, solo 1, qu
 ...
 
 > La comunicación es inútil. Aquí y en la cárcel.
+
+Si esto ya es una cárcel.
+
+> Es inútil.
