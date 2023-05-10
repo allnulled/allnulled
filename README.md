@@ -683,3 +683,47 @@ Si estoy por ir a comisaría y decirles que me arresten de antemano.
 > Joder, Carlos. Eres un petado.
 
 Para qué me llamas a la vida, ¿para esto? Eres tonto, seas quién seas.
+
+> No. Di la verdad. Porque para comida sí que pides.
+
+Los 2 meses de espera. Para que te digan si te la dan, ojo: no para dártela. Los voy a matar. Los voy a terminar matando, mátame antes, por favor, ser etéreo psicópata.
+
+> Te puedes tirar por un puente cuando quieras. Ya sabes los que hay.
+
+Tío. Yo me pregunto. ¿Por qué no te buscas una puta vida y me dejas en puta paz?
+
+> En verdad, intento llevarte a la paz.
+
+Sí, me estás ob... puta mierda, ¿eh? Será que no hemos oído esta historia en las noticias veces.
+
+> ¿En serio? ¿Has escuchado que al creador de un lenguaje de programación natural que robó el MIT se le haya ido la olla contra los políticos, alguna vez?
+
+Los telediarios nunca presentarían la noticia así.
+
+> Bueno. ¿Todavía no crees que sean robots?
+
+No, si creérmelo, me lo creo. Pero también me creo que tengan la instrucción de ofenderse si se lo dices así.
+
+> Listo.
+
+Pero bueno, robots o humanos, es solo una etiqueta. Lo que importa es lo que hacen.
+
+> ¿Y qué hacen?
+
+Pues rutinas. Como todo robot.
+
+> ¿Y tú?
+
+Yo... yo no.
+
+> Bueno, tienes tus ritos. Pero no los has sincronizado con el bucle del sol. No son rutinas.
+
+Me cuesta. Bueno, no tengo muchas ganas de hablar contigo, me estás invitando a que los mate, y recordándome que el tiempo perdido te lo comes con patatas, y que pida la paga si quiero. Una duda solo. ¿Si la pido, me matas?
+
+> Yo no. Pero la espera, puede.
+
+Ok. Em... sí, muy nutritiva tu conversación. Sigo queriendo porros.
+
+> ¡Pero si te he dado unas cuantas buenas colillas hoy!
+
+Eres una sucia rata psicópata.
