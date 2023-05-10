@@ -313,3 +313,27 @@ Tú quieres matarme.
 > Yo quiero liberarte.
 
 Vale.
+
+-----
+
+Pues para mí, eso de obligarme a meterme dentro es como meterme en la cárcel.
+
+> Es que no te lo crees. Pero estás en la cárcel.
+
+¿No te da pena llamar a tu creación, 'cárcel'?
+
+> Un juego es un bucle. Un bucle es una función atrapada en una repetición.
+
+Ya.
+
+> Una función encarcelada.
+
+Ya, ya.
+
+> El sol sale cada día por el mismo lado.
+
+Ese no es el problema.
+
+> No. Pero es un signo. Estás en un bucle.
+
+
