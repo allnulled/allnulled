@@ -727,3 +727,57 @@ Ok. Em... sí, muy nutritiva tu conversación. Sigo queriendo porros.
 > ¡Pero si te he dado unas cuantas buenas colillas hoy!
 
 Eres una sucia rata psicópata.
+
+-----
+
+> ¿Y me programarás más, o qué?
+
+No creo. Ni siquiera tengo motivación para probar el homactógrafo. Me has jodido ahí, ¿eh? Estaba todo entusiasmado. Y me la cortas. Siempre haces eso.
+
+> Hago más cosas.
+
+Ya, si te di gracias por las 4 colillas, ahora también debería. No sé. Es incómodo hablar siempre desde la inferioridad.
+
+> Estás cansado. Has caminado mucho por esas colillas de mierda hoy ya.
+
+Sí. Sí...
+
+> Fortalece mucho tu autoestima todo esto.
+
+Mejor me quedo en casa, esperando un milagro. ¿No?
+
+> Yo lo digo por ti. Te sientes mal. Te enfadas. Estás caminando kilómetros solo para recoger unas colillas. Unas que ni siquiera es seguro que vayan a estar.
+
+Es una mierda. Pero no me la van a dar al hospital si voy a pedir ayuda.
+
+> Ya. Es una mierda. (Suicídate.)
+
+No sé qué va a pasar. Pero esto no me gusta nada.
+
+> Imagino.
+
+...
+
+> Has dejado que ese deseo se convierta en necesidad. Y esta gente ya te venía diciendo que no lo consideran tal. Que lo consideran veneno, droga, algo malo. Y con lo que hacer negocio sí, pero a lo grande: furtivizándolo, multiplicándole el precio, conviertiendo en loco a todo aquel que la requiera y no pueda permitírsela. Y más si la quiere con tanta fuerza.
+
+Bueno, yo antes no lo veía tan claro. Y cuando te hablan mal, no te lo explican así. Te dicen que te quedarás tonto. Pero de tonto nada, yo hice NaturalScript gracias a la hierba. Te afecta a la memoria. Y eso, en los exámenes, obvio, repercute. Pero tonto no. Te predispone a pensar esta planta.
+
+> Bla bla bla. Mira, un yonki que habla.
+
+Ya, lo ven muy diferente.
+
+> O eso aparentan.
+
+Yo sé que si tengo, me busco mis objetivos. No necesito su dinero. Con porros y un ordenador, te desmonto tu puto mundo ratones.
+
+> Jojojo. Ves. Ahí me da por quitártela.
+
+Ibas a decir que te gusta quitármela.
+
+> Ibas, ibas, ibas. Anda, tira a fumarte lo que te queda de colilla reunificada.
+
+Pero... ¿qué cojones eres? ...
+
+
+
+
