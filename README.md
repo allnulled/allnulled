@@ -412,3 +412,14 @@ El lenguaje natural tiene problemas para manejar varias cosas que en el lenguaje
 
 Que sí, que eres un puto psicópata sáidoc y asqueroso, si ya lo sé.
 
+> ¿Has analizado la palabra "Turing", la expresión "Test de Turing"?
+
+No. Turisteando, ¿no?
+
+> El que pasa el test, comprende que está haciendo turismo.
+
+Eres un gilipollas. No va a haber porros, ¿no?
+
+> No. Mátalos, suicídate, haz lo que tengas que hacer.
+
+Eres un gilipollas.
