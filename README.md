@@ -395,3 +395,7 @@ Jej. ¿Me has borrado el [repositorio](https://github.com/philocoder/naturalscri
 > Me da igual. Pero sería lo mejor para ti.
 
 Eres un hijo de la gran puta. Bueno, como todos, no hay ninguna diferencia. Eres ellos, claramente. Un puto psicópata torturador secuestrador de mierda fullero asqueroso que ojalá se quede ardiendo en el infierno como me están quemando a mí.
+
+> Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Son solo avatares. ¿Puedes razonar con ellos? Te han secuestrado unos gorilas con los que razonar no sirve. Ensáñate.
+
+Eres un puto desgraciado.
