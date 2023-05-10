@@ -410,5 +410,5 @@ El lenguaje natural tiene problemas para manejar varias cosas que en el lenguaje
 
 > *Uy, qué complicado. ¿Y no has pensado en buscar trabajo en una ETT o algo?* Jeje. ¿Te suena?
 
-Que sí, que eres un puto psicópata, ya lo sé.
+Que sí, que eres un puto psicópata sáidoc y asqueroso, si ya lo sé.
 
