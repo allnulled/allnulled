@@ -382,4 +382,4 @@ Es muy fácil. Te hago un mermaid, el mermaid que no he podido reunir paciencia 
 
 ![El_porque_de_naturalscript](./mermaid-diagram-2023-05-10-134945.png)
 
-
+En tanto que los cerebros de las personas comprendieran la importancia y las bases del lenguaje lógico viviendo en el lenguaje natural, creo, creo que serían capaces de entender **cómo estoy con todos**. Incluso podrían entender darme porros. Para mí no pasan el Turing por eso. No son capaces de entender que conmigo, vas a tener que hacer una excepción, porque estoy loco, y me he ganado tanto la excepción como la locura. Pero esto es imposible, esto no lo podrían entender nunca. Me ha robado el hijodeputa más rico del mundo, y estoy recogiendo colillas. Iros todos a la mierda, mne  da igual que no lo entiendan, eran, son y serán puro retraso mental andante. Y me lo tengo que recordar a menudo, porque esperar algo que no sea la reacción de un retrasado, sería decepcionarse.
