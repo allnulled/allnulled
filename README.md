@@ -672,7 +672,7 @@ Sí, voy a reventar al final. Y no sé cómo. Me doy miedo.
 
 A la psicóloga le hicistes decirme, sin haberme visto nunca ni hablado, ya por teléfono previo a cita, que no me iban a ayudar. Y cuando accedí a que me diera cita tras 2 meses, dijo "vale" y colgó rápido. Me das mucho asco, eres muy odioso.
 
-> Pero... ¿por qué no has continuado yendo?
+> Pero... ¿por qué no has ido siquiera todavía?
 
 Porque me queda a 20 kilómetros que tengo que hacer a pata. Hijo de puta. Y no siempre hay ganas. Y además, que estoy muy mal, tengo miedo que me encierres. Hijo de puta.
 
