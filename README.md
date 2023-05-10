@@ -256,4 +256,8 @@ Una trampa de policías. Híjole-o. Hiiiiiiíjoleo. Te iba a decir que ellos tam
 
 > El flujo de las emociones.
 
-Sí, ya, ya...
+Sí, ya, ya... O *marihuana policiera*, ¿no?
+
+> Y sip.
+
+Está clar.
