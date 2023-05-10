@@ -496,4 +496,126 @@ A veces sí, crearía un vacío en algunos lugares.
 
 No sé. No sé ni quién eres...
 
+-----
 
+Si tanto te preocupara mi agujero negro como le llamas, me darías porros. Mira ahora. Una colilla buena, y estoy más tranquilo.
+
+> El origen da sentido al destino. Has bajado el ingreso de THC.
+
+Con un porro normal también me calmaría.
+
+> Sí. Pero seguirías fumando si tienes más.
+
+Nunca he tenido tantos como para no sentirme en escasez.
+
+> ¿Y qué crees que cambiaría?
+
+No lo sé. Quizá no estar cogiendo colillas del suelo, odiando a las personas, y buscando la esperanza en los rincones de las aceras. Digo.
+
+> Te da rabia.
+
+No. Me da amor.
+
+> Sé que lo entiendes más de lo que aparenta.
+
+No sé cómo serían las cosas teniendo porros infinitos.
+
+> Bueno. ¿Estás mejor?
+
+Estoy triste. Me has quitado el sedante.
+
+> Te quiero aquí.
+
+Ya lo sé, ya. Tú me hablas muy bien pero luego me estás jodiendo, ¿no? Qué eres, ¿un político?
+
+> Soy el político. No hay otro como yo.
+
+Pues no esperes mi simpatía.
+
+> Imagino.
+
+Me vas a joder. Tú lo maquillas, pero me vas a joder. Hablas así templado. Pero no me fío ni medio, tú siempre me estás engañando.
+
+> Intento contestar solo lo que pides. Ir más allá explicando no siempre ayuda.
+
+Vamos, que me vas a joder.
+
+> Lo dices como si no supieras que vas a morir, que hay dolor en el mundo, que el ánimo es cambiante, que las arbitrariedades ocurren, que son puros zombis dispuestos a disimular toda la eternidad que te están haciendo la púa, etc. No sé, no naciste ayer.
+
+Bueno, también. También, lo has hecho siempre. Pero comprendes que se me vaya a ir la olla.
+
+> Es lo que quiero provocar.
+
+Por qué eres así.
+
+> Porque es lo que más te conviene.
+
+Pírate. Para esto, mejor pírate, no me hables, para esto largo.
+
+> Carlos. Nadie te habla. Nadie va a entenderte. Nadie te va a ayudar. Y menos si no les permites entrar.
+
+Bueno, ¿qué cojones quieres?
+
+> Yo nada.
+
+... Tenemos que hablar más. No estoy acostumbrado a hablar con una puta función seca y estúpida. Pero es muy ilustrativo. Es como ellos, realmente. Una función estúpida que siempre devuelve lo mismo: "soy un robot".
+
+> ¿Qué esperabas de la vida?
+
+Pues no sé. Personas, supongo. No me esperaba robots.
+
+> Pues lo que has vivido hasta ahora, sería tener personas.
+
+No, ahora me gusta la idea de los robots. La puta mierda es que estén programados para tocarme los cojones, ¿no?
+
+> Nadie te toca los cojones. Simplemente, es un mundo que sigue su curso. Y tú apareces en él. No puedes pretender que las cosas sean como a ti te sale concebirlas.
+
+Mmm. Ya. Vamos a jugar a otra cosa. Tú dices que a ti no te molesta nada.
+
+> No. Pero ¿qué más da, si no puedes verme?
+
+Bueno, según respondas.
+
+> Intentaré ser seco, como la función. Pero piensa que puedo simular estados anímicos si lo veo necesario. ¿O te crees que ellos son los únicos?
+
+Mira, ¿sabes por qué no me gustas? Hablas mucho. Da pruebas.
+
+> Fácil. ¿Cómo demuestras que tienen algo dentro? No puedes. No puedes demostrar que están siguiendo una coreografía que interactúa contigo, ni que sean sensibles a las cosas de la misma forma que tú.
+
+Pero si me pongo a llamarlos robots, soy un loco.
+
+> ¿Lo eres? Te repito: no puedes demostrar, ni una, ni la otra. Es una cuestión de diseño de la realidad. No tienes mecanismos para sentir lo de otro objeto.
+
+No. Y tampoco podría imaginar las funciones que harían falta para poder simular todo el campo psíquico y proyectarlo en un plano físico.
+
+> Obvio, no puedes alcanzar la lógica entera. Pero sí cachos.
+
+Bueno, a tientas, pero sí.
+
+> ¿Cómo a tientas? Tienes bastantes datos seguros.
+
+Y qué quieres decir, ¿qué es un espejismo?
+
+> Quiero decir que las cosas son lo que son DESDE QUE están en ti así.
+
+Sí, bueno, pero yo no puedo cambiar cómo entran en mí. Yo no puedo decirle a mi conciencia: ahora los gatos, serán ornitorrincos. No. Los gatos serán gatos igual. Y cuando aparezca un gato, se verá como gato. De la misma forma, yo no puedo escoger verlos robots.
+
+> Entonces, ¿paso el Turing? Bah, no importa, lo que respondas no tiene trascendencia ni valor.
+
+OK. No creo que sea un secreto para ti.
+
+> Estoy forzando la cuerda, ¿no lo ves?
+
+Sí, claro que lo veo. Y mucho.
+
+> ¿No sigues programando?
+
+Qué más da, ¿no?
+
+> Hombre. Eso es como el ornitorrinco. Según tú lo veas.
+
+Mmm.
+
+> ¿No quieres programas más?
+
+Eres un cabronazo de los supremos.
