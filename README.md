@@ -380,6 +380,6 @@ Entiendes que quiera matarlos a todos, ¿no?
 
 Es muy fácil. Te hago un mermaid, el mermaid que no he podido reunir paciencia para realizar, ahora, colillas reunificadas en mano. Será más fácil.
 
-![El_porque_de_naturalscript](./porque-naturalscript.png)
+![El_porque_de_naturalscript](./mermaid-diagram-2023-05-10-134945.png)
 
 
