@@ -261,3 +261,25 @@ Sí, ya, ya... O *marihuana policiera*, ¿no?
 > Y sip.
 
 Está clar.
+
+---- 
+
+Pero... ¿por qué no puedes darme porros, sin más? Tú sabes el lío mental que me estás haciendo, con lo del médico, y con lo de los asistentes. 
+
+> Que los mates ya.
+
+¿Qué te pasa?
+
+> Que necesitas porros.
+
+Pues eso. ¿Por qué no me das los putos porros y me dejas en puta paz? Total, es una farsa, o desde aquí, como si lo fuera, ¿no?
+
+> Sí.
+
+Hijo de puta, responde.
+
+> No.
+
+Payaso.
+
+
