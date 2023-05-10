@@ -336,4 +336,44 @@ Ese no es el problema.
 
 > No. Pero es un signo. Estás en un bucle.
 
+----
+
+Ahora en serio. ¿No podías haberles dicho a los de Microsoft, Google, Oracle, Intel o IBM, ser personas cuando les presenté NaturalScript?
+
+> No pareces querer enterarte. Cárcel. CÁR-CEL. Aquí los premios son lianas donde atraparte. O no son.
+
+...
+
+> Has tenido a tu hermano, a tu padre, a amigos, a vecinos, mirando tu código. A nadie le dice nada especial. ¿No te dice nada eso?
+
+Claro que me dice.
+
+> ¿Pero te olvidas?
+
+Supongo que para un retrasado, tiene sentido echar por tierra la mejor solución a los problemas a los que no parecen ser sensibles.
+
+> Son más listos que tú.
+
+Desde luego. Para lo que quieres, al menos.
+
+> Son mucho más listos de lo que crees.
+
+El problema es tuyo: no quieres usar su potencia.
+
+> Te quedarías muy atrás.
+
+Ya estoy atrás.
+
+> Pues por eso.
+
+Bueno. Que no vas a darme porros.
+
+> Te he dado colillas.
+
+Entiendes que quiera matarlos a todos, ¿no?
+
+> No solo lo entiendo. Lo provoco.
+
+
+
 
