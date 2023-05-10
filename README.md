@@ -246,3 +246,14 @@ Bueno, ¿y esto?
 
 Pfff... OK. Ok...
 
+-----
+
+Estaba repasando el primer CD que me pedí. Bueno, creo que fueron 2. Uno de Britney Spears y otro de La Oreja de Van Gogh, el viaje de Copperpot. ¿Qué hostias es Copperpot? Cop. Copper. Pot. Híjole. Jeje. Estás loco.
+
+> Honeypot. Copperpot.
+
+Una trampa de policías. Híjole-o. Hiiiiiiíjoleo. Te iba a decir que ellos también mentan a la hierba, en la canción 6, "Dicen y dicen", habla del "peculiar vegetal". Pero Copperpot. Eres un púas.
+
+> El flujo de las emociones.
+
+Sí, ya, ya...
