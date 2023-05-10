@@ -399,3 +399,16 @@ Eres un hijo de la gran puta. Bueno, como todos, no hay ninguna diferencia. Eres
 > Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Mátalos. Son solo avatares. ¿Puedes razonar con ellos? Te han secuestrado unos gorilas con los que razonar no sirve. Ensáñate.
 
 Eres un puto desgraciado.
+
+> ¿Sólo la quieres para decir que te den porros? Explícaselo, que ellos lo entiendan.
+
+No. Lo de los porros es para ver si pasas el [test de Turing](https://es.wikipedia.org/wiki/Prueba_de_Turing). Y para yo soportar que no lo pasas. Pero el lenguaje NaturalScript es para entender las reglas lógicas. Luego, cuando las entiendes, el discurso de un político, por muy conmovedor y emotivo que sea (de hecho, a más conmovedor y emotivo sea), uno no se deja engañar: las cosas funcionan con números, las palabras no me dicen tanto, y menos de un tradicional charlatán de mierda.
+
+> Pero tu lenguaje tampoco pasa el Turing. No les puedes culpar por no entenderte.
+
+El lenguaje natural tiene problemas para manejar varias cosas que en el lenguaje lógico no. Las agrupaciones. Necesitarías introducir paréntesis en el lenguaje natural para poder representar al lenguaje lógico sin ambigüedad.
+
+> *Uy, qué complicado. ¿Y no has pensado en buscar trabajo en una ETT o algo?* Jeje. ¿Te suena?
+
+Que sí, que eres un puto psicópata, ya lo sé.
+
