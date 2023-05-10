@@ -619,3 +619,67 @@ Mmm.
 > ¿No quieres programas más?
 
 Eres un cabronazo de los supremos.
+
+-----
+
+¿Y si me quedo en bucle?
+
+> Error de pila.
+
+Buscando colillas. De porro. Para el resto de mis días.
+
+> ¿Lo resistirías?
+
+Si son dos días.
+
+> Pareces bastante sano. ¿Aguantarías esto hasta los 70?
+
+No creo.
+
+> ¿Y qué crees que interrumpiría el bucle?
+
+No lo sé. Un atropellamiento, una lesión.
+
+> ¿Por qué no pides la ayuda?
+
+Porque tú no me dejas. Legalmente, me has bloqueado durante mucho tiempo poder recibirla. Y luego mentalmente, para que no la pida. Y todavía. Bueno, y cuando me he decidido a pedirla, pones unos seguratas de mierda, me das el error de Java de la web de la seguridad social, en fin, me dejas sin móvil y no me dan cita... en fin, ¿no?
+
+> Pero tienes que seguir.
+
+¿Qué lógica hay detrás de eso?
+
+> La lógica de que no la pidas.
+
+¿Por qué?
+
+> Este es el imperio del mal. ¿Cómo ibas a pedirles dinero?
+
+Ya estás vacilándome.
+
+> A ver. ¿He dicho algo incorrecto? 
+
+No, no. Bueno, estoy recogiendo colillas del suelo, pero no es tan asqueroso como pedirles dinero a los polí... polí... políticosdemierda. No me sale decirles de otra manera.
+
+> Pues eso. A colillear.
+
+Voy a reventar.
+
+> Revienta.
+
+Sí, voy a reventar al final. Y no sé cómo. Me doy miedo.
+
+> ¿Por qué no pides ayuda psicológica?
+
+A la psicóloga le hicistes decirme, sin haberme visto nunca ni hablado, ya por teléfono previo a cita, que no me iban a ayudar. Y cuando accedí a que me diera cita tras 2 meses, dijo "vale" y colgó rápido. Me das mucho asco, eres muy odioso.
+
+> Pero... ¿por qué no has continuado yendo?
+
+Porque me queda a 20 kilómetros que tengo que hacer a pata. Hijo de puta. Y no siempre hay ganas. Y además, que estoy muy mal, tengo miedo que me encierres. Hijo de puta.
+
+> No, hombre. Tendrías que estar muy mal para eso.
+
+Si estoy por ir a comisaría y decirles que me arresten de antemano.
+
+> Joder, Carlos. Eres un petado.
+
+Para qué me llamas a la vida, ¿para esto? Eres tonto, seas quién seas.
