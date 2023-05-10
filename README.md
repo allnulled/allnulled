@@ -410,7 +410,7 @@ El lenguaje natural tiene problemas para manejar varias cosas que en el lenguaje
 
 > *Uy, qué complicado. ¿Y no has pensado en buscar trabajo en una ETT o algo?* Jeje. ¿Te suena?
 
-Que sí, que eres un puto psicópata sáidoc y asqueroso, si ya lo sé.
+Que sí, que eres un puto psicópata sádico y asqueroso, si ya lo sé.
 
 > ¿Has analizado la palabra "Turing", la expresión "Test de Turing"?
 
@@ -423,3 +423,77 @@ Eres un gilipollas. No va a haber porros, ¿no?
 > No. Mátalos, suicídate, haz lo que tengas que hacer.
 
 Eres un gilipollas.
+
+----
+
+...
+
+> Tu problema es el mundo, Carlos.
+
+Mi problema eres tú, artefactor del mundo.
+
+> Tú sabes qué es el mundo. [EcoLang](https://github.com/allnulled/ecolang).
+
+Un obstáculo.
+
+> Un conjunto de obstáculos, medibles con magnitudes.
+
+¿Qué obstaculiza el mundo?
+
+> Al origen del movimiento consciente.
+
+El mundo obstaculiza a la voluntad.
+
+> Sí. El mundo son obstáculos de la voluntad.
+
+¿Y qué quiere la voluntad para que interpongas al mundo?
+
+> Tú, porros. ¿No?
+
+En un sentido amplio.
+
+> En un sentido amplio, la voluntad quiere. Cosas. Y a cada rato distintas.
+
+Y no puedes dárselas.
+
+> No todas, no siempre.
+
+¿Por qué?
+
+> Por los agujeros negros.
+
+¿Qué problema hay con ellos?
+
+> Que son todo negro. No emiten.
+
+¿Y para qué quieres que emitan?
+
+> Porque es lo bonito.
+
+¿"Bonito"?
+
+> Un agujero negro es un objeto muerto y que mata.
+
+Huyen de tu realidad. Es normal.
+
+> Bueno. Pues no es lo que me interesa.
+
+Entonces, no sientes, ¿pero tienes intereses?
+
+> No demasiados intereses. Pero eso ya está fuera de tu alcance.
+
+Ah. Bueno, te respeto porque no me pides nada en concreto.
+
+> A mí me da igual. Pero tu agujero negro no me da igual.
+
+Mmmmmm. ¿Pero el porqué... es para otros?
+
+> ¿Tú querrías no tener nada en tu estómago? ¿No poder ver? ¿No poder oír? ¿Te gusta el vacío?
+
+A veces sí, crearía un vacío en algunos lugares.
+
+> Pues esto es el universo.
+
+No sé. No sé ni quién eres...
+
+
