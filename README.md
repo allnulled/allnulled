@@ -282,4 +282,34 @@ Hijo de puta, responde.
 
 Payaso.
 
+----
 
+Te llamo hijo de puta porque tú me metiste aquí.
+
+> Lo sé.
+
+Bueno, y ¿por qué no quieres darme porros?
+
+> Es el mundo el que no te gusta, no la sobriedad.
+
+Pero con la sobriedad noto más a ese mundo que no me gusta.
+
+> Ya. Pero los porros no van a cambiarlo.
+
+He avanzado bastante la programación de tu granja de mierda. Les he traído lenguaje natural.
+
+> Era una tarea que te dejaba por hacer.
+
+¿Para qué?
+
+> Para que comprendas la complejidad.
+
+Que me mire dentro.
+
+> Sí, Carlos. Hay un juego pendiente ahí.
+
+Tú quieres matarme.
+
+> Yo quiero liberarte.
+
+Vale.
