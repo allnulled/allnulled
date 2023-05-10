@@ -389,3 +389,9 @@ Estos roedores de mierda me robaron: [Scratch / MIT](https://scratch.mit.edu/) c
 > No te pido que perdones, ni que olvides.
 
 Ya sabes cuál es mi respuesta contigo también. Tú eres el peor.
+
+Jej. ¿Me has borrado el [repositorio](https://github.com/philocoder/naturalscriptlanguage)? Quieres que termine esta puta mierda de tortura realmente, ¿eh?
+
+> Me da igual. Pero sería lo mejor para ti.
+
+Eres un hijo de la gran puta. Bueno, como todos, no hay ninguna diferencia. Eres ellos, claramente. Un puto psicópata torturador secuestrador de mierda fullero asqueroso que ojalá se quede ardiendo en el infierno como me están quemando a mí.
