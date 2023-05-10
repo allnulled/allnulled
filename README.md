@@ -374,6 +374,12 @@ Entiendes que quiera matarlos a todos, ¿no?
 
 > No solo lo entiendo. Lo provoco.
 
+----
 
+> Va, explícaselo. Explícaselo, por si lo están leyendo.
+
+Es muy fácil. Te hago un mermaid, el mermaid que no he podido reunir paciencia para realizar, ahora, colillas reunificadas en mano. Será más fácil.
+
+![El_porque_de_naturalscript](./porque-naturalscript.png)
 
 
