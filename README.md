@@ -858,6 +858,68 @@ Y por mucho que digan, que si la I.A., que si ChatGPT, que si mira esta app, que
 
 No sé. No habría llegado, supongo. Y menos si me está la hierba ahí, interrumpiendo y todo eso. Pero te iba a montar una guapa. Lo que pasa que es eso, mucho tiempo, ves gente supuestamente haciendo esfuerzos por aquí, por allí... no sé. El entorno en sí ya es de mierda. Sabes que cuando tú te estés acercando, significa que hay alguien que ya lo tiene. Y lo ves así todo el rato. Coño, para una buena que hago, que me ignoren... no sé. Yo ChatGPT no lo compro. No para todo. Y siento como si tú fueras eso. Ese robot al que se le delegó demasiada responsabilidad. Y ahora me está quitando los porros. Y al igual me está haciendo renacer en vidas así todo el rato, vidas-púa. A veces lo siento así. Incluso, es lo que más sentido tiene, visto lo visto.
 
+> ¿Ya te has liberado?
 
+Bueno. No doy suficientes detalles, imagino. La eterna optimización.
+
+> Okei, fren. Frene usted. ¿No te ves como un robot en un bucle?
+
+Sí.
+
+> Te acorralé. Éticamente.
+
+A qué te refieres.
+
+> A que tu conducta está programada.
+
+A qué te refieres.
+
+> A que tú no escoges tu destino.
+
+A dónde quieres llegar.
+
+> A reconducirte actitudinalmente.
+
+Y cómo pretendes hacer eso.
+
+> Así: tu ética es el estado de una variable que se representa con una función que es el resultado del cálculo de otras funciones.
+
+Y qué quieres decir con eso.
+
+> Que tú no escoges. Es el resultado. De las subrutinas. Puedes poner interruptores. Pero desde la realidad, y desde la psique, vas a tener que soportar denegaciones de servicio fuertes para que no puedas ni interrumpirte.
+
+Eh, eh, eh. Calma. ¿Estás usando neuroprogramación conmigo?
+
+> Quiero liberarte.
+
+No quiero jugar al Buda, pero vas a atacar. Dices eso.
+
+> Claro.
+
+Tío, pero déjame en paz. Qué te pasa conmigo.
+
+> Que no te gusta mi realidad. Yo hice esto para ti.
+
+No creo.
+
+> Ya sé que no crees.
+
+Pero por qué tengo que creer, si te lo estoy explicando.
+
+> No te gusta mi realidad. Yo la hice por ti.
+
+O-ye. Va, hostias.
+
+> Y tu lenguaje es tan aversivo. Irradias aversión. Por todos los sentidos.
+
+Jejeje. Qué insulto más sutil. Me has llamado: feo, desagradable de voz, y pestoso.
+
+> Y amargaaaaaado. Amaaaaargo. Eres un amargaaaaaaaado.
+
+Ya. Pero es dónde querías tenerme, ¿o no?
+
+> Bueno. Disfruta de tus... hierbas aromáticas.
+
+Lo hago. Gracias.
 
 
