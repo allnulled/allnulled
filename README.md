@@ -843,3 +843,7 @@ Sobre la economía, el problema es que el dinero no es lo que valen las cosas. Y
 Ya sabes que lo desarrollaría mejor, en una aplicación. Pero soy demasiado detallista, y tardo mucho, y cuando lo consigo me saturo, y luego interrumpes el flujo de porros, etcétera. Lo desarrollo, pero tú ya sabes cómo lo haces.
 
 Entiendo que sin el incentivo hierba como motivante, a nadie se le ocurre ir por aquí. Aquí no hay dinero. Aquí hay el fin del dinero. Para mí no hay otra. Al menos, tal y como se concibe ahora. Continuarlo es una humillación. Supongo que el que no ha llegado, lo ve exagerado. Qué va. Todavía no me he acercado suficiente a explicarlo bien para que estos HDP no te lo hackeen y te conviertan en animal de granja sin que te des cuenta otra vez.
+
+> Tienes ganas de hablar.
+
+Cuando estoy con la hierba, generalmente intento sentirme constructivo. Al final, ya me ves, creando constructores. Estoy pendiente. Pero a veces siento que sin la hierba podría morir. Por eso hoy, aunque tenga hierba, no voy a programar. La programación es muy bonita. Pero el hecho de que me proyectes en la realidad que se paga, es muy duro. Es muy duro para mí soportarlo.
