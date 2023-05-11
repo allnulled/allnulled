@@ -778,6 +778,32 @@ Ibas a decir que te gusta quitármela.
 
 Pero... ¿qué cojones eres? ...
 
+-----
 
+No lo quieren entender.
+
+> ¿Quién te crees que los ha llamado, gilipollas?
+
+Tío, ¿qué mierda quieres, nen?
+
+> Yo nada. Eres tú el que necesita porros.
+
+Tú nada una polla. Tú quieres joderme. Y vienes a joderme. Y vas a joderme. Y luego me traerás una ventanita, por donde poder retomar la esperanza. Para luego volver a la carga, hijo de la grandísima y asquerosísima perra suprema.
+
+> No te pongas así. Te va a hacer daño.
+
+Malnacido hijo de la desgracia.
+
+> ¿Algo más?
+
+9€. La guitarra eléctrica. Pero para qué la putoquiero putomuerto. ¿No, maldito desgraciado? Pfff. Esto no me gusta nada. No.
+
+> Resiste.
+
+Sí, sí, pero la cara no la darás. Maldito mierdas que eres.
+
+> Resiste. Todo es temporal.
+
+Sí, sí, tú ríete. Tú ríete lo que dure esto.
 
 
