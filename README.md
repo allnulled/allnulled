@@ -806,4 +806,20 @@ Sí, sí, pero la cara no la darás. Maldito mierdas que eres.
 
 Sí, sí, tú ríete. Tú ríete lo que dure esto.
 
+-----
+
+> Describe qué ocurre cuando introduces la hierba en el momento en el que estás tan nervioso.
+
+Todos los músculos se destensan. Eso ocurre cuando hace mucho que no fumo. Sobre todo, las piernas. El corazón se acelera un poco. Los ojos se sienten diferente también. Y te desenfadas.
+
+> Describe la locura. Cómo es la locura, cómo la defines tú. No la locura de «persona que no atiende a la lógica». Lo que ellos llaman brote. Descríbelo.
+
+No es un brote. No existen los brotes psicóticos para mí, eso es una chorrada. No hay otro ser en mí que tome el control. Soy yo muy muy enfadado. Pero hay muchas formas de locura. No sé a cuál te refieres.
+
+> Por ejemplo, describe la locura de cuando piensas: «no tengo ni para pipas, cómo voy a tener para porros, voy a buscar unas colillas» y «les he dado todo lo que he hecho» y «y encima son cosas de valor real que no me han tasado y ahora tengo que estar cogiendo colillas» y «esa peña me ha robado la base» y «estoy intentando diseñar una economía y una política donde no se trate a la gente como animales sino como iguales». Cuando juntas todo eso. Cómo te sientes, explícaselo.
+
+Es como si te arrancaran algo de la barriga. Como si te faltara algo de dentro, y lo tienen ellos. Esa locura empieza ahí. Pero ahí aún no es locura, solo es enfado. Se eleva a locura cuando los otros músculos empiezan a cooperar para recuperarlo. Empieza el cerebro, por supuesto. Pero pueden o no seguirle los músculos. Evidentemente, me estoy salvando porque yo no tengo la costumbre de continuarla. Pero está haciendo presa.
+
+> Vale. Gracias.
+
 
