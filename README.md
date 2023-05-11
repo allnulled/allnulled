@@ -832,3 +832,10 @@ Y sí. El pensamiento de jodienda supremo es pensar que está hecho para eso. Pa
 
 Es un paradigma civil pretendidamente caótico, claramente. Es decir, por diseño, esta peña vive en un bug. Y todo será o no para crearme la ilusión. Yo no sé. Pero el resultado es eso. Me aislo mejor, porque son bombas ilógicas como individuo y como organización. Como individuo, pase. Pero como organización, se crea un conflicto global ahí. Pretendido, entiendo. No voy a jugar al Buda. No es mi juego tampoco.
 
+> ¿Volverás a programar algún día?
+
+Ahora iba a ponerme. Pero es que eso de estar en ahogado me tiene en ascuas. Me gusta programar. Y me gusta mucho lo que estoy haciendo. Pero no soporto la puta realidad. Y mis razones son esas: de política no he hecho un paper, pero porque me parece demasiado sencillo. No sé, puedo hacer un mermaid también. Supongo.
+
+![Politica_logica](./politica-logica.png)
+
+Sobre la economía, el problema es que el dinero no es lo que valen las cosas. Y nunca sabes cuánto valen las cosas. Porque eso no se te explica. Entonces, es básicamente lo mismo que el diagrama anterior, pero con el poder económico, que sirve para gestionar los recursos materiales, incluidos los seres humanos. No sé, es bastante de lógica, ¿no? Es decir, si la trama la hubieras puesto más adentro. Pero es que simplemente, es el estado de fascismo favoritista en política, y esclavismo favoritista en economía. Son... los números. Es una división. Del poder. Sin esa división, yo no sé cuánto hay, dónde está, quén lo tiene, cuánto se necesita, cuánto falta, cuánto pide la gente. No sé nada de nada. Sólo sé que tengo que buscar el billete. Así es muy fácil tramar mierdas.
