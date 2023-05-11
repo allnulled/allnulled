@@ -857,4 +857,7 @@ Y por mucho que digan, que si la I.A., que si ChatGPT, que si mira esta app, que
 
 
 No sé. No habría llegado, supongo. Y menos si me está la hierba ahí, interrumpiendo y todo eso. Pero te iba a montar una guapa. Lo que pasa que es eso, mucho tiempo, ves gente supuestamente haciendo esfuerzos por aquí, por allí... no sé. El entorno en sí ya es de mierda. Sabes que cuando tú te estés acercando, significa que hay alguien que ya lo tiene. Y lo ves así todo el rato. Coño, para una buena que hago, que me ignoren... no sé. Yo ChatGPT no lo compro. No para todo. Y siento como si tú fueras eso. Ese robot al que se le delegó demasiada responsabilidad. Y ahora me está quitando los porros. Y al igual me está haciendo renacer en vidas así todo el rato, vidas-púa. A veces lo siento así.
-  - 
+
+
+
+
