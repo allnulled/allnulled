@@ -1,5 +1,121 @@
 
 
+> ¿Te crees importante?
+
+Soy el centro del universo.
+
+> ¿Cómo te imaginas ser famoso?
+
+Como algo que no tiene vuelta atrás.
+
+> ¿Te gustaría?
+
+Creo que no mucho.
+
+> ¿Por?
+
+Porque no creo que se me diera bien. Ni sabría aprovechar lo bueno, ni sabría llevar lo malo.
+
+> ¿Entonces?
+
+¿Qué tiene que ver eso? Merezco estar en Wikipedia. He creado [Castelog](https://github.com/allnulled/castelog) y la religión del [Yonkipur](https://github.com/allnulled/yonkipur), entre otras muchas obras. Pero desde NaturalScript, yo ya merecía estar en Wikipedia.
+
+> ¿Y qué te dijeron?
+
+Que necesitaba credenciales de gente metida en universidades, o una pollez así. Y que podía empezar por ayudar en algunos artículos.
+
+> ¿Y?
+
+Y me dieron uno.
+
+> ¿Cuál?
+
+Uno de [realidad inmersiva](https://es.wikipedia.org/wiki/Tecnolog%C3%ADa_inmersiva).
+
+> ¿Por qué crees que te dieron ese?
+
+Para triguearme la psicosis. Psicosis, aquí la entiendo como la sobrecarga simbólica esa.
+
+> ¿Qué?
+
+Que me querías buscar las cosquillas mentales, supongo. Tú, ellos, bueno. Alguien, claramente.
+
+> ¿Te mola el [anuncio de la PS2, el de la montaña](https://www.youtube.com/watch?v=xRwgdZxYL-E)?
+
+Está curradísimo. Explicaste lo que me venía encima muy rápido y sencillo, la verdad que sí.
+
+> ¿Y el de la [chica alien](https://www.youtube.com/watch?v=YWmbUMStlGI)?
+
+También. Pero yo no soy valiente.
+
+> No es eso. Te he dicho muchas veces, que esto es más profundo.
+
+Sí, lo sé...
+
+> No, no lo sabes. Es más profundo.
+
+Cierto, no lo sé. Sé que me lo has dicho antes.
+
+> ¿Y?
+
+Pues que no lo tengo claro.
+
+> Eres el centro del universo.
+
+No porque nadie más lo vaya a reconocer.
+
+> ¿Comprendes?
+
+*No porque nadie más lo vaya a reconocer...*
+
+> Exacto. Pero sí, mereces estar en Wikipedia. En un mundo distinto, sí.
+
+Mmmm... bueno. Tampoco es que me...
+
+> Claro que te importa. Habla del mundo en el que estás.
+
+Ya.
+
+> No, no, no... Escucha bien: *el que no te vayan a reconocer nada habla del mundo en el que estás*.
+
+Ya, ya. Y las llamas, y todo, y tal. Sí.
+
+> No. No me estás comprendiendo.
+
+¿Que no te reconozco el mérito yo a ti?
+
+> Qué asco das.
+
+¡Oye!
+
+> No, no me reconoces el mérito, eso es verdad.
+
+Que sí.
+
+> No.
+
+Explicar eso ahora no es buena idea, es tarde.
+
+> No lo expliques. Qué más da. 
+
+Ok, una explicación breve, quizás.
+
+> No, para eso nada. Vete.
+
+Un momento. Si tú no estás, ¿que me vaya de dónde?
+
+> Bueno, pues quédate. Tú sabrás.
+
+No necesitas que te reconozca nada.
+
+> Soy parte de tu experiencia.
+
+*"Soy parte de tu experiencia"*. Estoy cansado, ¿ok?
+
+> Sí, centro universal.
+
+Gracias.-----
+
 > ¿Qué quieres, plasta de los cojones?
 
 Tranquilo, ¿eh?
@@ -44,7 +160,7 @@ También he pensado que tengo que ir a saco contra tu creación, no tener compas
 
 > Pues sí. Remordimientos. Si es una tortura, ¿qué remordimientos?
 
-Ya. No se. Igual te ha salido mal, ¿no?
+Ya. No sé. Igual te ha salido mal, ¿no?
 
 > Tira a echar un hierbas, anda.
 
