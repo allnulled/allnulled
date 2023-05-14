@@ -923,3 +923,58 @@ Ya. Pero es dónde querías tenerme, ¿o no?
 Lo hago. Gracias.
 
 
+-----
+
+> ¿Qué quieres, plasta de los cojones?
+
+Tranquilo, ¿eh?
+
+> Sí, hombre, no me llores. Dime.
+
+Que me tienes saturado. Es algo que no sabría explicarle a un psicoterapeuta, sin que me mire cual Carl Jung esquizoideado. Pero... es una saturación de símbolos. Se congregan tantos significados en 1 significante, que me satura la cabeza.
+
+> Ajá. Por eso, antipsicóticos. Para que el hilo mental no llegue tan lejos.
+
+Y además, luego, tengo que estar comprobando la interpretación de los hechos desde la perspectiva de la teoría cosmovisiónica 1 y la teoría cosmovisiónica 3. La teoría cosmovisiónica 2 ni la computo.
+
+> Explícales, brevemente. Por si la teoría 2 o la 1.
+
+OK. La teoría 1 dice que todo es como dicen los telediarios. Hay humanos que se ríen de otros humanos.
+
+La teoría 2 dice que esos humanos que están en la jerarquía alta (pero también media y baja) no son tan humanos. Tienen otro funcionar. Y tienen conocimientos técnicos sobre la conducta humana que usan contra la sociedad humana.
+
+> ¿Y la 3?
+
+La teoría 3 dice que es el Yin y el Yang. Y que aquí solo estamos tú, y yo. Yin, y Yang.
+
+> ¿Y por qué te complica tanto esto?
+
+Porque una misma frase, dicha por el humano que tengo enfrente, tiene que ser procesada por 2 funciones: la que computa que es un humano, y la que computa que eres tú en forma de humano. Bueno, en esa forma concreta de humano. La primera función, tengo práctica, es más o menos rápida. Pero cuando los matches de significado se multiplican al procesarla por la segunda función... a veces me satura.
+
+> ¿Por qué?
+
+Porque eres el problema y la solución. ¿Qué quieres de mí?
+
+> OK. Ok...
+
+No sé. Podemos hablar de otras cosas. Pero en la teoría 3, no hay cosas. Hay extremidades tuyas. Es extraño, es una cosmovisión extraña, porque no deja margen, no sé... es una teoría de encerrona. Todo deja de tener sentido. Es todopoderoso. Qué cojones tengo que estar haciendo yo. Si es todopoderoso. Si quiere me hunde, si quiere me corona. Yo con señalar a la lógica me siento ya casi-realizado. Es decir, yo más no me puedo acercar al poder. El poder lo tienes tú siempre. Pero hasta el juego que propones continuar va perdiendo sentido. No lo sé. Es un nudo en el volitivo la 3º teoría.
+
+> Dije ok. Descansa.
+
+No, tío. El nudo sigue ahí.
+
+> Ya. Y seguirá.
+
+También he pensado que tengo que ir a saco contra tu creación, no tener compasión de que te hayas currado todo esto. Tengo que desmontártelo, sin remordimientos.
+
+> Pues sí. Remordimientos. Si es una tortura, ¿qué remordimientos?
+
+Ya. No se. Igual te ha salido mal, ¿no?
+
+> Tira a echar un hierbas, anda.
+
+Ves. Pues ahí me sabe mal. Y creo que no debería.
+
+> ...
+
+Ya, ahí no das respuestas.
