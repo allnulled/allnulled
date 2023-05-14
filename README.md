@@ -114,7 +114,64 @@ No necesitas que te reconozca nada.
 
 > Sí, centro universal.
 
-Gracias.-----
+Gracias.
+
+> ...
+
+¿Qué más me da, tío? No me vas a dar trabajo. Ergo, dinero. Ergo, porros. ¿Es así?
+
+> No los mereces.
+
+Define merecer. Bueno, no. No importa.
+
+> ¿Cuál es el precio de un porro? El precio justo, el precio exacto.
+
+El precio de un porro, según economía algorítmica, es la semilla + el cultivo + la cosecha + el secado.
+
+> Y eso no te dice siquiera si es una de interior, o exterior, cutre o pepino.
+
+No. Eso lo consigues con años de prueba-fallo.
+
+> ¿Y ese conocimiento, cuánto vale?
+
+Pues eso, años de prueba-fallo, análisis, etc. Supongo.
+
+> Pero es más fácil que las cosas surgen por creación espontánea.
+
+No. Bueno, es muchísimo más fácil. Y al universo le resultaría más económico. Por tanto, no es tan maquiavélico pensarlo.
+
+> Pensar qué. Estás colgado.
+
+Pensar que todo lo estás haciendo para mí, por mí.
+
+> Vaya tontería.
+
+No lo es. Es lo único que no es tontería.
+
+> ¿Es tu forma de reconocerme el mérito?
+
+No, es mi forma de decirte que te puedes parar cuando quieras.
+
+> Ok. Ve a echar un aromáticas... mientras te queden...
+
+Sí. Voy. Bueno, igual no. No sé.
+
+> Una cosa solo. ¿Por qué lo pones aquí esto?
+
+Porque bueno. Estás son mis credenciales de persona real. He pensado que para qué les voy a engañar: *yo no soy como tú, un robot*. Yo soy real. Y tengo pensamientos reales.
+
+> Jeje. Venga, pensador. A dormir.
+
+Sí, jeje, jeje. 
+
+> No te enfades. Estás atrapado. Y no porque te lo reconozca yo.
+
+Ts. Ts... pero es cierto.
+
+> Gou. Va.
+
+Meh...
+-----
 
 > ¿Qué quieres, plasta de los cojones?
 
