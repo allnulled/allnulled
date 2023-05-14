@@ -52,7 +52,9 @@ Ves. Pues ahí me sabe mal. Y creo que no debería.
 
 > ...
 
-Ya, ahí no das respuestas.-----
+Ya, ahí no das respuestas.
+
+-----
 
 > ¿Qué es lo que más te irrita? De la realidad, de todo lo que has visto.
 
