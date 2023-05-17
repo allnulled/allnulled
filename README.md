@@ -1,5 +1,183 @@
 
 
+> Supongo que quieres sentirte productivo.
+
+Y no puedo.
+
+> Ya...
+
+Nada sirve. Estás atrapado. Es que qué puedo decir. Ya desde [Aladín](https://www.youtube.com/watch?v=DM4iqr6yOz0#t=21m40s) te lo dicen, que vives en una trampa.
+
+> No sientes motivación.
+
+Ni retribución. Ni utilidad. Yo qué sé. Lo puedo enfocar de muchas formas, pero la respuesta es la misma. A alguien que busca la verdad, tirarle la lógica, es tirarle el mundo. Y [Castelog](https://github.com/allnulled/castelog) es **lo más representativo de la lógica** que he visto en mi vida. No es un trauma superable, no es simplemente orgullo. Son las bases del pensamiento racional, vehiculado por el natural, tirados para una persona. Encima, a favor de las universidades, que son los que celan con dinero los secretos tecnológicos. Y a favor de las tecnológicas punteras, que también. No sé qué soy yo para el [equipo de Scratch del MIT](https://scratch.mit.edu/credits), ni para nadie, pero para ellos, me haría gracia verte expresarte.
+
+> Hazlo para ti, ¿no?
+
+Ya lo he hecho para mí. La cosa es que... no sé, no quiero programar nada ya. El mundo empresarial, para mí es una [API HTTP REST escalable](https://github.com/allnulled/restologia) y un [constructor de interfaces gráficas](https://github.com/allnulled/constructor-de-apps-de-castelog). Aunque incompletamente, yo ya he hecho esas cosas. Mal, incompletamente, sí. Pero ya me han dicho que les da igual, que ni trabajo, ni nada por eso. Que tenerlo es solo para que soportes una inflamación tumoral en los testículos un poco más grande todavía que la de ayer. Es para que me exploten.
+
+> Pero luego te vas a sentir poco productivo. Ayer lo hablábamos.
+
+Mmmm... lo de que: *ningún ser es libre. Pero el ser moral, es un poco menos libre todavía, es más previsible.* Sí, lo recuerdo. Lo que se permite hacer está más delimitado. Por tanto, es más previsible.
+
+> Ninguno es libre.
+
+Porque todos se comportan dentro de los parámetros, para la omnisciencia.
+
+> Exacto.
+
+Pero el ser moral, tiene una constricción del rango conductual añadida a los parámetros biológicos y físicos, que se aplicarían por simplemente «ser».
+
+> Sí.
+
+¿Es aburrido para ti?
+
+> No existe la aburrición. Ni la diversión. Son combos. Explícales eso, va.
+
+Mmmm...
+
+> Primero, di por qué no necesitas religión para tener fe.
+
+Ok. Porque el diseño es inteligente. Se ve. En las plantas, se ve mucho, que es inteligente. La vida. Las formas que toman, colores, etc. Hay inteligencia aquí. Quizá la hubo, pero su eco persiste, es una inteligencia desbordante, dudas porque no puedes llegar a concebirla.
+
+> Ok. Qué relación tiene esto con el lenguaje.
+
+El software se escribe con lenguaje. En última instancia, lenguaje de ceros y unos. Y el software puede reproducir la realidad. Necesitas más hardware, más código, mejor código. Pero puedes encender y apagar luces de forma que puedes replicar la realidad. Digamos... el lenguaje soportaría la realidad. Que es algo que no es tan obvio como que: la realidad soporta al lenguaje.
+
+> Simplifica. ¿Qué es más grande, la realidad, o el lenguaje?
+
+Son equivalentes. La realidad es un símbolo de la mente. El lenguaje es un símbolo de la idea. Emmmm... «La realidad es un lenguaje. Y el lenguaje es una realidad.» ¿Sí?
+
+> Ok. Vale. Sigue. ¿Qué tiene que ver esto con la diversión? ¿Por qué para mí no existen, son solo combos?
+
+Porque... buah. Empieza por las formas, llegaremos a eso luego.
+
+> ¿Por qué la realidad, la realidad física, no es lo que era después de conocer [BabylonJS](https://www.babylonjs.com/)?
+
+Porque entiendes que con un lenguaje de programación y una serie de funciones puedes llegar a representar la realidad. Y ahora te enseñan que pueden llegar hasta ahí. Pero lo que te están diciendo es: *«de aquí, a la realidad, solo hay más funciones»*. Funciones matemáticas. Lógica de clases. Y mucha lógica abstracta. Y jamás has visto el código fuente. Y como mucho, necesitarías mejores ordenadores (hardware) para poder reproducir más rápidamente esa mayor cantidad de funciones (software). Y no soy matemático. Yo no voy a ningún lado solo.
+
+> Explica el símil del Gran Cañón para explicar cómo te sientes al respecto.
+
+Pues... antes de BabylonJS y Castelog y reflexión, lo veía como en [este proyecto](https://allnulled.github.io/expositorio/index.html), como el fondo de pantalla. Como en esta imagen:
+
+![Paisaje_1](https://allnulled.github.io/expositorio/lib/paisaje1.jpg)
+
+Porque bueno, haces cosas, ves proyectos... pero de ahí a la realidad, solo ves... una insinuación en el horizonte. Pero ver cómo funciona BabylonJS, las texturas, los poliedros, incluso hay librerías para físicas y colisiones como Ammo.js, para que se pueda hacer desde el navegador, que es un entorno ya de por sí poco óptimo, con un lenguaje de muy alto nivel como JavaScript, que es un lenguaje también poco óptimo comparado con ASM que sería lo puro. Esto último te hace pensar hasta dónde se podría llegar, sin siquiera salir de este tipo de hardware, optimizando solo el software. Pero no voy a hacer la prueba.
+
+El caso es que es muy fácil crear cosas [así en menos de 40 líneas](https://playground.babylonjs.com/#Z8HTUN#1). Fácilmente, te vas a [esto](https://rawcdn.githack.com/kripken/ammo.js/99d0ec0b1e26d7ccc13e013caba8e8a5c98d953b/examples/webgl_demo_vehicle/index.html). Y bueno, todos sabemos de juegos 3D, dicen que con Unity es muy fácil hacer juegos de este tipo.
+
+> Acabas de descubrir el videojuego 3D del siglo 21.
+
+Se podría decir. Ellos hacen juegos. Pero podrían estar haciendo películas, series, anuncios, programas de televisión, etc. ¿Qué les falta? ¿Más realismo? Son más funciones. O mejores funciones, vaya, funciones más pensadas. Que provechen las texturas de una imagen real. Y verás objetos reales. Personas reales. Con piel real.
+
+> Y encima van fardando de IA.
+
+Y encima van fardando de IA. ¿Qué quiere decir? Que tienen más funciones, mejor estudiadas, basadas en datos reales. ¿Es por intimidar? No, porque hay frameworks como [TensorFlow](https://www.tensorflow.org/js) (seguimos en el navegador, entorno muy poco óptimo), y porque es posible que usen números para mejorar números. Es decir, esto no quita que [Castelog](https://github.com/allnulled/castelog) sea clave para la evolución del cerebro de toda la especie humana literalmente, yo esto lo digo basándome en tu historia. El lenguaje importa. Y nos hace menos animales, se supone, SE SUPOOOOOOONE. No lo sé, me fascinan los perros y los gatos igualmente.
+
+> Bueno, y todo este rollo, qué tiene que ver con la diversión. Colgao.
+
+Sí. Siento no poder separar el código de las ideas, pero se entiende mejor. Pues las formas primero. Mmmm... desde los números sin más, se pueden describir fácilmente formas. Esferas, cajas, planos, conos, cilindros. Y otras formas. No tengo un vocabulario claro de formas tridimensionales. Pero éstas formas elementales y algunas más, de las cuales se tienen las fórmulas matemáticas, se pueden ir combinando para crear cosas más complejas.
+
+> Pero de eso a la realidad, hay un trecho-que-lo-flipas.
+
+Sí, sí. Y faltan más cosas. Los animales, las plantas, son objetos que siguen una jerarquía de clases, y una programación por clases. Y la genética es una disciplina que demuestra que esta lógica está mucho más rebuscada de lo que aparentemente podría parecer. Es decir: «HAY MÁS FUNCIONES POR EN MEDIO, MUCHAS FUNCIONES». Pero, simplemente, es eso, más código.
+
+> Sí, pero tú no eres físico. Ni químico. Ni entiendes una puta mierda.
+
+No, no... la verdad es que no. La realidad, entiendo, es la de los átomos. Pero la realidad, entiendo, también es la del ministerio de educación. Y el de universidades. Y todo lo otro.
+
+> Muy listo.
+
+Pero poco informado.
+
+> Tienes Youtube. Y miles de tutoriales.
+
+Sí... también tengo dentro complicaciones, limitaciones internas...
+
+> ¿Porque eres un ser moral?
+
+No es por moral esto. Es por... intentar memorizar más y mejor. Veo mis límites, veo las virtudes de una base de datos y las funciones facilitadas por ella, y mis defectos como ser humano. Memorísticamente. Es decir, cargar con traumas es parte de la memoria también. Y memorizar funciones.
+
+> Bueno, ¿y qué tiene que ver esto con la diversión? Que te devías.
+
+Pues que igual que se combinan las formas físicas del 3D, para que un pájaro volando parezcan dos triángulo, el sol es una esfera, la pupila una redonda, los dedos son cilindros, todo es así. En el fondo, todo son formas aproximadas de estas formas abstractas, combinadas de una manera.
+
+> ¿Y la diversión y la aburrición, dónde quedan?
+
+Pues igual que las formas se combinan, las ideas que están representando esas formas, también se combinan. Por ejemplo, la idea de casa, y la idea de luz. Y creo una casa fosforescente. O con paredes que tengan luces.
+
+> ¿Y?
+
+La diversión y la aburrición los puedes ver como una forma en que se puede medir el sensitivo. Dicho de otra forma, uno se puede sentir más o menos diversión y aburrición. Igual (pero distinto) que hambre, que calor o frío, que picor o alivio, etc. Son palabras que describen aspectos que, me lo crea o no, parece que tienen que ver con las hormonas, o cosas así, moléculas que están reaccionando con estructuras que están como esperando. Seguro que abarco mal la explicación, pero la cosa es que el cuerpo humano es una clase de objeto de la realidad. Y el mío es una instancia concreta de esta clase de objetos. Lo que, además, en este caso, yo estoy sintiendo todo a través de él.
+
+> Entonces, ¿por qué yo no siento diversión o aburrición?
+
+Porque se supone que esas estructuras, tú, no las tienes. No te condicionan.
+
+> Bien. Bueno, largo, denso. Y no demasiado bien. Entonces, ¿todo está programado?
+
+Sí.
+
+> Pero...
+
+Pero aspirar a igualarlo es una tontería.
+
+> ¿Porque...?
+
+Porque estás dentro de ello, estás limitado por ello.
+
+> Pero ello podría permitírtelo... ¿no?
+
+Sí, supongo. Bueno, con darte la sensación, ya estás. Igualarlo, no. Como idea así de imposible. Igualarlo... bueno, no sé, pero ni me imagino que es igualar a programar todo esto, comprenderlo y tenerlo controlado.
+
+> Nunca has visto un átomo, o una célula. ¿Por qué te lo crees?
+
+Porque... porque he visto bichos muy pequeños moverse, y el sol, y todo lo que funciona. En esto, el programar me mantiene muy arraigado a la causalidad. No tengo conocimientos muy técnicos, de hecho tengo muy pocos. Pero tengo las palabras, y me intento apoyar ahí.
+
+> ¿Y de qué te sirven?
+
+De mantener una defensa coherente. Al menos, aparentemente. Luego tengo incongruencias internas también, no soy pura coherencia. Pero al menos, lo intento. Y también intento aprender, y progresar. Pero se juntan muchas cosas, que controlo y que no.
+
+> ¿Agradeces tener lenguaje?
+
+No lo sé. No estoy seguro. Creo que sí.
+
+> ¿Agradeces tener realidad?
+
+No lo sé. No estoy seguro. Creo que sí. Ambos son hermosos. Miro, y todo de símbolos, en los escritos. Y todo de objetos, en la realidad. Creo que sí.
+
+> ¿Te imaginas otra cosa?
+
+Pues sería... no puede ocurrir, ¿no?
+
+> No sé. Cuando te duermes, ¿qué ocurre? ¿Desapareces?
+
+Sí, no sé. No sé, la verdad.
+
+> Bueno. No lo has explicado muy bien.
+
+Lo intento. Pero es demasiada locura.
+
+> ¿No ves que solo son objetos?
+
+Ni siquiera reconoces que lo has programado. ¿Con qué lo has programado?
+
+> Pues qué te crees. Solo te faltan librerías. Entiendo que sea un mazazo para ti. Por eso te hice finito.
+
+¿Por qué?
+
+> Para que no sufras por eso. No puedes igualarme: deja de intentarlo.
+
+Jej. Jejej. Cierto. Ok. Okei. Veré qué puedo hacer.
+
+> ...
+
+
+
+
+
+-----
+
 > ¿Te crees importante?
 
 Soy el centro del universo.
@@ -171,6 +349,7 @@ Ts. Ts... pero es cierto.
 > Gou. Va.
 
 Meh...
+
 -----
 
 > ¿Qué quieres, plasta de los cojones?
