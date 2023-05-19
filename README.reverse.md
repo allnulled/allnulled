@@ -1468,5 +1468,76 @@ Que te follen. ¿Cuál es la moral de los privilegios? Explícame esa.
 
 Ok.
 
+-----
 
+> Y qué quieres, ¿saber sobre la moral de los privilegios?
 
+Mmmsss... bueno, sí.
+
+> ¿Por qué?
+
+Por comprender qué cojones estoy haciendo mal para no disponer ni de tabaco ni de porros, o verme en esas cada dos por tres, vaya. Porque ahora puedo fumarme uno, pero si no, lo paso mal. Y no puedo hacer nada, ninguno de los tuyos va a darme dinero. Por poco que sea. A no ser que me ponga a pedir. Que igual, a la horas, o igual al día, reúno lo suficiente para un paquete de tabaco. O igual no, porque esto es como lo de que te contraten: nadie tiene la obligación.
+
+> Aix. Bueno, ¿ves una relación entre los "vicios" y el flujo del dinero? Ya ves algo. ¿Ves la relación entre "agachar la cabeza" y "ser humilde", y el flujo del dinero? Ya ves algo más. Tú eres un tío tomado por el vicio (porros, tabaco) y además eres poco humilde.
+
+No me sirve. Yo he aplicado miles de veces a trabajos, pidiendo incluso menos de lo legal. Y la respuesta es la misma. Por cualquier cosa, les he rogado que me dejen limpiar los WCs si es que eso les parece lo más sucio. Prostituirme, ya te digo yo, que si me tengo que prostituir, se acabó. Y pedir, lo dije muchas veces, pero aún y así accedí. No creo que repita muchas veces esa acción. Y creo que tú bien lo sabes.
+
+> Hay más cosas que entretejen la moral de los privilegios. Por ejemplo, es requisito saber ser cínico, mirar para otro lado, y hacer daño cuando hace falta, y asumir las injusticias como parte inherente e importante de la vida. Tú eso no lo sabes hacer.
+
+Pero no me darán una ayuda por ello.
+
+> No, al contrario. Te castigarán doblemente, por no poder hacer ese movimiento mental. De desprecio. De supremacía. De «yo merezco mi suerte». Ese movimiento... aunque parece que lo hagas, tu mente sigue haciendo los cálculos de «cómo serían las cosas si nos tratáramos como iguales». Eso, eso no sirve de nada, más que de meterte ideas en la cabeza que dificultarán tu adaptación a la moral de los privilegios.
+
+¿Por qué les premias? Si sabes lo que hacen.
+
+> Bueno. Considera que yo financio esa forma de ser. La promociono, y la asciendo. Claro, también necesito que me dé otros elementos: productividad, competitividad, profesionalidad, etc.
+
+Pero qué dices, hombre. Hay peña con pasta que lo que hace es complicarlo todo. Y tú les das pasta y poder por complicarlo todo. No me vaciles, «productividad, profesionalidad», dice. ¡Anda!
+
+> No sabes. Ya está todo hecho. Ahora lo único que se puede hacer es reusarlo. Pero... ¿por avanzar en las ideas? No, compi. Por eso no te voy a dar nada, lo único que me procuras es consumir el juego antes. No te puedo promocionar a ti yo.
+
+Pues mal me hiciste.
+
+> Bueno, porque no sabes. Pero tú cumples una función también. Es decir, la lata arrojada en el paisaje, también es importante. Esa pieza de suciedad también cumple un cometido.
+
+No sé, me cansa hablar contigo.
+
+> Porque te consumo los argumentos.
+
+Porque juegas a dos bandas.
+
+> Por eso te dije «intereses». Tus intereses, no son mis intereses. Pero me interesa que mantengas tus intereses. Para mí, para mis intereses.
+
+Es que una cosa es dar asco. Y otra es hacer tal virtuosismo.
+
+> Ya te lo he dicho. Tú no quieres saber sobre la moral de los privilegios.
+
+Pues no. No, la verdad.
+
+> Pero la realidad va a mantener sus protocolos, como todo buen sistema.
+
+Sistema de robotoides.
+
+> Tú, además, no esperas el favor. Tú esperas doblegar la ley. El Estado no negocia con tipos como tú. Y lo sabes.
+
+Sistema de robotoides comandados por un robot.
+
+> Carl, Carl, Carl... el zen puede que te ayude a digerirlo.
+
+Hablar desde el poder es fácil.
+
+> Te equivocas. Hablar desde ahí abajo es fácil.
+
+Ya, bueno. Em...
+
+> Te quedas sin argumentos.
+
+Es que tu argumento es que con dolor es más interesante.
+
+> El dolor es una necesidad.
+
+¿Una necesidad para qué?
+
+> Para el progreso.
+
+Eres un cabrón. Paso.
