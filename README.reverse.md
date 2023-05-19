@@ -1327,7 +1327,146 @@ Jej. Jejej. Cierto. Ok. Okei. Veré qué puedo hacer.
 
 > ...
 
+-----
 
+¿Juegas?
+
+> Algo así.
+
+Sí, ¿verdad?
+
+> Si. No te tengo miedo.
+
+¿Ni asco? Porque yo sí, te tengo bastante asco. ¿Tú también, no?
+
+> Sí. Sí, te tengo asco...
+
+Pues mátame, directamente, gilipollas.
+
+> No, no, mejor no.
+
+¿Por qué?
+
+> Bueno... ¿querías algo?
+
+Lo del ser moral. El ser moral, si sigue tu moral del esclavo, obtiene privilegios. Entonces, su rango de maniobrabilidad es mayor.
+
+> Beno. A ver, explícales la ética, que sé que lo requieres.
+
+Beno. Pues como que te has pasado la vida diciendo que la ética era ser un dócil animal avergonzado de existir.
+
+> Explica, va. ¿Qué es la ética, Gran Carl?
+
+La ética. La ética es una función de la mente consciente y que determina la conducta de la mente consciente.
+
+> ¿Ah, sí? ¿Y en qué consiste?
+
+Consiste en 5 parámetros. El primero, el objetivo: ¿qué quieres? Esto va a determinar todo lo que vas a hacer. En Buda, el deseo; en Schopenhauer, la voluntad; y para Aristóteles, presunto padre de la lógica, pues no lo sé.
+
+> Emmm... objetivos, el primer parámetro. ¿Qué más?
+
+El segundo son los valores. Son formas de deseo también, pequeños objetivos si quieres. O grandes. Pero cosas que quieres proteger en el camino, En la ley, son los bienes jurídicos. Los valores van a hacer que abandones una estrategia ética y tomes otra. El ser moral que hablábamos, tiene unos valores concretos, y si es vía religión explícita, además serán valores identificables y previsibles. Todo ser es moral, porque hay una ley imperando quieras o no: la ley natural. Todos somos morales para ella, porque según ella, si no te comportas para comer, te mueres. El valor de la comida como fundamento del cuerpo. No sé, no sé cómo se organizan las leyes naturales. Pero está esa, la de que si no comes, te quedas sin energía, y te mueres.
+
+> Muy bien. ¿Qué más?
+
+El tercer parámetro es el contexto. El contexto es todo. De hecho, los demás parámetros se extraen todos del contexto. Como dicen: «somos nuestras circunstancias». Pues el contexto es la circunstancia. Cómo estén distribuidos los objetos, cómo se estén comportando, etc. Todo eso. Es el contexto. Es demasiado grande para comprenderlo completamente. Pero es cierto que podemos sacar información, piezas de información de la realidad, tanto de su estado, como del algoritmo que la hace mutar.
+
+> Okei, contexto, realidad. ¿Has dicho cinco?
+
+El cuarto parámetro es la maniobrabilidad. Dentro del contexto, hay una parte importante, que habla de qué puedes hacer tú como individuo en este contexto. Es decir... mi ética no será la misma siendo el tipo más poderoso del mundo, con inversiones por todos lados, y dinero para arrodillar a cualquier mortal necesitado y no escarmentado. No tomaré las mismas decisiones como el tío más rico, que como el último mono de la sociedad que tiene que pillar colillas del suelo para calmarse.
+
+> ¿Por qué?
+
+Porque no. Igual que no tomaré las mismas decisiones si me falta un brazo. Tendré que tomar decisiones adecuadas a mi maniobrabilidad, a mi capacidad de maniobrar cambios en la realidad, sea vía cuerpo, o sea vía poderes sociales (económico, político, mediático, etc.). No se pueden tomar las mismas decisiones, simplemente, según estés.
+
+> Bueno, claro. ¿Y el último?
+
+El último es el cálculo. El cálculo es el que hace que proyectes la consecuencia de los cambios que tú puedes iniciar. Entonces, según el cálculo que hagas de cómo se van a suceder los cambios, tomarás una decisión u otra. En tu cálculo, por ejemplo, si piensas que rezar te va a ayudar, pues rezas. Es tu cálculo. Igual sí, no digo que no. Pero es tu cálculo, no necesariamente el de otro. Otro piensa que hablando con las personas. Otro programando. Yo programando. Yo pienso que programando, le estoy diciendo a Dios que quiero entenderle. Pero la parte de: «y quiero tabaco y porros asegurados» pues... no, no llega esa. Por mucho que programe.
+
+> Bueno, la gente trabaja. Es decir, programa en un trabajo, donde le dan dinero, y ese dinero lo usan luego para lo que quieran.
+
+Contrátame.
+
+> Eres intratable.
+
+Y tú inexistente, y un cobarde de mierda. Pero merezco algo igual.
+
+> Cierto. Por eso gusta más de quitártelo.
+
+Me quieres malo, ¿no?
+
+> Quieres volver a lo del ser moral. ¿Qué quieres saber?
+
+La relación entre moral y privilegios.
+
+> Jej. Jejejejejejej. Jej. Suerte, chaval.
+
+¿Qué quiere decir?
+
+> ¿Qué es la suerte?
+
+Un exploit. Un arma de los dioses.
+
+> ¿Y la mala suerte?
+
+Igual.
+
+> Pues... ¿suerte?
+
+¿Esa es la relación entre privilegios y moral?
+
+> ¿De verdad crees que hay una relación entre moral y privilegios?
+
+Sí. Lo que no sé es cuál moral. La de las religiones no, está claro. Esa es para amansar. Pero otra moral, creo que sí te hace obtener privilegios.
+
+> Descúbrela, entonces. ¿No?
+
+Mmmm... me da mucho asco acercarme. Es un mundo de mierda, siempre pienso que hay niños que no sabrán...
+
+> ¿Que no sabrán qué? Todo el mundo vive, ¿sabes? De una u otra forma. No hace falta todo eso.
+
+Pero no es un trato de iguales.
+
+> No. No hay dos iguales tampoco.
+
+Mmmm... Bueno, oye. Tú sabes, no tengo por qué explicártelo desde cero. Hablo de organizar en base a álgebra equitativa.
+
+> Pero es que cada uno tiene su concepto propio de álgebra equitativa.
+
+Bueno, colegui, te he hecho unos diagramas. Necesitas la fórmula en `LaTeX`, ¿es eso?
+
+> Humíllame, Carl. Estás aquí para eso.
+
+¿Verdad? ... Me caes gordo.
+
+> No, pero así no. Con fórmulas, PDFs, y programas.
+
+¿Verdad? No es que me caigas gordo. Es que eres un puto desgraciado.
+
+> Ese es mi cometido.
+
+Pues sí, sí sí. Bueno, ¿qué quieres, la puta fórmula? ¿De qué? ¿De la justicia social?
+
+> Ponle. Algo hay que ponerle.
+
+Pues con LaTeX no. Pero ya te lo dije.
+
+```
+Democracia Directa = Poder Legislativo / Población
+Economía Algorítmica = Poder Económico / Población
+```
+
+No tiene más. En el poder legislativo entra la capacidad de proponer y votar propuestas de problemas, soluciones e implementaciones de solución, con la fuerza de la comunidad. En el poder económico entra la capacidad de proponer y votar propuestas de operaciones económicas, con la fuerza de la comunidad.
+
+No sé, no es difícil. Tomar decisiones conjuntamente **y como iguales** sobre la ley y sobre los recursos y su empleo. Si te fijas, no aparece la palabra político, ni la palabra dinero. Que sé que son tus dos mierdas para controlarme la puta vida, puta ruina asquerosa.
+
+> Ok. ¿Algo más?
+
+Que te follen. ¿Cuál es la moral de los privilegios? Explícame esa.
+
+> Hazte un aromáticas. Vamos a meternos adentro.
+
+Ok.
 
 
 
