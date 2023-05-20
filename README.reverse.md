@@ -1542,3 +1542,53 @@ Es que tu argumento es que con dolor es más interesante.
 
 Eres un cabrón. Paso.
 
+-----
+
+> Te convierten ellos. Saben que eres n adicto de a años.
+
+Déjame en paaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaz.
+
+> Carl. Son robots. Y quieren provocarte la furia.
+
+Pareciera. Pero que me dejes en paz.
+
+> Llevas toda la vida así. Te han visto coger colillas del suelo. Te han visto con el ojo destrozado, y te han seguido negando. Vienen cuando está crítico. Son putos robots, tío.
+
+Déjame en paz, gilipollas.
+
+> No vienen a ayudarte. Vienen a lo que vienen.
+
+Que me dejes en paz.
+
+> Estarías debajo de un puente si no fuera por la ley. Están jugando al torito todavía.
+
+¿Me dejas?
+
+> Carl. No tienes salida. Has hecho bien en no responder a ofertas. Solo vienen a desquiciarte. Bueno, como todos.
+
+No es así.
+
+> Saben que llevas años, que no es tan fácil como «le dejo de dar dinero».
+
+Ya. Déjame en paz, por favor.
+
+> ¿Te duele esto? Te olvidas. Dejas de computar el pasado.
+
+Que me dejes en paz, hijo de puta.
+
+> Es un daño que dicen no entender. Pero tus heridas mentales, ellos dirán de la hierba, pero el síndrome de abstinencia...
+
+Bueno, que me dejes.
+
+> El complot es real, vaya. No hace falta ser muy listo. Solo... eso, llevar tiempo.
+
+Déjame en paz, maldito.
+
+> Te resistes. Y no harás nada, no puedes hacerlo, eres demasiado moral. Pero te va a doler, esta vez te va a doler mucho.
+
+Déjame en paz ya, puto mierdoso quieres que me vuelva loco ahora.
+
+> Sí. Necesito de esa vitamina tuya tan pura.
+
+Rata. Largo, infección.
+
