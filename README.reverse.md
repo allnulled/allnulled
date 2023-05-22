@@ -1592,3 +1592,67 @@ Déjame en paz ya, puto mierdoso quieres que me vuelva loco ahora.
 
 Rata. Largo, infección.
 
+-----
+
+> Ellos no saben de lo que hablas.
+
+Pues es lo que aprendimos en primaria de sumar, restar, dividir. Pero aplicado a que nos tratemos como iguales, no tiene mucha complicación.
+
+> Ya lo hemos hablado. Ver la verdad trata más de apartar las mentiras que de alcanzar las verdades.
+
+Ese juego sí que me tengo que inclinar. Parece increíble que no se vea. Pero es cierto, hace un tiempo, construir una aplicación para explicarlo, no solo era inimaginable, no era capaz de ordenarlo. Ahora, sin tener la base apenas técnica, estoy seguro de que lo haré, y que lo haré lo suficientemente bien. No importa que vaya sin guía. Puedo caminar por el palo igualmente. Antaño, esto me parecía imposible. Tener esta seguridad de que: (1) estoy enn lo cierto y (2) además puedo crearlo yo mismo artesanalmente pero bien, técnicamente bien, que esto antaño me preocupaba mucho.
+
+> Ok. ¿No hay mucho que añadir, no?
+
+Era el más importante este, ¿no?
+
+> Obvio, Carl. Mira el mundo. Pero... también entiendo que sea el proyecto de Github número 204 que subes. Necesitabas seguridad informática, confianza informática.
+
+Sí. Buen juego de palabras.
+
+> Sí, porque hackeable, hackeable... con que sanitices las entradas y no hagas pipeos a evals o consolas, y controles el rango de los ficheros, no sé, tampoco hay mucho más. Cualquier máquina se va a colapsar, el **DDoS** no es algo de lo que te puedas preocupar mucho, porque va de algoritmos, pero sobre todo va de hardware. Y eso está fuera del rango para ti.
+
+Sí.
+
+> Bueno, pues sigue.
+
+¿Lo dices como apenado?
+
+> Esto se acaba, Carl. Te estás haciendo mayor, este parbulario se te está quedando pequeño.
+
+No me digas que te da pena.
+
+> Llevas mucho tiempo por aquí.
+
+Me podrías haber cuidado un poco.
+
+> Necesitabas injusticias para tu sueño.
+
+Oh, qué feo.
+
+> Desde ahí se suele ver diferente.
+
+Mmm... imagino. Me haces sentir mal.
+
+> No, es natural, es el curso de las cosas. El tiempo nunca vuelve.
+
+Joé. Bueno, no me hagas ablandamiento, va.
+
+> Ok. Pues ahora tienes que volver a hacer el AUTH y el REST. A mano. Y bien. Un buen coñazo, vamos.
+
+Ya... no sé, lo he hecho tantas veces...
+
+> Sí, pero en todas, haces cosas mal. Hazlo bien ahora.
+
+Ok. Voy a seguir. No sé, no quiero estar en un sitio donde no comprenden que necesito un arbusto que esos llaman medicina.
+
+> Todos están en el ajo.
+
+Ok, bueno, déjame.
+
+> Ves procesándolo al menos. Que todos están en el ajo.
+
+Venga, ale.
+
+-----
+
