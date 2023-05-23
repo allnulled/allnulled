@@ -1656,3 +1656,43 @@ Venga, ale.
 
 -----
 
+> ¿Sí?
+
+¿Cómo eran esas 2 de ayer? El anagrama de «burócrata(s)».
+
+> ¿«Brok u, ra(s)ta»?
+
+Eso. Hijo de puta, ¿eh?
+
+> Bueno. Ya te he dado un arsenal de símbolos. Te sigues quedando ahí.
+
+Porque parece que te has tomado muchas molestias por inflarme los cojones.
+
+> Eso no lo sabes.
+
+Cierto. Diría, de hecho, que en verdad estás muerto. Solo eres una puta máquina tonta que repite su cometido hasta la eternidad.
+
+> Bueno. Tú no paras de escuchar las mismas canciones, que si «se llevaron tu ganja», que si «bun dem down», que si «santa rabia»... ¿qué haces con tu vida?
+
+Protegerme. De ti. De tus provocaciones. Que ya se escapan de las palabras, incluso.
+
+> ...
+
+Ah, ¿era por eso de que quería romper la realidad?
+
+> Y la realidad le rompió a él.
+
+Sí, bueno. Sí, sí sí, no te digo que no, malditos burócratas...
+
+> ¿Porque te rompieron?
+
+Porque sí, hay un dread mental que me tiene bloqueado. Dos meses, putos enfermos, antes voy y los limpio a todos.
+
+> Ya. Bueno, te dejo seguir.
+
+Jej. Si te tuviera a ti aquí no pensaría en limpiarlos a ellos, ¿sabes?
+
+> Soy una máquina, creo que te olvidas de ciertos datos importantes...
+
+Gou. Gou, trash, gou.
+
