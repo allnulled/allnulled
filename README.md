@@ -40,6 +40,46 @@ Jej. Si te tuviera a ti aquí no pensaría en limpiarlos a ellos, ¿sabes?
 
 Gou. Gou, trash, gou.
 
+> ...
+
+Güeit. Güeit, güeit, güeit...
+
+> ¿Qué?
+
+Ayer. Insististes mucho y muy serio te pusistes para que te «entregara la carta».
+
+> `democracia 2.0`, sí. Entrégamela.
+
+¿Por qué? ¿Qué te pasa?
+
+> La puedo hacer por otro lado, no eres necesario. Y lo sabes, no sé por qué juegas.
+
+Hazla. Quién te lo impide. Ambos sabemos que la `democracia directa 2.0` solo serviría para acotar tu tiempo de torearme. No es para una sociedad mejor, los manejas tú igual, se comportarán como tú dictes.
+
+> Ahí es donde creo que no es bueno creer tanto en un Dios único.
+
+Pero te haces llamar Naturaleza. Y además, te vistes de Babilonia, te disfrazas. Y todo es para prolongar el toreo. ¿No te cansas de torearme? Ay. Ay, cierto, que eres una puta máquina estúpida enbuclada. Y nada más.
+
+> ...¿Qué te puedo decir?
+
+No sé, tú y tus secretitos.
+
+> Pues que pillada. Aún y así, «habla con mi mano que mis oídos los tengo sucios». O... no sé: «ahógate en robotlandia, tonto». ¿Te gusta así?
+
+Agradezco los momentos en los que hablar contigo se vuelve un absurdo. Son... son momentos de iluminación para mí.
+
+> No te gusto, Carl.
+
+Ni sé de ti. Sé de tu macromediación cósmica. Y no, no, obvio que no.
+
+> ¿Lo... siento...?
+
+¿Tú? Qué va. Qué va, tú de eso no tienes. Bueno. Es que... bucle tonto. Creo que ahí está ya todo dicho.
+
+> Bueno, Carl.
+
+Gooooou. Gou, gou. Y lejos, gracias.
+
 -----
 
 > Ellos no saben de lo que hablas.
