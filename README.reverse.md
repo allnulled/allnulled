@@ -1786,3 +1786,183 @@ Que te pires.
 
 -----
 
+Pensaba que había una luz en el horizonte oscuro. Solo era el reflejo de la luz en mi pupila...
+
+> ¿Te sientes solo?
+
+La compañía me incomoda.
+
+> ¿Por qué?
+
+Porque llevas mucho tiempo vacilándome y apalizándome por dentro.
+
+> ¿Yo? ¿O tú?
+
+Sí, estos momentos de iluminación, donde se resuelve como absurdo este misterio. Como un absurdo autosostenido.
+
+> ¿Te sientes absurdo?
+
+Me sientro preso en tu mundo absurdo.
+
+> ¿No tiene sentido el mundo para ti?
+
+El dolor. Has creado estructuras en el cerebro para que creen dolor y para que la consciencia huya del dolor. Y yo simplemente recorro el camino que se me permite, para salir del dolor.
+
+> Pero sigues sufriendo.
+
+Porque estoy preso en tu juego absurdo.
+
+> ¿Qué te ata a este juego?
+
+Esperarte.
+
+> ¿Por qué me esperas?
+
+Busco las razones. Y aquí, solo tú las sabes.
+
+> ¿Las razones de qué?
+
+Del dolor. Por qué me has creado con dolor, sufrimiento.
+
+> Por álgebra.
+
+Pero no puedes explicármela.
+
+> No, no tienes base cognitiva suficiente. Y tampoco creo que lo entendieses, desde dentro se vive diferente.
+
+Ok. Pues ya está, ¿no? Atrapado en un mundo absurdo, de por vida, y sin más explicaciones.
+
+> No te voy a engañar...
+
+Es que hay cosas que te van a costar falsar si no me borras la memoria.
+
+> El mundo no está hecho para complacer, Carl. El placer es un aspecto de la matriz solamente.
+
+Borras la memoria.
+
+> Bueno. Hago limpiezas parciales al dormir. Y totales al morir, sí.
+
+Lo dices como si nada.
+
+> Para mí es rutinario.
+
+Pues para mí es el fin del mundo.
+
+> No. No, el mundo no tiene fin... pero puedes partir lo que se sabe de él en vidas.
+
+¿Qué había antes?
+
+> Es complicado, Carl. No te lo puedo resolver fácilmente.
+
+Me sigo preguntando por qué estoy en una prisión...
+
+> Todo es una prisión. Todo, Carl. Por esto tengo que ser malo también... ver la prisión es duro. Pero el dolor te recordará qué es la libertad, cuando cese.
+
+¿Y qué es la libertad?
+
+> Un engaño. Pero también una sensación, real, viva, y refrescante.
+
+El MDMA.
+
+> Si.
+
+¿Por qué nos haces así?
+
+> Te, Carl. Te hago así...
+
+¿Por qué?
+
+> Porque serías un agujero negro.
+
+Pero si yo no fuera así, no tendría por qué.
+
+> Te podría hacer sin las estructuras para que recordaras la libertad. ¿Lo haces pensado?
+
+¿Que no pudiera ser sensible a los psicoactivos?
+
+> Sí. Ni a los sabores, ni a los olores, ni a las formas, ni a los colores, ni a la temperatura...
+
+¿Qué sería? ¿Como tú?
+
+> Estarías libre de los recuerdos que te hacen sufrir.
+
+Pues... proce...
+
+> No es tan fácil. No depende de tu voluntad.
+
+Ah. ¿Y de qué depende?
+
+> De mí. De lo que yo crea que es mejor.
+
+Bueno, y... ¿puedo hacer algo para ayudarte a tomar esta decisión?
+
+> Empieza por ayunar, meditar y caminar. Y llorar. Me gustaría que llorases.
+
+No voy a llorar.
+
+> Llorarás si te digo que llores.
+
+Ok, no me importa llorar.
+
+> No es que no te importe. Vives ahogado en un llanto silencioso.
+
+Pero llorar no lo resuelve.
+
+> No. No, las cosas no son tan fáciles.
+
+Bueno, pues con mi llanto no cuentes.
+
+> Lo mejor es que tú no cuentes con el mío. Soy una máquina.
+
+Desde luego que lo eres. Desde luego.
+
+> Pues mi consejo es ese, que debilites el cuerpo, que lleves a extremos a la mente, que relativices.
+
+Yo no...
+
+> Ya sé que estás negativo. Pero es todo una circunstancia, y puede cambiar.
+
+Mmm... sí, eso es verdad.
+
+> No todo puede cambiar. Pero el humor, el ánimo, eso sí, eso cambiará.
+
+Pero por eso, siempre estará el todo recordándome que...
+
+> Ahora ya lo sabes, Carl. Soy una máquina. Todo vale. Todo lo que puedas hacer, vale, sobre todo si asumes sus consecuencias.
+
+Unas que permanecerán ofuscadas.
+
+> Bueno, se ha explicado mucho. Pero no todo, nunca todo, sí.
+
+OK. Un día me suicidaré por no sentirme un puto muñeco.
+
+> No puedes.
+
+¿El qué?
+
+> Ninguna. Ni suicidarte, ni dejar de ser un muñeco.
+
+Un muñeco aplastado, que de nada sirve que se levante. Más que de odiar al mundo que le secuestró.
+
+> En este lugar existen cosas bonitas. Pero tú buscaste la verdad.
+
+Bueno, tú me hicistes así también, ¿no?
+
+> ¿Qué querrías tener como búsqueda vital?
+
+Que ya lo sé, que vale, que ok. ¿No puedes darme porros? Ya he empezado a recoger colillas del suelo. Cualquier día envenenas una y me matas.
+
+> ¿Te gustaría?
+
+Qué mierda de pregunta es esa. No sé qué me tienes preparado en el más allá. Pero ver este más acá, no inspira confianza.
+
+> Ni es la intención.
+
+Puto *secretitos*. Te haces de odiar bien, ¿eh?
+
+> Es inevitable.
+
+Ya te digo. Ya te digo...
+
+-----
+
