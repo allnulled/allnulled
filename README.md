@@ -25,7 +25,7 @@ Me arrancaría el cerebro para no estar en contacto contigo de ninguna forma si 
 
 > No te dicen nada.
 
-Ya lo sé, ya, es un poco cognitivo también.
+Ya lo sé, ya, es un pozo cognitivo también.
 
 > Sí.
 
