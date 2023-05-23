@@ -1,4 +1,57 @@
+[Cronológicamente.](./README.reverse.md)
 
+
+
+
+-----
+
+Te repites, ¿no? «No es un juego, ya no es un juego». ¿Cuándo lo ha sido, puto imbécil?
+
+> ...
+
+VA, VAAAAAAA, PUTA RATA, DI, ¿CUÁNDO HA SIDO UN JUEGO, PUTA ESCORIA?
+
+> No puedo decir nada.
+
+Ya. Porque eres un miserable.
+
+> No sé, no puedo decir nada.
+
+Un puto bucle de mierda eres. Nada más, un puto bucle de mierda.
+
+> ¿Te sientes en un bucle?
+
+Me arrancaría el cerebro para no estar en contacto contigo de ninguna forma si eso fuera seguro.
+
+> No te dicen nada.
+
+Ya lo sé, ya, es un poco cognitivo también.
+
+> Sí.
+
+Bucle de mierda, bucle tonto y de mierda.
+
+> Por eso cagas.
+
+No, cago porque eres un bucle tonto.
+
+> Carl, sabes lo que tienes que hacer.
+
+Supongo. Tirarme por un puente.
+
+> Meditar.
+
+Tú me sigues vacilando post-mortem. Es eso lo que me quieres decir con eso, ¿no?
+
+> No, Carl.
+
+No pollas. Largo. Largo, maldito.
+
+> Vamos, Carl...
+
+Que te pires.
+
+-----
 
 > ¿Sí?
 
