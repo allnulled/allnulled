@@ -3,6 +3,54 @@
 
 
 
+-----
+
+Está bien, está bien. Cuesta de asimilar. Pero es así como sucede.
+
+Uno no encuentra trabajo. Ya ve que el mundo no es serio, y que los políticos están vacilando 24/7, y que lo hacen bien, son artistas. Claro, uno no llega a la conclusión de que "son simulaciones" como dice Lao Tse en El camino del Tao. No llegas a eso. Simplemente, sospechas... **¿qué palabra, en esa época, podía significar algo como «simulación»?** Pero ahí se queda la reflexión, tampoco hay iglesias taoístas cerca para debatirlo.
+
+Luego, por no quedarte sin empleo, buscas qué empleo no va a dejarte sin trabajo. Y vaya, «informática», nono, no informática, sino «programación». Que yo ni sabía que los programas se hacían escribiendo en ficheros. Y tenía más de 18 años: un poco triste. Y porque me lo enseñó un colega, si no a saber. Eso pensabas antes, "a saber".
+
+Empiezas en la informática. Todo siglas, todo nombres, cosas raras, complicaciones. Pero poder, el poder de decirle a una pantalla qué debe hacer. Y un montón de APIs prometiéndote **poder, poder, poder**. Y no contentos ahí, **trabajo, dinero, un trabajo sentado, bien pagado, cerca de los datos**... ¡qué atractivo!
+
+Entras. Y empiezas a probar. Y vaya, ya empiezan a molestarte: *para este software, tienes que instalarte nosequé, nosecuántos, y nosequemás, y configurar esto así, esto asá y aquello de esa forma*. Y vaya, ya empieza a olerse: *a todos les funciona, por qué a mí no, qué he hecho mal, qué le pasa a mi ordenador, qué me estoy dejando...* Y te empiezas a desmarcar. Ya empiezas a ver, que te dan programas enteros, con 1000 filigranas. Pero no te dan una solución **de facto** para todo. ¿Sistema operativo? Toma arsenal, pero Windows, de pago. ¿Navegadores? Escoge. Pero bueno... ¿Android? Venga que si jellyfish, que chocolate ice cream, que si strawberry delicious, y así... y si te coges la versión 11, te dejas esta API, y si coges la nosequé, ahora esta API ya no está, etc.
+
+Es difícil. La informática es difícil, entonces entiendo que cabrearse con los desarrolladores, es un poco tonto. Los desarrolladores son mataos que se tienen que mirar documentación de mil sitios. Pero es que da igual, piensa en los abogados. ¿No son unos mataos, memorizando todos los códigos que legislan esos? Y supongo, te paras a pensar en un político, que no tiene una base lógica ni la va a apreciar siquiera... ¿no es un matao también, parecido al abogado? Es una mierda, es todo muy complicado. Digo lo de la base lógica, porque si te quieres ir a dormir tranquilo por las noches, no dejas que las decisiones las tomen los cuatro de arriba, repartes el pastel entre todos, que es lo justo, y te olvidas. NI UNO hará eso. Pero eso es lo que se llamaría DEMOCRACIA. La verdadera DEMOCRACIA. Pues no la esperes despierto, porque no va a llegar en esta jornada.
+
+Bueno, ¿y todo esto? Todo esto es para decir simplemente que llegar hasta aquí y estar ENFERMO DEL CABREO es una cosa inseparable. Y claro, cuando sabes que no solo te van a quitar los porros, sino que nunca te van a dejar tranquilo con ellos, y que cuidado no te quiten el tabaco (que ya estamos sin), la comida, o cualquier cosa de las que ahora das por sentadas (que nunca lo son, porque no son derechos).
+
+¿Qué quiero decir? Que si hay alguien real ahí fuera, hostia, estoy intentando traer la `democracia directa 2.0`, os he traído `castelog` y tengo todavía más. ¿Que no lo aprecian? Claro que no. La informática es un campo falso, es el campo más falso de todos, de hecho. ¿Por qué? Porque ya tienen tecnología para crear películas enteras y subirlas a Hollywood solo 1 tío y 1 ordenador. Yo, un matao de garaje que no tiene estudios de ingeniería, te puede traer [el homactógrafo 3D](https://github.com/allnulled/constructor-de-homactogramas-3d-de-castelog) en solo 1-2 semanas de programación. Nunca había hecho 3D. Ahora, te pregunto. ¿Si yo puedo hacer esto en 1-2 semanas, qué puede hacer un equipo de tíos con ingeniería y sueldos, durante años? Pff. Pues te pueden hacer a ti, entero. Y si no fuera así, ¿FINÁNCIAME? Pues ellos dirán, ni una, ni la otra. Pero yo sé cuál sí. La uno.
+
+¿Estrés? Es uno. Llegar aquí, y desquiciarte a carne viva, es uno, es inseparable. Por eso, porros. Y por eso, ellos, porros, no. Ellos, porros, prohibido. No quiero mezclarlos, pero es medicina, y probablemente haya hecho un mal uso de ella, abusando tan pronto. De todos modos, he llegado. He llegado, y todavía no estoy ni cerca. ¿Siempre así? Pues ya está, me mato. Es más fácil.
+
+¿Y a quién le importa? Llegados aquí, a nadie. Hablo con Dios, o el Diablo, o el que sea ese. Pero ese quiere que me suicide. Porque le estoy desmantelando el juego. También porque él me deja pistas. Pero las pistas no es para que lo tenga más claro. Es para romperme, porque él controla la realidad. Entonces, por dentro, me está metiendo datos de que todo esto es un invento. Pero por fuera, no van a hablar claro, seguirán jugando al «Babilonia nos paga, tú eres un terrorista». Puede que sea cierto. Pero desde aquí, no se ve así. Desde aquí, se ve como si todos fueran Babilonia.
+
+Rebobinemos. ¿Un lenguaje de programación natural, y cogiendo colillas del suelo? Mira, si fuera al casino, me callaría la boca. Porque un casino, pues te dejas ahí todo el dinero que quieras, no hay límite. No es así, yo no uso así el dinero. Lo uso para obtener una sustancia, que me calma, y que en todo el planeta, hay 1 planta, que saca cantidades significativas, y otras que apenas nada. ¿Comprende alguien por qué digo que naturaleza y artificialidad, se difuminan? Las leyes humanas pueden ser malintencionadas (pensadas para abusar del poder y maltratarte), me lo creo. Pero en la montaña no hay alimentos, y si los de Servicios Sociales me dejan de dar alimentos: (1) en el súpermercado no puedo robar porque si ya por una bolsa de comida de gato me llevaron al Pere Matas (**¿Satán EreS?** ¿Yo, el puteado?) que es un centro de mentales, (2) la montaña no me va a nutrir. Y menos si espero que 16 años de educación obligatoria sirvan de algo. Qué va.
+
+Hay mala intención. Es decir, tú puedes ocultarlo, puedes hacerte pasar por alguien bueno. Pero este sitio es hostil, y es hostil por algo. Pero claro, si me tratas así, ¿qué jodida mierda quieres que devuelva?
+
+Bueno... me sé todas también. Todos me van a decir «jódete». Y lo sé. Por eso, estoy aquí pensando contra qué embestir, pero nada más. Ya sé que soy el toro. Y es para eso este diseño, ¿no? Para torearme, para hacerme bullying. Quiero terminar.
+
+Quiero terminar ya. No... puedo desarrollar amor por esta mierda de bucle sádico. No puedo, simplemente. Y hablar con la gente solo lo enciende.
+
+Gracias por la última señal. ¿Cómo es...? Este juego, abandonware. No he visto juego más idiota, o no lo recuerdo. Pero sí, aquí está:
+
+[https://www.myabandonware.com/game/ole-toro-6vy](https://www.myabandonware.com/game/ole-toro-6vy)
+
+"Olé, toro" de "Amstrad". Mi interpretación anagrámica: «Dar-T mas, olé toro». Si me das más porros, sería como hacerme el olé toro. ¿Es eso?
+
+En un mundo donde no jugaran con las personas, sería medicina. Pero aquí, el juego eres tú, y la medicina la usarán para pinzarte más, o para anularte. Pero no cuentes con ella.
+
+Yo esnifo el humo del porro, no solo lo huelo. Lo esnifo. Y he probado de fumar cocaína, esporádicamente solo. La marihuana tiene un efecto mucho más fuerte. Es decir... la marihuana es más peligrosa que la cocaína fumada, diría yo. No sé el efecto a largo plazo, no lo sé, ni quiero. Pero, ¿pipada de cocaína y pipada de marihuana? La marihuana es mucho más fuerte, lo que el efecto es totalmente opuesto, la cocaína te activa, la marihuana te tumba. El peligro viene ahí: ¿y cuándo no la tengo? Bueno, problemáticas de un yonqui.
+
+No importa, no importa. No estoy de nada tan orgulloso casi como de ser un yonqui. Es... bueno, mi forma de decir que los valores que han estado vendiendo a esta gente son los que les llevan a las guerras, las mafias, a las cosas feas de este mundo. La yonquicidad, para mí, es quedarse esperando el próximo tren, porque aquí no hay... no sé, luz, orden, claridad mental. Y cuando la hay, se impone la tontería, la moda, las impresiones. Los humanos... los humanos tal y como están representados aquí, son tontos, y no pueden dejar de serlo. Y no es su culpa: es de los que los educan. Porque, básicamente, no es una educación, es un proceso de desarme mental. Te desarman. La yonquicidad te arma. Lo que si eres tonto, ese arma puede tirarse contra cualquiera, pensaba yo. Claro, 16 años fumando marihuana y estando prácticamente en bancarrota perpetua... llega la hora de vengarse de los políticos. Y ahí es cuando te ves, y dices... ¿por qué? ¿Por mí? ¿Por ellos? Ellos no me quieren. Sé que los políticos menos, y que nos putean a todos. Pero... ¿por ellos? Ellos me matarían. Y me matarían con la sonrisa en la cara, intentando guardar las apariencias y todo. ¿Qué político ni político? Si son todos asquerosos.
+
+> Vale, Carl.
+
+Pírate, escoria.
+
+-----
+
 No quiero que hables esta vez.
 
 **RAM:** Memoria de Acceso Aleatorio. **Soy RAM**, ¿no?. **Sóc RAM**, en catalán.
