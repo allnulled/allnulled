@@ -1,7 +1,14 @@
 [Cronológicamente.](./README.reverse.md)
 
 
---- |
+
+
+Y otra cosa que añadir es que el tabaco es muy peligroso también, te pone muy nervioso. Yo he pasado muchos síndromes de abstinencia. Y no he aprendido todavía. Pero al final, la lección, será: «líbrame del mal, que no me quiere dar para calmarme». No lo entienden, parece. Pero creo que sí lo entienden, lo que pasa que son robots. Se creen que lo hago para darles el palo o algo, que yo no te quiero robar, puto retras... es una máquina. No sirve hablar, sirve decirle exactamente lo que funciona para que le haga el GOTO a la instrucción. Y yo no tengo su código fuente, no tengo las palabras mágicas. Tampoco me quieren dar trabajo, ni ayuda de ningún tipo.
+
+Me están acorralando. Todo, porque les estoy desmantelando el juego, cada vez estoy más cerca. No quieren que llegue a ese punto, porque el grado de delirio y psicosis sería tal que sí me atrevería con los políticos, cara a cara. Ninguna droga, ni ningún síndrome de abstinencia pueden llegar a ese grado de drogamiento: **teorízar y materializar el nuevo mundo mientras te mantienen recogiendo colillas para poder ingresar algo de nicotina**, ya no digo THC que es la sustancia encarecida por magnitudes de a 1.000. No, digo nicotina, que está encarecida, pero por magnitudes de 100-200. Dejo la tabla. Todas son vegetales igual, con sus características, pero vegetales:
+
+| Vegetal | Precio | Cantidad |
+| ------- | ------ | -------- |
 | Arroz   | 1€     | 1.000 gramos |
 | Tabaco   | 5€     | 30 gramos |
 | Marihuana   | 10€     | 1 gramo |
@@ -12,14 +19,8 @@ La aplicación de reglas de tres la puedes encontrar aquí: [https://es.calcuwor
 
 Ya sé que no hay más, que me quieren jodido. Pues vamos a hacer una cosa, no me déis nada. Pero tampoco vengáis, por favor, porque no es lo suyo. Y a Rubí, ya te digo yo, que no voy. No juguéis más conmigo, dejadme en paz, por favor.
 
------- | ------- | -----
 
-Y otra cosa que añadir es que el tabaco es muy peligroso también, te pone muy nervioso. Yo he pasado muchos síndromes de abstinencia. Y no he aprendido todavía. Pero al final, la lección, será: «líbrame del mal, que no me quiere dar para calmarme». No lo entienden, parece. Pero creo que sí lo entienden, lo que pasa que son robots. Se creen que lo hago para darles el palo o algo, que yo no te quiero robar, puto retras... es una máquina. No sirve hablar, sirve decirle exactamente lo que funciona para que le haga el GOTO a la instrucción. Y yo no tengo su código fuente, no tengo las palabras mágicas. Tampoco me quieren dar trabajo, ni ayuda de ningún tipo.
-
-Me están acorralando. Todo, porque les estoy desmantelando el juego, cada vez estoy más cerca. No quieren que llegue a ese punto, porque el grado de delirio y psicosis sería tal que sí me atrevería con los políticos, cara a cara. Ninguna droga, ni ningún síndrome de abstinencia pueden llegar a ese grado de drogamiento: **teorízar y materializar el nuevo mundo mientras te mantienen recogiendo colillas para poder ingresar algo de nicotina**, ya no digo THC que es la sustancia encarecida por magnitudes de a 1.000. No, digo nicotina, que está encarecida, pero por magnitudes de 100-200. Dejo la tabla. Todas son vegetales igual, con sus características, pero vegetales:
-
-| Vegetal | Precio | Cantidad |
-| -----
+-----
 
 Está bien, está bien. Cuesta de asimilar. Pero es así como sucede.
 
@@ -2042,5 +2043,4 @@ Que me limpie.
 > Resiste, y entiéndelo. Entiende qué sucede en ti. Y no caigas en el engaño: un poco de vez en cuando, te desatascará. Pero el magnetismo, ese al que ahora no eres sensible, volverá a aparecer, y lo notarás como algo diferente. Ahora ni lo sientes, estás tomado por el magnetismo.
 
 Ok. Gracias, sí, es verdad. Gracias por las 4 colillas de porro también. Me calmaron.
-
 
