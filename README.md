@@ -19,6 +19,14 @@ La aplicación de reglas de tres la puedes encontrar aquí: [https://es.calcuwor
 
 Ya sé que no hay más, que me quieren jodido. Pues vamos a hacer una cosa, no me déis nada. Pero tampoco vengáis, por favor, porque no es lo suyo. Y a Rubí, ya te digo yo, que no voy. No juguéis más conmigo, dejadme en paz, por favor.
 
+Matiz, supongo: ¿nuevo mundo? El mundo que pintas es un mundo de esclavos cegados, tanto educativa como informativamente. No, este mundo no correrá la suerte de autogobernarse. PERO CLARO, no es eso. Es que te atenta contra el Parlamento un genio que te ha hecho lenguajes de programación en castellano y te está trayendo la `democracia directa 2.0`, entrega en mano, sin royaltis ni pollas. Es muy barato darle la vuelta a todo este juego de esclavos. Pero... ¿quién le echa una mano? Ninguno, no cuento con manos. Pero ahí es cuando, acabarlo, ¿para? Si Marcos (Soc RAM al revés) también es un robot, ¿qué? ¿Qué estoy haciendo, para quién estoy trabajando? No hay niños. El único niño que existió, fuistes tú. Simulaciones, nada más. Así habló un sabio de China, Lao Tse, varios años antes de Cristo. Dicen. Créetelo, o no. El caso es que si no hubiera leído a estos tíos, yo ya estaría muerto seguramente. Lao y Buda. Las demás son tontas, personalmente. Taoísmo y budismo, aunque la conclusión final es «suicídate», te explican la relación entre sufrimiento y deseo. Claro, el yonqui ya no es deseo, es necesidad.
+
+Todo se vuelve absurdo en un momento. Todo. Por no tener la sustancia, ni ofrecerte un acceso a ella regular. Ahí es donde sabes que son robots, jodidos robots programados para hacer daño de verdad, por fuera, y por dentro. Si supieran qué es esto, no se interpondrían entre la sustancia y la persona. ¿Quieren una noticia en el telediario? Dan demasiada rabia, demasiada, no la puedo controlar. Me lo he ganado, realmente, no económicamente, REALMENTE.
+
+> «LO ECONÓMICO ES UNA FARSA SUPREMACISTA», HASTA AHÍ ME LO HE GANADO.
+
+Claro, para nazis ellos, nazi yo. Ellos son más, pero yo tengo menos que perder.
+
 
 -----
 
