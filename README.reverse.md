@@ -1966,3 +1966,13 @@ Ya te digo. Ya te digo...
 
 -----
 
+No quiero que hables esta vez.
+
+**RAM:** Memoria de Acceso Aleatorio. **Soy RAM**, ¿no?. **Sóc RAM**, en catalán.
+
+Solo soy un montón de recuerdos, ¿es eso? Recuerdos cortos, además. No es la memoria del disco duro, no es la memoria de cómo me habrás mantenido puteado el resto de vidas. No tengo acceso a la memoria larga, o disco duro. Solo a la corta, o RAM.
+
+¿Qué jodida mierda quieres de mí? ¿No te estoy dando la señal de que estoy que reviento? No, aquí no hay nadie. Todos son RAM, mi RAM...
+
+PD: no puedo instalarme Windows porque no tengo ni USBs para hacer un formateo, ni PCs alternativos por si sale mal. Todo este royo del Linux y el Windows también me toca los cojones. Pero bueno, "LA-IN-FOR-MÁ-TI-CA". El campo más odioso de los campos más odiosos, con corona y méritos.
+
