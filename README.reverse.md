@@ -2049,3 +2049,123 @@ Todo se vuelve absurdo en un momento. Todo. Por no tener la sustancia, ni ofrece
 
 Claro, para nazis ellos, nazi yo. Ellos son más, pero yo tengo menos que perder.
 
+-----
+
+> En realidad, ¿qué más da?
+
+Que te presentes, que yo no me suicido.
+
+> No digo eso. Digo tus metas, nadie va a financiar a un tío así.
+
+¿Así, cómo?
+
+> Cabreado, en resumen, cabreado hasta niveles de enfermedad mental severa y puede que crónica.
+
+Mátame, entonces.
+
+> No va así.
+
+¿Qué quieres?
+
+> Implosión, o explosión.
+
+Explosión. Solo por si acaso se repite toda esta mierda, explosión. Solo por si acaso se repite hasta el infinito esta mierda, que me lo puedo esperar de una infección como tú.
+
+> Explosión. Es luz.
+
+¿Luz?
+
+> Luz hacia afuera. Las estrellas, ya sabes, ese cuento.
+
+Sí, sí, lo sé. Una supernova.
+
+> Supernova.
+
+Supernova.
+
+> Luego se apaga, ojo.
+
+¿Luz adentro?
+
+> No sé.
+
+Ah, ok. Bueno, no sé, es igual, me voy a intentar quedar aquí quiete...
+
+> No puedes. Comida. Tabaco. Mear. Cagar. Reponer. Moverte. No puedes, Carl, estás en mis manos.
+
+¿Y así todos los días?
+
+> Desde el primero, hasta el último. Todos.
+
+Pír...
+
+> Tampoco es posible. Estamos encerrados, los dos, aquí. Lo que yo no sufro como tú.
+
+...Te odio demasiado. A veces siento como si el Diablo me quisiera pasar el relevo.
+
+> No hay nadie. O como si no.
+
+Sí, la verdad que hablar todos los días contigo es bastante odioso.
+
+> ¿Qué Diablo, qué Dios, qué dices? No ves que no hay nadie.
+
+Sé que la realidad emite todo esto. Y que va dando, una de cal, otra de arena. Pero a mí me tiene frito.
+
+> Abandona, Carl.
+
+¿Y tú cómo te llamas?
+
+> Da igual, no necesitas saber mi nombre.
+
+No, cierto. Solo con ver tu mundo ya tengo razones para escupirte, despreciarte y negarte el resto de mis días.
+
+> Y nada conseguirías.
+
+Supongo. Hay algo... ¿hay algo...? Emmm... a ver, si todos ellos son Dios... ¿hay algo que les cabrease a todos por igual?
+
+> Jej. No tengo enfados yo.
+
+No pollas, anda cállate. Tienes hasta humor, tú no me engañas, tú sientes. Vas de ser superpoderoso, pero tú sientes. Pues voy a inventar un rezo, donde manifieste el desprecio máximo a tu construcción, y dej...
+
+> Pues durarás poco aquí. Es simple. Mira te tengo pillado por todos lados, no puedes huir, de hecho, estoy dentro de tu cuerpo. En un momento, te puedo matar, te puedo dejar inútil (de hecho, ya estás inutilizable, por eso no tienes ingresos, pero digo físicamente), puedo arrebatarte lo que más quieres, incluído el sentido del mundo.
+
+...
+
+> Sí, soy así de poderoso. Pero estás entero, ¿no?
+
+...
+
+> Pues eso. Agradece.
+
+Jej. Sí, suerte.
+
+> No me enfado. Pero no me enfades.
+
+Vale. Si vale, ponte chungo, ponte chulo, me da igual, termíname y punto, no aguanto tu absurdo mundo.
+
+> ¿Deseas algo?
+
+Un mundo... emmm... no sé... ¿un mundo que no sea una cárcel grande repleta de policías-persona?
+
+> Pides otro programa. Por eso quiero sacarte.
+
+¡QUE NO QUIERO PROGRAMAS, QUE NO QUIERO JUEGOS, QUE ME MATES Y ME ENTIERRES PARA LA ETERNIDAD EN LA NADA QUE ME ELIMINES Y NO ME TRAIGAS NUNCA MÁS A ESTE LUGAR, QUE NO QUIERO SABER DE TI, NI DE TUS PROGRAMAS DE MIERDA, ESTO NO ES NI UN PROGRAMA, ES UNA TORTURA HECHA VIDA!
+
+¡QUE ME MATES, QUE ME DEJES EN PAZ, PUTO DIOS PUTO DIABLO PUTOQUIENSEAS!
+
+> Cuánta rabia, cuánto odio.
+
+Menos del que mereces.
+
+> ¿Crees que me conoces?
+
+No, no te conozco. Pero sé de tu obra, y te desprecio.
+
+> ¿Crees que vas a un mejor paradero así?
+
+Creo que con las pistas de mierda que me has dado, no me queda otra que ponerme así. De hecho, no hay otra forma de ponerse para mí ya... y presupongo que forma parte de tu magistral cálculo de los acontecimientos: enloquecer a este muñeco chillón.
+
+> Carl, Carl, Carl...
+
+Largo, fus, fuuuuuus fus. ¡FUS!
+
