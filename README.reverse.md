@@ -1976,3 +1976,4 @@ Solo soy un montón de recuerdos, ¿es eso? Recuerdos cortos, además. No es la 
 
 PD: no puedo instalarme Windows porque no tengo ni USBs para hacer un formateo, ni PCs alternativos por si sale mal. Todo este royo del Linux y el Windows también me toca los cojones. Pero bueno, "LA-IN-FOR-MÁ-TI-CA". El campo más odioso de los campos más odiosos, con corona y méritos.
 
+
