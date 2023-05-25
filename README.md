@@ -8,7 +8,7 @@
 
 > ¿De verdad crees que eres un genio?
 
-Mmmmm... yo no digo que haya otros genios. Pero sí, debo ser un genio.
+Mmmmm... yo no digo que no haya otros genios. Pero sí, debo ser un genio.
 
 > ¿Por?
 
