@@ -3,6 +3,63 @@
 
 
 
+
+-----
+
+> ¿De verdad crees que eres un genio?
+
+Mmmmm... yo no digo que haya otros genios. Pero sí, debo ser un genio.
+
+> ¿Por?
+
+Bueno. Encienden la tele, y no les están insultando.
+
+> ¿Y eso qué tiene que ver? Saben más, saben permanecer.
+
+¡Ja! Mira, putotonto, entérate. Tu bucle es tonto. ¡ES TONTO! ¡TU PUTO BUCLE ES TONTO!
+
+> Entonces... ¿por qué permaneces en él?
+
+¡PORQUE EL TONTO ERES TÚ, Y CAPAZ ME METES EN UNO PEOR!
+
+> Pero eso llegaría igual... ¿no?
+
+Te estoy esperando.
+
+> ¿A mí?
+
+Sí. Quiero hablar contigo. Quiero que me expliques qué mierda has hecho y por qué lo has hecho.
+
+> Hice un juego. Salió mal. Y así estás tú: mal.
+
+Estoy exactamente donde quieres que esté. 
+
+> ¿Y si no soy perfecto? Considera todas las variables que hay que programar y tener en cuenta, todos los estados, los cambios, cómo se pueden llegar a consecutir, es mucha información...
+
+Pues haces un programa que asegure, QUE ASEGURE que va a pasar por dónde quieres.
+
+> Y así está. Morirás. Pasarás por el punto donde hay que pasar.
+
+Pfff...
+
+> Olvida el cielo y el infierno. Irás donde te corresponda.
+
+¿En función de qué?
+
+> Si lo supieras, sabrías demasiado. Pero igual no importa lo que hagas aquí.
+
+¿Para qué esto, entonces?
+
+> ¿No has disfrutado?
+
+¿Y tú? ¿Has disfrutado tú?
+
+> Gou, Carl.
+
+Fakingasjol...
+
+-----
+
 Eres un gilipollas.
 
 > ¿Por?
@@ -52,7 +109,6 @@ Sí, ¿verdad? Ya entiendo que me mates, ya. ¿Quién te puede perdonar si no le
 > ...
 
 Piérdete.
-
 
 -----
 
