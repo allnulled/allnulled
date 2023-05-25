@@ -2169,3 +2169,55 @@ Creo que con las pistas de mierda que me has dado, no me queda otra que ponerme 
 
 Largo, fus, fuuuuuus fus. ¡FUS!
 
+-----
+
+Eres un gilipollas.
+
+> ¿Por?
+
+Por todo. Todo lo que haces, lo que proyectas. Te...
+
+> Sí, Carl, me odias...
+
+Sí. Me has dado mucho asco.
+
+> Eres vergonzoso.
+
+Porque así me hicistes.
+
+> ¿Para qué crees que sirve la vergüenza?
+
+Es como lo que le meten al principio activo en los medicamentos, ¿no?
+
+> Sigue.
+
+Es un contenedor. Sirve para conservar lo de dentro hasta que llegue a su lugar, donde tiene que liberar al principio activo.
+
+> ...
+
+No le veo mucha más práctica. Contener. Pero conmigo llevas mucho tiempo, has conseguido hacer efecto bomba con mi vergüenza.
+
+> Pues explota.
+
+Pues muérete.
+
+> Vale, Carl.
+
+¿Vale qué? ¿Qué vale? Pedazo de gilipollas.
+
+> Tranquilízate, Carl. Te va a quedar sin colillas. Y hoy está llovido.
+
+Ves como eres un gilipollas odioso.
+
+> ¿Para qué me esperas?
+
+Para reventarte, como has hecho conmigo.
+
+> No digas eso, estás entero.
+
+Sí, ¿verdad? Ya entiendo que me mates, ya. ¿Quién te puede perdonar si no le borras la memoria?
+
+> ...
+
+Piérdete.
+
