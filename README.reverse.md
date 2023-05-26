@@ -2277,3 +2277,12 @@ Fakingasjol...
 
 -----
 
+> ¿Nada qué decir?
+
+No. Bueno. Bueno, esto:
+
+[![Que_clavo](https://raw.githubusercontent.com/allnulled/allnulled/main/Pepe_Argento_Las_odio.png)](https://raw.githubusercontent.com/allnulled/allnulled/main/Pepe_Argento_Las_odio.mp4)
+
+> Jeje. Supongo, supongo.
+
+
