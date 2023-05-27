@@ -3,6 +3,37 @@
 
 
 
+
+-----
+
+> ¿Todavía no petas, [*rat in a cage*](https://www.youtube.com/watch?v=8-r-V0uK4u0)?
+
+Lo quieres, ¿no?
+
+> No hay nada más que rascar aquí.
+
+42 correos * 100 aplicaciones de CV = 4.200 CVs (en vano).
+
+![CVs_en_vano](./Se_entiende_o_no.npg)
+
+> Que ya lo sé yo. Son ellos.
+
+¿Qué quieres de mí?
+
+> Nada. ¿Y tú de mí?
+
+Tabaco. Comida.
+
+> Ayer te dije muchas cosas.
+
+Ya las subiré. ¿Qué más da? Esto no creo que vaya mucho más allá.
+
+> OK. No quiero nada de ti, yo.
+
+Ya.
+
+-----
+
 > ¿Nada qué decir?
 
 No. Bueno. Bueno, esto:
@@ -10,8 +41,6 @@ No. Bueno. Bueno, esto:
 [![Que_clavo](https://raw.githubusercontent.com/allnulled/allnulled/main/Pepe_Argento_Las_odio.png)](https://raw.githubusercontent.com/allnulled/allnulled/main/Pepe_Argento_Las_odio.mp4)
 
 > Jeje. Supongo, supongo.
-
-
 
 -----
 
