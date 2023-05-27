@@ -14,7 +14,7 @@ Lo quieres, ¿no?
 
 42 correos * 100 aplicaciones de CV = 4.200 CVs (en vano).
 
-![CVs_en_vano](./Se_entiende_o_no.npg)
+![CVs_en_vano](./Se_entiende_o_no.png)
 
 > Que ya lo sé yo. Son ellos.
 
