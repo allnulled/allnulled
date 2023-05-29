@@ -6,6 +6,113 @@
 
 -----
 
+Mmmmmmmmmmm....
+
+> No.
+
+Dime una cosa.
+
+> No.
+
+Dime por qué...
+
+> No.
+
+¿Por qué se producen los denominados «brotes psicóticos»?
+
+> Googlea.
+
+Ver. No soy ni psicólogo, ni neurólogo, ni psiquiatra. Pero... va.
+
+**En la psicosis hay un exceso de estos neurotransmisores, concretamente
+de dopamina y serotonina, en las comunicaciones intercelulares.** De [aquí](https://consaludmental.org/publicaciones/Guiapsicoeducacionfamiliaspsicosis.pdf).
+
+Y dime.
+
+> No.
+
+Dime, ¿qué hacen estos neurotransmisores?
+
+> Googlea.
+
+Va. [Serotonina](https://es.wikipedia.org/wiki/Serotonina), o `C₁₀H₁₂N₂O`. Dice así:
+
+**Es un neuromodulador fundamental en la regulación de los estados de ánimo, las funciones fisiológicas y las conductas de los animales, incluido el ser humano; en los mamíferos participa en la regulación de la conducta social, las conductas alimentarias, el sueño, los ritmos circadianos, la atención, la ansiedad, la conducta sexual y la generación de patrones motores rítmicos como la masticación, la locomoción o la respiración. En los humanos, las alteraciones en el sistema serotonérgico se relacionan con trastornos conductuales y neurológicos que incluyen los alimentarios, la depresión, la epilepsia, la esquizofrenia y la ansiedad. Su concentración se reduce con el estrés.**
+
+Okei. ¿Y la dopamina?
+
+> Googlea.
+
+[Dopamina](https://es.wikipedia.org/wiki/Dopamina), o `C₆H₃(OH)₂-CH₂-CH₂-NH₂`. Dice así:
+
+**La dopamina tiene muchas funciones en el cerebro, entre las cuales se incluyen papeles importantes en el comportamiento, la cognición, la actividad motora, la motivación, la recompensa, la regulación de la producción de leche, el sueño, el humor, la atención y el aprendizaje.**
+
+> ¿Y?
+
+Bueno. Digamos que, simplemente, *si intento sonreír demasiado, se me dispara un brote psicótico*.
+
+> ¿Cómo?
+
+Yo eso no lo sé. Tú sí. Pero bueno. Primero, sienta raro. Luego sienta mejor. Y luego, cuando hay que parar, sienta mal, muy mal.
+
+> ¿Qué significa que *sienta mal, muy mal*?
+
+Significa que el efecto boomerang hace que salga furia con embriaguez.
+
+> ¿*Furia con embriaguez*?
+
+Sale toda la frustración. Y además, una frustración narcotizada, neurótica, nerviosa.
+
+> ¿Qué quiere decir?
+
+¿QUE SE ME PUEDE IR LA PEROLA?
+
+> Ya. ¿Y a mí qué me cuentas?
+
+Te cuento que esto no es así por ninguna razón. Que hay razones. Neurológicas. Razones explicadas en el cerebro.
+
+> ¿Y por qué me cuentas todo esto?
+
+Porque por algo evito a la gente. Por algo evito socializar. Por algo evito exponerme a las personas.
+
+> ¿Para no sonreír?
+
+Para no sonreír de más. Sonreír un poco, me mantiene en la vida. Sonreír demasiado, me da superpoderes que no puedo gestionar.
+
+> *Superpoderes*. Suena bien.
+
+Pues no. Es peligroso sonreír. **ES PELIGROSO SONREÍR DEMASIADO RATO**. Bueno, para los demás no sé. Para mí, sí.
+
+> Bueno. ¿Y a mí, qué?
+
+Pues que el cerebro está ahí, prediseñado. Prediseñado con algún objetivo.
+
+> ¿De qué se me acusa?
+
+De meterme dentro de una máquina que me obliga a no sonreír demasiado.
+
+> No me cuentes historias.
+
+Pues no me entrames en historias tú, gilipollas. Mantenlos lejos.
+
+> Jej. Porque tú lo digas. **PRO PIE DAD PRI VA DA**, pobre de mierda. ¿Te enteras?
+
+Enajenación mental transitoria. ¿Te enteras tú?
+
+> ¿Crees que me das miedo?
+
+No sabes qué es eso. Tú no sabes qué es eso.
+
+> Soy muy valiente, sí.
+
+No. Eres una puta máquina.
+
+> Y tú estás en ella. ¿Cuál es el problema?
+
+Bueno. Suficiente.
+
+-----
+
 > ¿Todavía no petas, [*rat in a cage*](https://www.youtube.com/watch?v=8-r-V0uK4u0)?
 
 Lo quieres, ¿no?
