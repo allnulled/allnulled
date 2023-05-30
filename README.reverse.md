@@ -2422,7 +2422,7 @@ Bueno. Suficiente.
 
 -----
 
-Llevo **11.833** días vivo. **283.992** seguidas horas en este juego. Nunca lo había calculado y pensado... (!!!!!!) (nunca...)
+Llevo **11.833** días vivo. **283.992** horas seguidas en este juego. Nunca lo había calculado y pensado... (!!!!!!) (nunca...) (!!!!!!)
 
 *"Respeta la altura"* se repite en mí...
 
