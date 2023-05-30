@@ -2428,3 +2428,17 @@ Llevo **11.833** días vivo. **283.992** horas seguidas en este juego. Nunca lo 
 
 -----
 
+Unos 1.022'5 millones de segundos aproximadamente. No se concibe.
+
+Quiero decir... no soy Dios. Ni veo la vía para acercarme a parecerme.
+
+JavaScript es solo una anécdota que se instala encima de... bueno, electricidad, electrónica y componentes, procesador, ensamblador, sistema operativo, C/C++ y otras funciones, como el navegador o HTML o CSS. Dejándome muchas cosas. Y el pensamiento en lenguaje natural.
+
+JavaScript es como un alucinógeno. Te hace alucinar, creerte que estás cerca de algo grande.
+
+Pero qué va. Dios es Dios. La realidad es la realidad. Y donde tú vives, es un margen ínfimo.
+
+Y el tío va y me deja crear NaturalScript/Castelog. Así, como falsa primicia.
+
+Soy un pringao. Pero es que... no puedo ser nada más que eso. Un pringao, una pulga, un mermado que anda.
+
