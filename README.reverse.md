@@ -2452,3 +2452,9 @@ Podría matarlos a todos. Realmente.
 
 Ni por 11.833 días de ignorancia. Tú quieres volverme loco. Y lo vas a conseguir.
 
+Ese dato solo significa eso. Casi 12.000 días de *tortura al tonto*, de *toreemos al pringado*.
+
+¿Qué he de conservar de todo esto? ¿Que ya sé que me vacilas? ¿Que ya sé que me matas cuando quieres? ¿Que estoy en tus manos desde que nazco hasta que muero? ¿QUE ERES UN SECUESTRADOR TORTURADOR DE MIERDA?
+
+No me estoy quejando, si te fijas. Te estoy describiendo.
+
