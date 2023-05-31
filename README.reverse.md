@@ -2444,7 +2444,7 @@ Soy un pringao. Pero es que... no puedo ser nada más que eso. Un pringao, una p
 
 -----
 
-Ni para tabaco. Soy el único pringado del municipio que tiene que recorrer a pata 12km. para hacer la compra (1) y para poder fumar tabaco (2).
+Ni para tabaco. Soy el único pringado del municipio que tiene que recorrer a pata 12km. para hacer la compra (1) y para poder fumar tabaco (2), recogiendo colillas, claro.
 
 Que no me lo creo, señor mío. Serás muy poderoso, pero me estás dando la señal de que soy el único. El único. No hay nadie más aquí.
 
