@@ -9,6 +9,8 @@ Que no me lo creo, señor mío. Serás muy poderoso, pero me estás dando la se�
 
 Podría matarlos a todos. Realmente.
 
+Ni por 11.833 días de ignorancia. Tú quieres volverme loco. Y lo vas a conseguir.
+
 
 -----
 
