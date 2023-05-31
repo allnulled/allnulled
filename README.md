@@ -3,6 +3,15 @@
 
 
 
+Ni para tabaco. Soy el único pringado del municipio que tiene que recorrer a pata 12km. para hacer la compra (1) y para poder fumar tabaco (2).
+
+Que no me lo creo, señor mío. Serás muy poderoso, pero me estás dando la señal de que soy el único. El único. No hay nadie más aquí.
+
+Podría matarlos a todos. Realmente.
+
+
+-----
+
 Unos 1.022'5 millones de segundos aproximadamente. No se concibe.
 
 Quiero decir... no soy Dios. Ni veo la vía para acercarme a parecerme.
@@ -16,7 +25,6 @@ Pero qué va. Dios es Dios. La realidad es la realidad. Y donde tú vives, es un
 Y el tío va y me deja crear NaturalScript/Castelog. Así, como falsa primicia.
 
 Soy un pringao. Pero es que... no puedo ser nada más que eso. Un pringao, una pulga, un mermado que anda.
-
 
 -----
 
