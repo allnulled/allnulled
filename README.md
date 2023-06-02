@@ -9,9 +9,6 @@
 
 -----
 
-
------
-
 > Bueno, claro. Explica lo del cuadro.
 
 A ver. Esto da igual, no pasa nada. Fue impactante, porque me pilló así. Pero ya está.
@@ -105,6 +102,24 @@ Bueno. Tranquilo, piedra. Son muchos años de reset. Ts.
 > ...
 
 Eso.
+
+> Te confías muy rápido.
+
+Bueno. Si no fuera por un lado, me atacarías por otro. Al final, lo que pido es muy simple. 
+
+> Para ti. Dirían ellos.
+
+Exacto. Pero matemáticamente, es simple. Te proteges tras un Imperio. Con la excusa de que son ratones. Qué le voy a hacer.
+
+> Te estoy hablando.
+
+No. Si me hablaras, ellos lo reconocerían también. Eso no sucede. ¿Te crees que estoy loco, que me he olvidado de lo que estás haciendo? No, titu. Hasta que ellos no lo pronuncien, de forma simultánea, coordinada, y absoluta. No hay piedra. Hay esquizofrenia.
+
+Ts. 
+
+> Jej. 
+
+Dejo de hablar por ti. 
 
 -----
 
