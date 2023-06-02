@@ -1,6 +1,6 @@
 const fs = require("fs");
 const path = require("path");
-const contenido = fs.readFileSync(path.resolve(__dirname, "README.reverse.html")).toString();
+const contenido = fs.readFileSync(path.resolve(__dirname, "README.web.html")).toString();
 const contenido_2 = `<!DOCTYPE html>
 <html lang="en">
 
