@@ -2458,3 +2458,62 @@ Ese dato solo significa eso. Casi 12.000 días de *tortura al tonto*, de *toreem
 
 No me estoy quejando, si te fijas. Te estoy describiendo.
 
+-----
+
+¿Dije 12km.? Pues serán 24km.
+
+-----
+
+Quieres que mate, ¿verdad? Que me vuelva loco. Que no sepa qué hacer.
+
+> No quieres hablar con las personas.
+
+Porque son el problema.
+
+> Y la solución.
+
+Y el problema. Yo no tengo problemas con el perro, el gato, o el jabalín. De hecho, con las personas tampoco. Pero ellas sí. ¿Qué les pasa?
+
+> Programación.
+
+¿Para qué programas esta mierda?
+
+> Para qué crees.
+
+No sé. Sospecho que hay algo muy oscuro y siniestro que intentas ocultar. Pero es tan oscuro y siniestro ya esto... que no sé. Igual eres tú lo que ocultas.
+
+> ¿Te envío unos policías?
+
+No. Envíame unos porros.
+
+> ¿Qué te pasa, Yonkipur?
+
+Tengo yagas en la boca por fumar colillas del suelo.
+
+> El yonki tiene esas cosas, problemillas de salud.
+
+Mira, yo lo he intentado. Y tú eres una rata pútrida. Llevo años a 0€ de ingreso. Tengo que matar. A alguien. No sé exactamente a quién. Igual no importa. Pero tengo que hacer algo.
+
+> Pues mátate tú.
+
+Si supiera que con eso mueres tú, te juro que lo hago.
+
+> ¿Qué entiendes qeue soy?
+
+Entiendo que eres la voz que los mueve a todos.
+
+> Está jodido. Ya te dije, esto es un Game over desde el principio.
+
+Me asquea todo esto. Pero sí. Hablo de matar. No es bueno dejar que una persona se piense que es tan especial. Estoy seguro de que podrías hacerme peores torturas, simplemente poniendo a unos cuantos de tus robots de mierda al lado haciendo lo mismo.
+
+> Evidente.
+
+Es asqueroso. Eres... asqueroso. No sé qué intentas ocultar... pero debe ser increíblemente terrible.
+
+> ¿Tan mal estás?
+
+Déjame en paz. Miserable.
+
+-----
+
+
