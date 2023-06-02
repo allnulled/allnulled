@@ -4,7 +4,7 @@
 node README.reverser.js
 
 # El HTML:
-markdown README.md > README.web.html
+markdown README.cronologico.md > README.web.html
 
 # El HTML completo:
 node wrap_readme_html.js
