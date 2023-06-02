@@ -1,7 +1,7 @@
 ![Portada](./Imperio-1.png)
 
 
-[(Cronológicamente)](./README.reverse.md)
+[(Cronológicamente)](./README.cronologico.md) | [(Descarga)](./README.web.pdf)
 
 
 > Ya lo has probado todo, amigo.
