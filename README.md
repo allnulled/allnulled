@@ -31,7 +31,7 @@ No. Envíame unos porros.
 
 > ¿Qué te pasa, Yonkipur?
 
-Tengo yagas en la boca por fumar colillas del suelo.
+Tengo llagas en la boca por fumar colillas del suelo.
 
 > El yonki tiene esas cosas, problemillas de salud.
 
@@ -41,7 +41,7 @@ Mira, yo lo he intentado. Y tú eres una rata pútrida. Llevo años a 0€ de in
 
 Si supiera que con eso mueres tú, te juro que lo hago.
 
-> ¿Qué entiendes qeue soy?
+> ¿Qué entiendes que soy?
 
 Entiendo que eres la voz que los mueve a todos.
 
