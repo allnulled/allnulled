@@ -2799,6 +2799,102 @@ Jejeje. Ok. Ok.
 
 -----
 
+> Bueno, claro. Explica lo del cuadro.
+
+A ver. Esto da igual, no pasa nada. Fue impactante, porque me pilló así. Pero ya está.
+
+> ¿Qué te dijo?
+
+Varias cosas. Lo tengo explicado por ahí. Pero da igual, me da vergüenza.
+
+> ¿Por qué?
+
+No es tan importante ahora. Han pasado muchas cosas. Y es como que... el cuadro se ha explicado mucho más que en aquel instante. Que en su momento fue revelador. Pero ha sido una chorrada meterlo. Me impactó, solo es eso.
+
+> ¿Pero qué te dijo?
+
+Aix. Es igual, porque te lo explicaría con palabras, y fue la instensidad.
+
+> ¿Pero qué fue?
+
+Varias cosas. El 0, el 1, el 2... ese es el principo. Luego hizo un juego de palabras, de que el "por qué" es la causa y el "para qué" la consecuencia, nada, ya no me acuerdo mucho. Luego que estaban en bucles. Eso sí. Y me hizo pensar, eso sí fue guay por un momento, me hizo sentir que el tiempo se iba a quedar en un bucle de unos 12-15 segundos. Donde me levantaba, caminaba una vuelta, me sentaba, y volvía a hacerlo. Y sentía como si el pensamiento se fuera a quedar para siempre, avanzando, mientras el cuerpo se iba a quedar ahí, haciendo el mismo bucle. Fue emocionante. Me acojoné. Pero ya está.
+
+> Qué crédulo, ¿no?
+
+Sí. Ahora sí lo pienso. Pero bueno...
+
+> ¿Qué significó para ti?
+
+Antes da igual. Ahora, creo que es como que para alguien que puede orquestrar el movimiento de tantas cosas, yo soy una mierda, una tontería de pequeño. Pero me hizo sentir como esa otra parte.
+
+> Al igual llevaba algo la marihuana que te fumastes.
+
+Pues al igual. Lo raro es que fuera en el segundo porro, y al cabo de un rato. Pero bueno. Es igual. Es lo de menos.
+
+> ¿Por qué?
+
+No importa tanto ahora. Han pasado muchas cosas, con significados y verdades. Eso fue un momento nada más. Intenso, extraño, que no tocaba de normal. Pero ya está. Simplemente, que me acuerdo de que pasó.
+
+> Vaya yonqui.
+
+Bueno, no te quedes con eso tampoco. Es eso, son demasiadas cosas más. Otra vez se me movió de sitio la República Democrática del Congo en el mapa. ¿Tú te crees?
+
+> ¿Cómo?
+
+Sí, ya. Pues eso. Estaba a la derecha de África. Pum. Aparece a la izquierda. Voy a mirar a donde está ahora. Bueno. Ahora, Sudáfrica está en el sur de África de verdad. Y República del Congo se mantiene en la izquierda, como la última vez. Sí. Real. Dirán: eso es el Congo. Que era otro país. Mira, no sé.
+
+Cierto. Tiene que ver con el cuadro. El cuadro me habló porque me estaba preguntando sobre los niños del Congo que recojen el mineral con el que ahora sé (creo, pienso) que dialogo. Entre otros. Y otras arbitrariedades de las casuísticas contextuales contemporáneas. Claro. Empresas americanas tecnológicas, que son las punteras en economía, son las que presuntamente están allí.
+
+Es una piedra jodidamente enferma, a ver. Las cosas, como son. Es decir, a mí no me toca. Pero me hace ver y soportar lo de otros. Es jodida. Las cosas son así.
+
+Pues tiene que ver con el Empire States Building, en mi cabeza. Aunque también hay empresas tecnológicas chinas. No sé.
+
+La verdad: yo no he estado allí. Es un contexto. Y si lo sobredimensionas, pues... pero claro, no es sobredimensionarlo. (Si tú quieres ambicionar control sobre los derechos de las personas, es en plan: tú también tienes una ambición política bien fuerte.)
+
+Pues sí. Hay niños que dicen que están disparando a los ocho años.
+
+> Qué envidioso.
+
+Alá. Ande vas.
+
+> Tranquilízate.
+
+No es ese el mensaje que le daría yo a la gente.
+
+> Ya, por eso. Tranquilo.
+
+Caro. Te aprovechas de que tengo poca RAM. Puedo ser consciente de pocas cosas en un momento dado. "Piedra".
+
+> Bueno. Expulsado.
+
+No, a ver. Es verdad. Tengo poca memoria inmediata. Por eso, soy tonto.
+
+> Busca un uso óptimo de la memoria.
+
+¿Para qué?
+
+> No sé. ¿Buscar trabajo? Jej.
+
+Pues eso, intento tomármelo bien. Pero no sé exactamente cómo tengo que usarla. Ni si puedo usarla para tal cosa. Al final, el **Imperio de las ratas** asomará, por un lado o por otro.
+
+> Entiendo. Descanse, soldado.
+
+No soy un soldado.
+
+> Ya lo sé. Es una broma.
+
+Ok. Ok...
+
+> No te pongas así.
+
+Bueno. Tranquilo, piedra. Son muchos años de reset. Ts.
+
+> ...
+
+Eso.
+
+-----
 
 
+-----
 
