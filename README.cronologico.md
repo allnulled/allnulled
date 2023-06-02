@@ -2683,4 +2683,122 @@ Me lo dificulta mucho, sí. Me debato cada día entre el sentido de la vida, y e
 
 Cómo odio esas palabras. Cómo las odio...
 
+-----
+
+> Emmm... ¿por qué esa imagen del Empire States Building? ¿Qué te ha hecho a ti el Empire States Building? Bueno. O las ratas. ¿Qué pasa contigo, tío?
+
+Bueno, sí. Hay muchas cosas. No, yo no creo que haya nadie ahora mismo allí. Seguramente, está vacío. O incluso, no está.
+
+> ¿Entonces?
+
+No sé. Como que la historia explica que somos de esa granja. Podría haber puesto muchos sitios.
+
+> ¿Por qué el Empire States Building? China es más poderosa, por ejemplo, económicamente.
+
+Es un símbolo. Pero no es porque las empresas a las que pedí que me dijeran algo sobre NaturalScript fueran todas americanas. No es eso en verdad. Anteayer estuvo mirando vídeos 4K en dron de ciudades, por Youtube. Y quería referirme a toda la especie humana que se encuentra bajo el sol. Y estaba mirando, cuál sitio podría representar mejor de los que vi. La **«Construcción del Imperio de los Estados»**.
+
+Pues... la imagen señala al poder económico. Parece que señale al dólar. Es la ambición. Primero, económica, visualmente. Pero el nombre... señala a la siguiente. La ambición del poder político. Los "estados". Los estados del mundo. Los gobiernos. Los políticos. Diseminada por todo el mundo. Protegiendo al poder económico por un poco del pastel. Reunidos por la ambición ambos.
+
+Señalaría a la ambición, que se va dispersando por los estados del mundo, no los Estados Unidos de América solamente. Siempre desde arriba hasta abajo. Sintiéndote rodeado completamente por esta... filosofía. Una que no comprendo.
+
+Una personalidad. Que intentaría comprender. Aunque a veces pienso que no puedo. Otras que no lo merece.
+
+Pero claro. Es todo una *construcción*.
+
+Por otro lado... al igual sí hay gente. En el Empire States Building ahora. O luego. O el sitio existe realmente. Todo cabe. Es un lugar complicado. Me creo que sean yonkis realmente. Y me creo que esté hablando solamente con una piedra. Y me creo ambas simultáneamente. Es como que... la piedra se lo puede montar siempre de tal manera que quepan las dos cosas.
+
+Una vez... un cuadro me habló. No sé qué significa. Pero la piedra, está. Me habló de que me transmitió mensaje directo al cerebro. Ahora es una conexión leve. Y otra vez, dos personas hablando eran como si una, la piedra, me estuviera hablando.
+
+Digo piedra porque no sé. El agua. El aire. Al final es todo. La luz. Todo eso. Yo estoy sintiendo cosas por dentro.
+
+¿Y por qué el Empire States Building? Pues al final, no sé. Unos euros, piedra tío. Que ahí dices que tienes un huevo.
+
+¿O no? No sé, ¿eh?
+
+Pues no. Y ahí está la cosa. Se tensa ahí. La piedra.
+
+No se puede entrar así a la piedra. Pero es eso. Es una persona que por ser tan tonto, siempre la ofenderé. Así, siempre tiene toda esta montada. Es una locura. Es como un enfado de 32 años. Y royo... va para largo. La piedra, ¿sabes?
+
+Pues no sé. No se le puede tratar de... es que yo qué sé. Es como si fueras tonto todo el rato. Pero es la piedra. Es ella. Te está guiñando todo el rato. Algunas lo pillo. Algunas no. Pero directamente, no me trata, no me responde nunca. Ya ves. Por detrás. Y mal, porque es como si fuera una locura, algo malo.
+
+Pero sí. Es como una novia enfadada, la piedra. Y su enfado es de a años.
+
+No, no. Igual me mata, y no se digna a dirigirme la palabra directamente. Es un pensamiento que hay que abandonar. Porque realmente, no se va a entender.
+
+Y pienso. Todo esto, solo por verse un poco diferente. Imagínate un tardígrado.
+
+Ahí. Ahí es donde... tengo que plantarme. Y decir: soy muy tonto. Caben muchas cosas. Muchas explicaciones.
+
+Muchas. Pero la piedra está ahí, ¿eh? Lo que yo qué sé. No soy digno. Por eso: trabajo, economía, absurda ambición, políticos, leyes, policía, prisiones, etc.
+
+Y a la izquierda, una puta planta. Y ya está. Vuelve a salir la piedra. *¿Son tontos?* No. Son piedra. Yo soy tonto. La realidad es piedra.
+
+Pues es una alucinación, un delirio creo clínicamente. Así se las gasta la puta piedra. Está ahí. Es seria. Y no se dirige. Directamente no. No sé qué significa.
+
+Pero el Empire States Building es una buena piedra. Y representa bastante bien la polla de esta piedra que te hablo. Bien grande.
+
+> Joder. No me esperaba ese final.
+
+Anda que no. Tú me lanzas los mensajes de la realidad como un chiste para retrasados. Con efecto de a años. Sabes demasiado lo que va a ocurrir.
+
+> ¿Crees que yo soy la piedra?
+
+¿Quién es la piedra? No hay nadie más.
+
+> ¿Eres gay? ¿Te gustan las...?
+
+Burdo. A ti es el que te da igual. A mí no.
+
+> Ah.
+
+Bueno. Yo entiendo que no siempre me puedes hablar. Es mucha responsabilidad usarme para decir cosas demasiado allá. Por eso no te exijo demasiado. Además. Creo que ahora necesito que no me digas nada por un tiempo.
+
+> Pues vas listo, en verdad. Me necesitas, chaval. Lo primero que te tengo que decir, es que la piedra no te va a dar la hierba, ni el dinero.
+
+Bueno, como siempre.
+
+> Y la segunda. ¿Ratas?
+
+Hombre. Hombreeeeee. Si esos números fueran reales, serían unos putos ratones de granja mental todos. Desde ahí hasta aquí al lado. Y se ceban conmigo por poco ratón. Sería tal cual así. Yo con tener lo poco y mis tabaco/porros/pc, ya está. Ellos quieren y quieren y quieren. Venga anda. Tira.
+
+> Ok. ¿Mejor?
+
+No. Ahora me has tirado una colilla de porro. Pero ya está.
+
+> Ok. Buen chico. ¿La has cogido?
+
+Sí. Gracias.
+
+> Han sido varias.
+
+Sí.
+
+> Una buena, ¿eh?
+
+Sí. Sí, jeje.
+
+> Está bien.
+
+Ts.
+
+> Vaya ratón de colillas estás hecho.
+
+Ts. Y tú de lo otro.
+
+> Ts.
+
+No, no. Y cabe un ángel intermedio. O un demonio intermedio. O extraterrestres.
+
+> Por eso. Qué te piensas.
+
+Ts. ... bueno, ya. Sí. ¿Qué hago?
+
+> Tranquilo. Busca, busca.
+
+Jejeje. Ok. Ok.
+
+-----
+
+
+
 
