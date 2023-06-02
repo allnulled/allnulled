@@ -476,11 +476,28 @@ Y otra cosa que añadir es que el tabaco es muy peligroso también, te pone muy 
 
 Me están acorralando. Todo, porque les estoy desmantelando el juego, cada vez estoy más cerca. No quieren que llegue a ese punto, porque el grado de delirio y psicosis sería tal que sí me atrevería con los políticos, cara a cara. Ninguna droga, ni ningún síndrome de abstinencia pueden llegar a ese grado de drogamiento: **teorízar y materializar el nuevo mundo mientras te mantienen recogiendo colillas para poder ingresar algo de nicotina**, ya no digo THC que es la sustancia encarecida por magnitudes de a 1.000. No, digo nicotina, que está encarecida, pero por magnitudes de 100-200. Dejo la tabla. Todas son vegetales igual, con sus características, pero vegetales:
 
-| Vegetal | Precio | Cantidad |
-| ------- | ------ | -------- |
-| Arroz   | 1€     | 1.000 gramos |
-| Tabaco   | 5€     | 30 gramos |
-| Marihuana   | 10€     | 1 gramo |
+<table>
+  <tr>
+    <td>Vegetal</td>
+    <td>Precio</td>
+    <td>Cantidad</td>
+  </tr>
+  <tr>
+    <td>Arroz</td>
+    <td>1€</td>
+    <td>1.000 gramos</td>
+  </tr>
+  <tr>
+    <td>Tabaco</td>
+    <td>5€</td>
+    <td>30 gramos</td>
+  </tr>
+  <tr>
+    <td>Marihuana</td>
+    <td>10€</td>
+    <td>1 gramo</td>
+  </tr>
+</table>
 
 Es salto del encarecimiento es sospechoso. Pero no es que sea sospechoso, es que simplemente, es artificial, totalmente inflado, porque el magnetismo que causa lo permite.
 
