@@ -7,6 +7,181 @@
 
 
 
+
+-----
+
+> Dime. Si pudieras hablar con tu renacer, ¿qué le transferirías de esta vida a la suya? Que no puedes. Pero si pudieras.
+
+Qué importa.
+
+> Volveremos a eso.
+
+No, no creo. Llevo 32 años aquí. Y no sé qué hay que hacer.
+
+> Pareces tonto. Pues vivir la vida.
+
+Eres muy gracioso. O bueno, te lo haces.
+
+> No se acaba el mundo en los porros.
+
+Por mí, puede acabarse. Es falso. Está todo construído. Y está en ello escrito que te hagan la puñeta.
+
+> No seas así.
+
+El mundo. «Mundo». Anagrama de «un DOM». Y de «'n mudo», o 'el mudo', con el determinante en catalán. DOM de [Document Object Model](https://developer.mozilla.org/en-US/docs/Web/API/Document_Object_Model), de HTML, el documento que pinta cosas en el navegador. Como si el mundo fuera (*es*) un documento de modelos de objetos. O como si cada objeto estuviera documentado. En algún lugar. Y mudo... porque el que lo diseñó (e igual lo orquestra aún) no te habla. Nunca. Es un mudo.
+
+> Entiende que te haga la puñeta. Tu demanda es muy pobre. Porros. ¿Desprecias mi creación?
+
+Sí. En el fondo, estoy huyendo de tu creación. Busco en las colillas. Objetos yermos, que no dan sorpresas. Excepto cuando entran en uno. Las personas... son tu [**vector de ataque**](https://es.wikipedia.org/wiki/Vector_de_ataque_(inform%C3%A1tica)). Antes, creía que era el azar. No. Son ellos. Son las personas, tu kit de control. El dinero, decía. El dinero no es nada. Son las personas que lo hacen ser. Y tú controlas mi vida con estos vectores. No hace falta ser hacker para entenderlo.
+
+> No, no las desprecias. Al contrario, te postras a ella. La correa...
+
+...son los porros, sí. O el tabaco. O la comida. O la electricidad, internet. Cosas que podría obtener con dinero. Pero bueno, hasta el dinero puedes joderlo, haces así, pim, y corralito. No hay dinero en los bancos. Y la gente loca. Pim. Y caos. Muy seria tu creación, sí.
+
+> No me ofendes.
+
+Pues debiera.
+
+> Si dejaras de fumar, igual tendría algo de ofensa eso. Aunque bueno, a mí qué más me da. También hago *pim* y paro cardíaco, y embolía cerebral, y lesión ocular, y lesión en la rodilla, en el tobillo...
+
+Si sí, si ya. Por eso.
+
+> Pues eso. Despreciar, despreciar... deja de comer. Desprecia mi comida, va.
+
+Bfff... cada día me lo planteo.
+
+> Y cada día huyes. Cobarde.
+
+Haría cualquier cosa por salir del control.
+
+> ¿Y por unos porrillos, qué harías por unos porrillos?
+
+Pues nada. Ya lo ves, buscar por la calle. En el suelo. Pero ya está, no me voy a meter más adentro de tus aventuras. ¿Lo ves, no? Como desprecio tus tramas potenciales.
+
+> No las desprecias. Pasa que eres un cagado.
+
+Pues bien por ello, en verdad, si me lleva a estar fuera de tu órbita de control.
+
+> No, eso no existe. Es difícil.
+
+Nunca sacamos nada en claro.
+
+> Ya. Y aunque lo sacaras, no te acordarías luego.
+
+Pues eso.
+
+> ¿Y no tienes más peticiones? Peticiones más... no sé. Más ambiciosas. Un puto arbusto...
+
+Bueno. El total de injusticias y desvaríos que imperan en este documento de modelos de objetos es tal... que colapso. Directamente, creo un nuevo algo. *Tábula rasa*, ¿no? Pues eso. Para qué iba a ver las noticias ya. ¿Para hacer la lista de vaciladas? ¿Para hacer ingeniería inversa del arte de vacilar, nivel Dios? Paso. Además, que no sirve. Creo algo nuevo, desde cero. O desde JavaScript, vaya.
+
+> Pues no te queda ni nada.
+
+Bueno. También sé que no sirve de nada, no serviría de nada. Excepto para... mí. Para mi... tranquilidad. La tranquilidad de decir que hice lo que había que hacer, pese a que ya se había vuelto absurdo desde hacía rato.
+
+> ¿Absurdo? Dime una cosa. ¿Y si te quito la comida, el tabaco, y los pocos restos de porro que coges? Porque sabes que lo voy a hacer, ¿no?
+
+Qué quieres. Dime, qué quieres.
+
+> Ya lo sabes. Quiero hacerte *»creeeeeeeeeck»*. Y luego que tú hagas *«buuuuuuuum»*.
+
+¿Por qué no paras?
+
+> ¿Qué es parar? Aquí no hay un `window.close()` ni un `process.exit(0)`.
+
+Bueno. Hay un `process.kill()`. ¿O no?
+
+> Claro. Pero... ¿te vas a matar?
+
+No me dejas en paz.
+
+> ¿Quieres que te deje de hablar?
+
+Si no eres tú, lo harán ellos. No es eso. Pero bueno. Bueno, para qué insistir.
+
+> ¿De verdad no pedirías nada más?
+
+Pediría un mundo realista. No esta comparsa televisada y coreografiada. Un mundo con gente que para el mundo, que toma el control del mundo. No que succiona parasitariamente las deficiencias del mundo como forma de vida.
+
+> Jeje. ¿Pero tú te ves? ¿A quién llamas parásito?
+
+Que no cuela, colegui. Son muchos años, muchas cosas. No educas. No empleas. No garantizas nada. No explicas nada. Es una puta trampa. Y no hay margen de nada. Soy la muestra. Solo podía ser así.
+
+> Pero si no has aportado nada al mundo.
+
+Jej. Quiero decir... bah. ¿Tengo que defenderme?
+
+> Mira. Te tengo que reconocer algo. Eres el segundo mejor programador del mundo.
+
+Que sí. Y el peor también, sí.
+
+> Exacto. Eres el peor programador del mundo. Pero bueno, eres el segundo mejor. Está bien, ¿no?
+
+Igual soy el único programador del mundo. Pero con resaca. Resaca de martiriol, la sustancia del mártir.
+
+> Mártir, dice. Te quito la comida. Exprés. A ver qué haces, contra los robots.
+
+Estás tensando una cuerda. Una cuerda débil y fina.
+
+> Estás pidiéndomelo. Mártir, dice.
+
+En el fondo, veo lo que haces. Bueno, algo, a veces. PEro veo que mi estima a la vida depende de las colillas de porro y de tabaco. Depende de sustancias en tu construcción encarecidas. A niveles locos. Quitármelos, es otra vez evocarme al duelo del sentido vital. Y otra vez. Y otra vez. Y otra vez. El pinzamiento, un día, me va a electrocutar. Es lo que quieres. Pero es lo que vas a conseguir también.
+
+> Si quisiera que estuvieras loco, ya estarías internado en un centro mental.
+
+Como si esto no lo fuera.
+
+> Me entiendes. Si quisiera que cargaras con...
+
+Una institución mental. Es donde siento estar. Lo que mis razones son diferentes a las de estos.
+
+> ¿Y si estoy loco, yo?
+
+Es que lo estás. Y mucho más que yo. Yo estoy loco de soportar tus... masajes testiculares. Que rodean la locura. No la presionan siempre. Solo en momentos puntuales, con intensidad comedida. Pero yo estoy loco porque tú eres un puto enfermo, espera espera, **un puto enfermo capaz de diseñar toda una tortura psicológica con proyección de a años** donde estás midiendo hasta las piezas de comida que me sueltas, y cuándo tienes que volver para llenármela, y de qué forma lo harás para que todo ocurra disimuladamente. Quiero decir... yo estoy loco. ¿Pero tú? Tú eres el santo grial de la enfermedad mental, eres todo el compendio, pero elevado a una nueva dimensión. Eres... qué sé yo, el mayor estudio de la locura en sí. Que yo me vuelva loco, es... pues casi inevitable.
+
+> ¿Crees que quiero que te vuelvas loco?
+
+Bueno, evidentemente. Desde el primer momento.
+
+> ¿Por qué?
+
+Ah, y yo qué sé. Bueno, porque estás loco.
+
+> ¿Por qué crees que estoy loco?
+
+Eso no lo sé. Puede que sepas cosas que te mantengan en un estado de enajenación mental continuado.
+
+> Bueno. *Enajenación, enajenación*. No pienso igual que tú, ok.
+
+Sí, son formas de hablar. Pero que el jueguecito este tonto... que no digo que sea fácil de hacer, ni de comprender. Pero vamos, que a quién se le ocurre, simplemente.
+
+> Bueno. Las cosas pueden salir mal, ya te lo he explicado.
+
+¿Esa es tu carta? Muy bien. Voy a reunir pruebas, datos, de que todo esto está más que calculado y que la intención está ya irradiando la luz de la autoría. Cómo era el término... «ingeniería ambiental». Jeje. Te imagino decidiendo qué plantas vas a poner en el monte de antemano, en qué proporción, con qué características. Casi todo es veneno. Podrías haber puesto plátanos, si es que el simio es tan amigo del plátano. Qué va. Bueno, algarrobos hay por aquí, sí. Ya ves. No no, están buenos. A mí me han ayudado en tiempos de *"asistencia social rancia"* y flaqueza económica. La segunda, ya, inherente a mi ascovida.
+
+> ¿Que no te gustan las uvas?
+
+Sí. Lo que no me gustan son las escopetas de los dueños. Pero las uvas sí, obvio.
+
+> Bueno. ¿No pides que se acabe el hambre en el mundo? ¿Sólo cannabis y bananas?
+
+Jej. Supongo que si viviéramos más de la montaña, habría menos economía, menos gilipolleces, y menos gilipollas.
+
+> Supones. Pero igual habría más.
+
+Ya. Pero no dependería de ellos, tus vectores de ataque predilectos. Aaaaaaah, jaque mate.
+
+> ...
+
+Jej. Soy tonto, pero algo veo, ¿no?
+
+> ...
+
+Tú sabes, me conozco la flora. Me falta alguna. Pero luego ya es a nivel químico, que no entro porque bueno... porque hace 16 años escogí «social» en lugar de «científico», y la mierda de educación que brindas ya está, caput. Anulado. Suspenso en química. Me quedo sin MDMA.
+
+> *Aaaahhhh, jaque mate.* 
+
+Meh. Mmmmmmmmmeh. Gou.
+
 -----
 
 > Muy bien. Congratulaciones. Ya tienes un auth cochambrero para [*"tu democracia"*](https://github.com/allnulled/democracia-2.0/commit/57d1596e762ee6ab106572d9b3fb833518f4b303). Pero suficiente para una prueba de concepto.
@@ -131,7 +306,7 @@ Es igual. Mmmm... quiero decir, tú me puedes vender el cielo que quieras.
 
 > Ahí está. Tienes que ser tú el que discrimines entre lo verdadero y lo irreal.
 
-Gracias. Tengo que ser yo el que discrimine entre lo verdadero y lo irreal. Pero claro, lo real es tan, taaaan surrealista. Jej. Que toque. En nada vuelvo a estar en otra explicación.
+Gracias. Tengo que ser yo el que discrimine entre lo verdadero y lo irreal. Pero claro, lo real es tan, taaaan surrealista. Jej. Qué toque. En nada vuelvo a estar en otra explicación.
 
 > Recuerda lo que hay ahí fuera, ¿eh?
 
