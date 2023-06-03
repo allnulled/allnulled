@@ -2913,3 +2913,149 @@ Dejo de hablar por ti.
 
 -----
 
+> Muy bien. Congratulaciones. Ya tienes un auth cochambrero para [*"tu democracia"*](https://github.com/allnulled/democracia-2.0/commit/57d1596e762ee6ab106572d9b3fb833518f4b303). Pero suficiente para una prueba de concepto.
+
+Sí.
+
+> No esperaba que lo linkaras con cuentas de Google o similares. Así que está bien. No sobresaliente.
+
+Sí. Prueba de concepto. Ellos son mejores. Siempre.
+
+> Bien.
+
+A eso juegas, ¿eh? Para ti todo es fácil. Hasta el punto de dejárselo fácil al otro.
+
+> Sssí, bueno... Es difícil hablar por mí, ¿eh?
+
+Jej. Siempre jugando.
+
+> Por eso. Aquí es para que hables tú. ¿Quieres decir algo?
+
+No. No sé. Es poco, ¿no? Y antes habíamos hecho más. En anteriores episodios habíamos llegado más lejos.
+
+> Cíñete a la «prueba de concepto». La técnica y la tecnología, digamos, serían independientes. Si te fijas, el problema de los productos que te dan siempre es eso: el límite de la personalización. Ser programador te da la ventaja de explicar, exactamente, qué pasos seguir.
+
+Supongo.
+
+> Y claro, hay... es que cuando fumas. Igual que cuando sientes que te observan. Y si se juntan, bueno...
+
+Exacto. A veces no, pero es problemático. Sentir que tengo que estar a la altura de algo.
+
+> Te da miedo la responsabilidad, ¿no?
+
+Pues sí.
+
+> ¿Pero hasta el punto de apartarte de las personas?
+
+Sí, obvio. Son ellas. Con el gato, no es así. No sientes esa gran responsabilidad. Al perro ya le defraudas. Pero se olvida. Supongo que para ti soy eso, como un perro.
+
+> Supón. ¿Has cogido la colilla, no?
+
+Graciosillo.
+
+> Te cuesta. Eres lento. Y corto. Vas poco rápido, y recuerdas más bien poca cantidad.
+
+Ya. Pero quejarse de ello no ayuda.
+
+> Ya te lo he dicho. Que quejándote no. Pero hay un factor, que es el de autoexigirse. Es inherente en la queja. Si te dejas de exigir, no tienes por qué quejarte.
+
+Ya empiezas. A jugar. A dos bandas. Bueno, mínimo a dos bandas.
+
+> Es jodido. Mantener dos hipótesis existenciales simultáneas. Y más cargando con la creencia de los límites humanos.
+
+Es que soy humano, no toques los huevos.
+
+> Si ellos son máquinas... ¿lo has pensado? ¿Qué eres tú? ¿Quién es el humano? ¿Quién no? ¿En qué se diferencian?
+
+Bueno, y a mí de qué me sirve eso. Si hay alguien limitado aquí, ese soy yo.
+
+> Eso crees. Pero ya has visto que las creencias... son plásticas, flexibles.
+
+Creerme Dios no me va a dar alas para surcar los cielos.
+
+> Es... la creencia no va sola, digamos. La creencia trae compañeros. El foco de atención, por ejemplo. Recursos mentales dedicados a un proceso, por ejemplo. El magnetismo de la memoria, por ejemplo, recuerdos que llaman a recuerdos. La creencia, no es solo la creencia.
+
+Cierto. Pero igual, yo no puedo creer lo que me dé la gana. Hay unas observaciones. De los hechos. Y un registro en la memoria.
+
+> Que puede alterarse.
+
+Hasta el punto de moverme dos países del mapa, sí. Doy fe.
+
+> Por eso. La creencia, no es solo la creencia.
+
+Tengo que dejar de creérmelo todo. Soy un crédulo de la hostia. Un pardillo, un pargueli.
+
+> Oh, la doctrina del pargueli. Era una buena doctrina. ¿Por qué la abandonaste?
+
+Pues porque... no, en verdad no. Sigo pensando que soy un pargueli nivel cósmico. Pero es muy... no sé, es muy motivador creer todo el tiempo que estás aburriendo a una máquina hiperrápida e hiperinteligente.
+
+> Máquina tú, chaval. Yo soy más persona que toda tu estirpe junta.
+
+Jej. Me has robado el insulto.
+
+> *Y tú el lenguaje. Devuélvemelo.* Jej.
+
+Jej. ¿Crees que me aburriría de ti si te mostraras solo con una forma?
+
+> Creo que eres un pardillo.
+
+Bueno, eso está claro.
+
+> Yo soy todas las formas. Soy más persona que las personas.
+
+Seguro que eres... una confabulación neurológica. Para dejarme por tonto.
+
+> Por parguela, sí. Pero eso ya lo eres.
+
+No, me refería... a una parte de mi cerebro volviéndose contra mí.
+
+> Y dale con el cerebro. Si tú no entiendes, ni de drogas, ni de cerebros, ni de moléculas, ni de nada.
+
+Ya. Picoteo. Pero he visto frameworks de JavaScript para... ¿moléculas? Ser ignorante, de verdad, es muy peligroso.
+
+> Como toda droga, si abusas.
+
+¿Y dónde está la línea?
+
+> ¿De la ignorancia? Jej. Me queda lejos, dímelo tú.
+
+Bah. Estás jodiéndome.
+
+> Yo me callo cuando me digas. Sabes que no te molesto. Eres tú.
+
+Okei. La verdad... escribo para dejar claro qué pienso.
+
+> ¿Y te ayuda?
+
+Beh. Bueno, a veces.
+
+> ¿Te ayuda a qué?
+
+Es igual. Mmmm... quiero decir, tú me puedes vender el cielo que quieras.
+
+> Ahí está. Tienes que ser tú el que discrimines entre lo verdadero y lo irreal.
+
+Gracias. Tengo que ser yo el que discrimine entre lo verdadero y lo irreal. Pero claro, lo real es tan, taaaan surrealista. Jej. Que toque. En nada vuelvo a estar en otra explicación.
+
+> Recuerda lo que hay ahí fuera, ¿eh?
+
+*"Recuerda lo que hay ahí fuera, ¿eh?"*. Cállate. Person.
+
+> Pues ahora te toca el REST. Ahí es donde vienen... olas.
+
+Creo que voy a jugar al MadTV. Ayer me quedé con ganas de tomar las televisiones de los United States of America.
+
+> Juegazo, ¿eh? Uy. Y nuevo, lo sacaron ayer.
+
+Jej. No sé. No juego a juegos. Me hacen gracia los viejos que jugué hace mucho. Y los que se parecen. Pero qué va. Bueno, antes no veía series. Pero saber que nada sirve... la marihuana va a seguir siendo esa cosa. No medicina que me costee el Estado. Pues yo qué sé. Y el dinero esa cosa lejana. Y todo eso. Vas de listo. Vas de listo que flipas.
+
+> Es que flipas lo listo que soy.
+
+También. Ok. Voy a tomar América.
+
+> Jejej. Jejejej.
+
+Vas de listo.
+
+-----
+
