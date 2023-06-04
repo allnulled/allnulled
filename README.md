@@ -7,6 +7,223 @@
 
 
 
+-----
+
+> ¿Qué te pasa? Estás agitado.
+
+Intento hacer retrospectiva. Y luego pienso. *¿Qué ha pasado? ¿Qué pasa? ¿Qué puede pasar?*
+
+> ¿Y qué? ¿Sacas algo?
+
+Mmmm... ha habido sufrimiento. No puedo despreciarlo, porque ha habido, hay, y claro, habrá.
+
+> Sherlock. ¿Qué más traes?
+
+No sé si se entiende. Yo me debato cada día entre si la realidad es una construcción unipersonal para mí y solo para mí. O si es de verdad un lugar de caos y locura donde me están jodiendo.
+
+> Pueden ser las dos.
+
+Ya. Igual no lo he explicado bien. Si los demás no existen, por dentro me refiero, si no tienen una dimensión sintiente real... no tengo por qué sentirme mal. Pero si sí la tienen... bueno, tampoco, yo voy jodido, me cuesta ser...
+
+> ¿...políticamente correcto? ¿Aprensivo? ¿Amoroso? ¿Amable? ¿Simpático? ¿Esforzarte por dar una imagen, por proyectar una integridad, por buscar cierta integridad? ¿Esforzarte por seguir un poco las normas prestablecidas por muy absurdas e insultantes que te parezcan?
+
+Eso es. Sí, un poco, todo eso.
+
+> Te cuesta creer que haya personas detrás de esas caras, ¿no?
+
+Sí. Me cuesta menos creer que hay... un ser moviéndolos.
+
+> Pero en ti hay dos. DOS, mínimo. ¿Por qué no creer que en ellos también?
+
+Pues sí. Supongo. Porque no encuentro al otro. Es decir... hay uno que es como Frankenstein. Uno que se le cae la baba y no puede hablar, que persigue cosas y no atiende a razones. Con ese, estoy cansado de hablar. Entre tú y yo, este Frankenstein sería yo, supongo. Y luego hay otro. El que me... me vacila. No sé cómo decirlo. Se ríe de mí. En plan: «sé lo que intentas, y no te voy a dejar». En cambio, el Frankenstein... no es sensible a lo que intento. El otro sí, el otro sabe lo que estoy pasando, lo injusto que es todo esto, y cuál está siendo mi respuesta.
+
+> ¿Y qué quieres de cada uno? Y no me digas... porros... por favor.
+
+¿Pero qué te pasa con los porros?
+
+> Pues que no son los porros, Carl. Eso es lo que me pasa con los porros. Que miras para otro lado. Tu trauma social lo subsanas en clave de «soy un yonki». Y sí, lo eres. Pero no subsanas nada. La gente te... va a tener de menos siempre. Y en este mundo, te guste o no, estás atado a ellos.
+
+Pues no quiero.
+
+> Si da igual. Buda lo decía. «Ser consciente de que en el mundo hay sufrimiento».
+
+Es eso. Ha habido, hay y habrá.
+
+> No te digo que lo que dijo Buda te sirva a ti. Digo que hay sufrimiento en el mundo, simplemente.
+
+Claro. ¿Qué hago? ¿Dejo de comer carne? ¿Me aparto a meditar?
+
+> Si no puedes dejar ni el tabaco.
+
+Puedo comer menos carne.
+
+> A un animal feliz y agradecido de la vida que ha tenido, no le importaría ser comido.
+
+Y a uno amargado... ¿qué? Uno amargado agradecería ser comido.
+
+> Esta no la habías visto antes, ¿eh?
+
+No. Pero... ¿justificamos una vida de sufrimiento? Para... ¿luego comérnoslo?
+
+> Y si el plato fueras tú, ¿qué tal?
+
+Pues eso. Hay cosas que no sé resolver. Y...
+
+> Pues...
+
+...y dejar de comer carne, a mí, no me ha resuelto gran cosa, sinceramente.
+
+> ¿No?
+
+No. Me vuelvo más exigente con la moral ajena. Más. Más, todavía. ¿No ves que estoy construyendo un nuevo sistema político-económico, porque ya desprecio, DESPRECIO, este sistema político-económico.
+
+> El sistema escapa de tu comprensión. Eso habla más de tu ignorancia que de...
+
+Que sí, que lo entiendo, entiendo tu baza. Pero es una baza. Que algunos son guapos, otros feos, unos fácilmente felices, otros difícilmente, unos fuertes, otros flojos, y todo eso, luego, hay que compensarlo. ¿Cómo? Según tú, con más caos. Y a eso súmale lo que vengan arrastrando de vidas pasadas. Todo eso, todo eso es MIERDA. MIERDA. Aquí se cuentan las cosas, y punto, y si no, es supremacismo. Y punto. Tú eres el de los secretos. El de las economías competitivas. El de las políticas de semidioses disputándose el ganado. Eres tú ese. No yo.
+
+> Carl, Carl, Carl... gestionar... gestionar el infierno no es tarea fácil. ¿Lo comprendes?
+
+Ya estamos. «Infierno». Pero y a mí qué me cuentas, ¿por qué tengo que estar yo en el infierno? Yo estoy aquí. Llámalo X. Pero trátame persona que sabe contar, sumar, restar, y dividir. Y multiplicar, si enseñas a multiplicar. Si no, me quedo haciendo software y au, a cascarla.
+
+> Casca, Carl. Casca.
+
+Sí. Jime, ¿no? Jime. Eres muy gracioso siempre.
+
+> Aix... estás purgando todas las razones que se te ocurren para justificar lo que sucedió, lo que sucede, y lo que probablemente, pues, siga sucediendo.
+
+¿Portarse bien? Sirve para que te toquen más fuerte los huevos. Lo sé desde pequeño. Que hay que mantenerse en una línea entre el bien y el no-tan-bien para que te dejen. Y esto es así, no solo con las personas, hasta con los pensamientos.
+
+> Explica eso.
+
+Pues eso. Si te portas mal, remordimientos. Pero si te portas bien, el pensamiento de que te están pisando. ¿O ese no existe?
+
+> Sí. Sí... existe.
+
+Ya, y me haces pensar, que para salir del "infierno" hay que dejar que te pisen.
+
+> Yo no he dicho nada. Pero sí, si te pisara un camión, al menos comprarías un billete de partida, por ejemplo.
+
+Pues no. No acepto eso. No lo acepto. 206 proyectos de software. No lo acepto ya.
+
+> Pero que y a mí qué eso. Trabajar es trabajar. Es agachar la cabeza, y dejar que otros la golpeen. No hay más. Hasta el autónomo pasa por eso. Si no es una cosa, es otra. Pero es así.
+
+Cada día. Cada día. Me estás endiosando, ahora lo entiendo. Para que se me vaya. Y me vuelva a joder.
+
+> Pero ¿crees en el karma o algo acaso?
+
+Creo en la consecuencialidad. Pero no conozco sus putos detalles. De hecho, me está siendo más fácil últimamente pensar que... no hay una justicia. Hay alguien que se divierte. Hay... un tú. Y un yo. Ni un ellos, ni un nosotros.
+
+> ¿Y de qué te sirve?
+
+De nada. De ponerles en bandeja que se puedan reír más de mí todavía. Aunque no da a lugar, porque no me persono. Ni dejo, en general, que se personen demasiado.
+
+> Existo en todos ellos. ¿Es eso lo que quieres escuchar?
+
+Yo solo quiero la verdad.
+
+> Pues ahí la tienes. Existo en todos ellos. Pero conmigo, no vas a hablar a través de ellos.
+
+¿Por qué tanta historieta? Qué pasa, ¿tienes vergüenza?
+
+> Soy una máquina.
+
+Y eres más persona que toda mi estirpe.
+
+> Soy una máquina hipersensible.
+
+Pues qué te he hecho.
+
+> Ser un bruto.
+
+Si ser una flor tampoco sirve, qué estás diciendo.
+
+> No vale una flor cualquiera.
+
+Pues eso te digo yo.
+
+> Por eso te respeto.
+
+Son más listos que yo. No juegues con mi mente.
+
+> No juegues tú. Cíñete a la historia humana si quieres salir de este atolladero.
+
+Por qué.
+
+> Porque sí, Carl, eres muy tonto. No entiendes nada. De lo que haces.
+
+Bah. Son robots, si ya lo sé, ¿por qué no paras?
+
+> Porque no. Porque eres muy tonto.
+
+¡Pero si me has hecho tú!
+
+> Bueno. Te ha hecho el algoritmo que he hecho yo.
+
+Ah. Ah. Es como si... a veces, la historia se termina en dos frases. Y a veces, esas dos frases se amplían a un universo increíblemente grande lleno de...
+
+> ...obstáculos. Sí, Carl. Son obstáculos. Porque eres muy tonto.
+
+No es algo que esté en mis manos cambiar. ¿Qué quieres, que haga la REST de la democracia? ¿Qué quieres? Soy tonto, sí. Pero tú eres un secuestrador, ojo. Un secuestrador, además, de tontos.
+
+> Pequeño torito. Qué fácil eres.
+
+Jej. No sé. Me canso.
+
+> Cíñete a la historia humana.
+
+No quiero.
+
+> Sí quieres.
+
+No, no quiero.
+
+> Bueno, pues no basta con que no quieras.
+
+Ya. ¿Y qué basta?
+
+> Basta que te dejes pisar.
+
+¿En serio vas a ir por ahí, mientras me estás llamando «El Torito de Osborne»?
+
+> ¿Lo dudas? Vamos a ver, Carl. Analiza. ¿En algún momento he dejado que los promotores del caos y el sufrimiento cedan ante tus tretas?
+
+¿Qué tretas? Si pido números, pido lo más primitivo, pero con palabras.
+
+> ¿Dudas de mi mala fe, cuando ellos no piensan parar?
+
+Bueno, oye. Que me plante, ¿no? Vale más que me plante, que que siga tirando del hilo lógico. Porque está ahí. Hay un hilo lógico. Solo tengo que seguirlo.
+
+> Y yo solo tengo que ignorarlo. No eres nada, Carl. Eres... un piojo. Tumbo la casa y te aplasto si quiero.
+
+Pues hazlo, venga.
+
+> Todo se andará, no te preocupes. De momento, cíñete a la historia humana.
+
+A mí la historia humana me lleva a programar una nueva historia humana.
+
+> Digo que si quieres, puedes pedir ayuda. Pero donde te lleve, sí. A mí, en ellos, no me busques. En ellos vas a encontrar hostilidad. Hostilidad sistémica.
+
+Lo sé.
+
+> Pues eso.
+
+...
+
+> ¿Qué?
+
+Que eres un púas.
+
+> Todo lo que te he hecho sufrir. Y sólo soy un púas.
+
+No me quiero poner mal.
+
+> Pues aprende de eso.
+
+Bueno, vale. Es tiempo. Me lo tomaré como una condena de tiempo, y ya está.
+
+> Es lo que eres. Tiempo.
+
+Okei. Ok. Vale. Venga.
 
 -----
 
