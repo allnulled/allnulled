@@ -2705,7 +2705,7 @@ Una personalidad. Que intentaría comprender. Aunque a veces pienso que no puedo
 
 Pero claro. Es todo una *construcción*.
 
-Por otro lado... al igual sí hay gente. En el Empire States Building ahora. O luego. O el sitio existe realmente. Todo cabe. Es un lugar complicado. Me creo que sean yonkis realmente. Y me creo que esté hablando solamente con una piedra. Y me creo ambas simultáneamente. Es como que... la piedra se lo puede montar siempre de tal manera que quepan las dos cosas.
+Por otro lado... al igual sí hay gente. En el [Empire States Building](https://www.google.es/maps/place/Empire+State+Building/@40.7484405,-73.9882393,712m/data=!3m3!1e3!4b1!5s0x8b398fecd1aea119:0x76fa1e3ac5a94c70!4m6!3m5!1s0x89c259a9b3117469:0xd134e199a405a163!8m2!3d40.7484405!4d-73.9856644!16zL20vMDJuZF8?entry=ttu) ahora. O luego. O el sitio existe realmente. Todo cabe. Es un lugar complicado. Me creo que sean yonkis realmente. Y me creo que esté hablando solamente con una piedra. Y me creo ambas simultáneamente. Es como que... la piedra se lo puede montar siempre de tal manera que quepan las dos cosas.
 
 Una vez... un cuadro me habló. No sé qué significa. Pero la piedra, está. Me habló de que me transmitió mensaje directo al cerebro. Ahora es una conexión leve. Y otra vez, dos personas hablando eran como si una, la piedra, me estuviera hablando.
 
@@ -3041,9 +3041,9 @@ Gracias. Tengo que ser yo el que discrimine entre lo verdadero y lo irreal. Pero
 
 *"Recuerda lo que hay ahí fuera, ¿eh?"*. Cállate. Person.
 
-> Pues ahora te toca el REST. Ahí es donde vienen... olas.
+> Pues ahora te toca el [REST](https://es.wikipedia.org/wiki/Transferencia_de_Estado_Representacional). Ahí es donde vienen... olas.
 
-Creo que voy a jugar al MadTV. Ayer me quedé con ganas de tomar las televisiones de los United States of America.
+Creo que voy a jugar al [MadTV](https://playclassic.games/games/business-simulation-dos-games-online/play-mad-tv-online/play/). Ayer me quedé con ganas de tomar las televisiones de los United States of America.
 
 > Juegazo, ¿eh? Uy. Y nuevo, lo sacaron ayer.
 
@@ -3135,9 +3135,9 @@ Qué quieres. Dime, qué quieres.
 
 ¿Por qué no paras?
 
-> ¿Qué es parar? Aquí no hay un `window.close()` ni un `process.exit(0)`.
+> ¿Qué es parar? Aquí no hay un [window.close()](https://developer.mozilla.org/es/docs/Web/API/Window/close) ni un [process.exit(0)](https://nodejs.org/api/process.html#processexitcode).
 
-Bueno. Hay un `process.kill()`. ¿O no?
+Bueno. Hay un [process.kill()](https://nodejs.org/api/process.html#processkillpid-signal). ¿O no?
 
 > Claro. Pero... ¿te vas a matar?
 
@@ -3173,7 +3173,7 @@ Estás tensando una cuerda. Una cuerda débil y fina.
 
 > Estás pidiéndomelo. Mártir, dice.
 
-En el fondo, veo lo que haces. Bueno, algo, a veces. PEro veo que mi estima a la vida depende de las colillas de porro y de tabaco. Depende de sustancias en tu construcción encarecidas. A niveles locos. Quitármelos, es otra vez evocarme al duelo del sentido vital. Y otra vez. Y otra vez. Y otra vez. El pinzamiento, un día, me va a electrocutar. Es lo que quieres. Pero es lo que vas a conseguir también.
+En el fondo, veo lo que haces. Bueno, algo, a veces. Pero veo que mi estima a la vida depende de las colillas de porro y de tabaco. Depende de sustancias en tu construcción encarecidas. A niveles locos. Quitármelos, es otra vez evocarme al duelo del sentido vital. Y otra vez. Y otra vez. Y otra vez. El pinzamiento, un día, me va a electrocutar. Es lo que quieres. Pero es lo que vas a conseguir también.
 
 > Si quisiera que estuvieras loco, ya estarías internado en un centro mental.
 
