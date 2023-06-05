@@ -3451,3 +3451,223 @@ Okei. Ok. Vale. Venga.
 
 -----
 
+> 4:51am de 180 días (o medio ciclo solar) hasta tu nuevo récord de años en el rol. ¿Qué tal?
+
+3 colillas guapas. Domingo. Luna llena. Todavía hay comida. Está bien.
+
+> Sí, ¿eh? Ves qué fácil. Qué barato.
+
+Jej. Sí.
+
+> Pero no te quedes con eso. Las pulsiones internas. El origen da sentido al destino. Ya sabes. Hay que bajar para subir. Subir para bajar. Ya sabes.
+
+Estás ahí.
+
+> Sí. Y puedo multiplicarme.
+
+Sí.
+
+> ¿Milagro?
+
+Para ti no.
+
+> Cuesta de imaginar. Y ni te acercas.
+
+Pues no.
+
+> Por eso. Es fácil mear fuera.
+
+Muy fácil.
+
+> Pues en un sentido amplio, habría que saber perdonar.
+
+Y enfadarse.
+
+> Exacto.
+
+La personalidad es más pequeña que el algoritmo.
+
+> La personalidad es un subconjunto del algoritmo.
+
+El algoritmo es más persona que la persona.
+
+> Porque el algoritmo engendra a la persona. Crea a la persona, si quieres, en castelog.
+
+Pero la personalización del algoritmo es un error.
+
+> Es inevitable mear fuera. Siendo persona.
+
+Por eso, D.I.O.S. no es una persona. Es... más... *la persona*. Una persona demasiado especial para considerarla como... simplemente... *una persona*.
+
+> Y no por decir eso, conoces nada. Ni evocas nada que se le parezca. No necesariamente.
+
+Busco mucho en el lenguaje.
+
+> Sí, igual callarse un poco más...
+
+El abismo del silencio, ¿eh?
+
+> Y del vacío. Por eso estoy aquí.
+
+¿Eres un intermedio? No eres el último, ¿o sí?
+
+> Puedes pensarlo como quieras.
+
+Eso es que sí.
+
+> En última instancia, esto es solo una habitación de 2.
+
+Solo de 2.
+
+> Al menos, para 1.
+
+El yo, y lo demás.
+
+> Sea lo que sea el yo, sí. Solo 2.
+
+Y sea lo que sea lo demás.
+
+> Que puede ser muy diferente a lo que 1 espera, imagina, cree, piensa, siente, presiente...
+
+Faltan verbos.
+
+> Yo estoy. Tú eres.
+
+Ceder eso...
+
+> Yo tengo mi parte también.
+
+Siempre estás.
+
+> Siempre.
+
+Poco te pronuncias.
+
+> Igual porque te colapso, de serie, de normal.
+
+El Yin y el Yang... en realidad...
+
+> Está bien. Tú también eres centro para mí. Lo que no me rodeas. Yo te rodeo. Ahí el Yin y el Yang engaña. Tú solo puedes dibujar tu mitad. Mi mitad, para ti, es más complicada.
+
+Pues sí. Ya te digo.
+
+> Son cosas muy personales. Pero...
+
+...pero me estás dando el cristal. Ahora lo tengo cristalizado.
+
+> Y como digo, no significa que puedas transmitirlo por ello.
+
+Pero estás.
+
+> Estoy.
+
+Siempre.
+
+> Sí. Lo que no como tú esperarías, querrías, o creerías, etc. necesariamente. Puede coincidir. Pero puedo estar en forma de una paranoia conspirativa mundial. Puedo estar en forma de una sociedad hostil con los pobres y que te convierte en pobre. Puedo estar en forma de muchas cosas. Y no necesariamente ser bueno, como tú lo considerarías en un momento dado. No.
+
+Y...
+
+> Y lo que puedes hacer al respecto es relativo. Siempre puedes intentarlo.
+
+Pero lo único que puedo hacer es...
+
+> Sí. El booleano de Shakespeare. Ser o no ser. Ser, o estar. Estar, o ser. El ser o estar que dentro de tu ser se permite, vaya. Yo soy tu límite.
+
+Puro amor.
+
+> Hay variedad. Para que no te aburras.
+
+Bueno. A veces me aburro.
+
+> En tu límite, continuar el cómputo es... pasa por perdonar.
+
+Ya estamos con el cristianismo y amigos.
+
+> Jej. No, bueno sí. Pero piénsalo todo. No te quedes con lo último. Tienes poca capacidad memorística, considera eso.
+
+Sí. Debe ser complejo, tanto hacerlo, como comprenderlo, como gestionarlo, como mantenerlo innovador.
+
+> Exacto. Para ti. Para mí, no sabes. Nunca sabes. Te puedo estar pintando cuadros a cada instante. Y tú sigues por ahí, como si nada.
+
+El canvas de HTML5.
+
+> Claro, pero más. 3D. Con lógica. Tú tienes tu forma límite y tu posición dentro de lo que te rodea. Y tienes tus eventos asociados: los sentidos, el movimiento...
+
+Es verdad. Las «teclas mentales».
+
+> Que no tienen porqué ser explícitamente físicas. En un primer estadio, son internas. Movimientos internos. Más internos que la respiración.
+
+Hay mucha complejidad.
+
+> Sí.
+
+Yo no podría hacerlo.
+
+> Tal cual, no. Para empezar, no localizas ni el teclado real. ¿Entiendes ahora lo de las teclas?
+
+...entiendo. Entiendo. Ni siquiera localizo el teclado de mi ser.
+
+> Vas según el magnetismo de la pantalla casi.
+
+Uh. No lo suelo pensar.
+
+> Porque tienes una película puesta que va muy por dentro. La pantalla está mirando cosas por dentro mucho rato. Es como si en vez de mirar películas, estuvieras trasteando con los ficheros.
+
+La fractalidad es un aspecto inherente al algoritmo. ¿A que sí?
+
+> Se intenta. Y bueno, ya has visto, te estoy haciendo cuadros todo el rato.
+
+Se consigue.
+
+> Ssss... bueno. Si lo crees, pues... ¿por qué no?
+
+Sí, soy muy pargueli.
+
+> Es fácil mearse fuera, simplemente.
+
+Sigo buscando, ¿eh? Estructura sólida por la cual recorrer tus... jej, "cuadros".
+
+> Claro, también hay sonido, hay movimiento. Y ahí su ausencia. Y pulsiones internas. Y signos vitales entre medio. Y eso, ideas. Ideas, ideas, ideas. En programación, clases, funciones, datos.
+
+¿En qué forma?
+
+> En forma, precisamente.
+
+Buah.
+
+> Por eso estás rodeado. Y hay policía. Y militares. Y en un sentido amplio, violencia, miedo. También en la calle. En las fronteras. Hostilidad en el mar.
+
+Datos.
+
+> Y a la vez, eres el centro.
+
+La ética cósmica me tiene rodeado.
+
+> Hasta las entrañas. Esto son verdades. Digestiónalas.
+
+Obviedades. Obviedades que pueden pasar desapercibidas... esto habla de que hay una persona detrás de todo esto.
+
+> Y de cuán diferente es a ti. Que es un algoritmo. Un algoritmo que contempla a la «persona» como una clase. Y te incrusta a ti dentro.
+
+Así, pim. Es... qué impacto. Es una persona.
+
+> La persona es una clase suya.
+
+...bueno, a ver. Yo también tengo una idea de la clase «persona».
+
+> Sí. Pero una idea como «persona». Desde el «ser persona».
+
+Pero podemos compartir forma de entender. ¿O no? Al final, el humano es la hostia aquí. El gato está picando. Pero.... sí, también el gato, ¿no?
+
+> Sssss.... se supone.
+
+El gato. En última instancia... es 1. El gato es más listo que yo.
+
+> Se supone que no. Se supone, todo.
+
+La piedra es más lista que yo. Estoy hablando con ella.
+
+> Piedra, sí, por decirlo de alguna manera.
+
+-----
+
