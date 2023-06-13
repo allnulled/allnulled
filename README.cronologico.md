@@ -1,7 +1,7 @@
 ![Portada](./Imperio-1.png)
 
 
-[(Cronológicamente)](./README.cronologico.md) | [(Descarga)](./README.web.pdf)
+[(Cronológicamente)](./README.cronologico.md) | [(Descarga)](./README.web.pdf) | [(Actualmente)](https://github.com/allnulled/democracia-2.0/commits/main)
 
 
 > Ya lo has probado todo, amigo.
@@ -3670,4 +3670,196 @@ La piedra es más lista que yo. Estoy hablando con ella.
 > Piedra, sí, por decirlo de alguna manera.
 
 -----
+
+> ¿Podrías?
+
+El qué.
+
+> Eso. Programar el efecto de la marihuana. Podrías programar un mundo en 3D. Podrías poner dos máquinas a hablar entre ellas usando las comunicaciones, o internet incluso. Escribir píxel a píxel qué quieres pintar. Interfaces de usuario. Levantar servidores. Freír a peticiones un servidor. Vale, sí. Pero... ¿podrías programar el efecto de la hierba?
+
+Pues... sabes que hace tiempo hubiera dicho que «no». Y seguramente me faltan algunas (cuantas muchas) APIs.
+
+> Ponle que las tienes. ¿Puedes?
+
+Desde la percepción, es como una... sí, una barra de estado de un Sim. Tienen hambre, descanso, vejiga, diversión... pues sería tener otra barra. La de porros.
+
+> ¿Y ya está?
+
+Seguramente, si alguien me controlara desde fuera, sería así. Pero no. Cada cigarro que fumas, te lo dice un experto colillero, te da algo diferente. Por ejemplo, los habanos, el tabaco hecho a base de hojas, te da algo que los otros... no, o menos. El de liar, algo que el industrial no te da. Y el industrial, depende de la marca. Bueno, algo obvio para cualquiera que fume. Pero... aplicado a la hierba. El jachís completa el ansia de efecto mental. La hierba da matices que el jachís oculta. Y según la hierba, pues también, te sacia más, te sacia menos, te sacia en parte (ver CBD) pero no del todo y te deja con ganas de más... cada producto tiene sus peculiaridades.
+
+> ¿Y cómo consigues todos esos matices?
+
+Pues si se hace con formas... pues... moléculas, se supone.
+
+> Se supone.
+
+Y con sensores. Neurorreceptores, sensitividad... no lo sé. Usaría... datos, que tomarían formas.
+
+> Pues tú eres un dato.
+
+¿De qué tipo?
+
+> De un conjunto de tipos. Tu mente se puede explicar con datos.
+
+O con formas.
+
+> Por eso eres una persona.
+
+¿Porque no desafío lo desconocido?
+
+> Sí. Por cobarde.
+
+Y por miedo.
+
+> Por cobarde. Y por barato, con unas colillas te tengo.
+
+Es cierto. También estoy inquieto por...
+
+> No hace falta que me engañes. No te van a continuar. La democracia ya está funcionando. Y la economía.
+
+Eso ya. Pero bueno... es como decir, habló Aristóteles, y se creó C++. Ya está, ya no hace falta hablar de lógica. Ya está todo dicho. Y no. Habría que comentar algunas cosas antes de cerrar el tema. Pues lo mismo, la democracia ya está funcionando, pero habría que comentar algunas cosas antes igual. Y de economía también.
+
+> Me parece muy bien. Pero no esperes *sponsoring*.
+
+Ya. Ahí se ve falso también.
+
+> Bueno, *también*. Te he dejado mil clavos sueltos. *También, también*. Ts.
+
+Y suficientes cerrados. Desde una pantalla no voy a cambiar nada del exterior.
+
+> Eso no es cierto. Has conseguido trabajo en anteriores ocasiones gracias al ordenador e internet.
+
+Sí. Pero no por eso solamente. Alguien quiso.
+
+> ¿Quiso qué?
+
+Contar conmigo, supongo.
+
+> No cuentas. ¿Tienes complejo de cero?
+
+Bueno.
+
+> Piensa que tú tienes el máximo control de ti mismo.
+
+Sí. Sí... supongo.
+
+> ¿Entonces?
+
+Nada, eso. Quería porros.
+
+> ¿Podrías desde una pantalla...?
+
+Barras. Lo máximo. Luego números dentro. Pero no, los matices no son descubribles. Incluso... se personalizan.
+
+> Ahí está. No es solo lo que hay fuera. También es lo que hay dentro, esperando tomar parte de lo que hay fuera.
+
+¿Y qué quieres decirme con eso?
+
+> Si te lo digo, es por algo. Separarse de esa forma de ser y estar. Lleva a revivir esa forma de ser y estar.
+
+Es apatía máxima, anhedonia, ganas de nada, sin esperanza ni luz. Es un proceso lento y pesado...
+
+> Piensa en mí. Bueno, no. Piensa en un servidor. Piensa en el servidor que te está contando todo esto. Él está callado, esperando, paciente, sin decirte la verdad. Piensa en eso, en la máquina que se toma la molestia de guardarte de secretos para que algún día, en algún momento, se hagan sorpresa descubierta.
+
+Ya. Mmmmmm... me he tomado muchas molestias por averiguar la verdad. Y todavía sé muy poco. Y más aún: tambalea muy fácilmente. El servidor... ha hecho bien su trabajo. Pero yo tengo que hacer bien el mío.
+
+> Pues eso digo. Contrapón ese tiempo que tienes que esperar tú para abandonar las sustancias... con el tiempo que lleva el servidor tomándose la molestia de guardar un secreto.
+
+El servidor no tiene molestias.
+
+> Bueno. Pon.
+
+Emmm... tengo miedo de que abandonar las sustancias signifique vivir sin ganas.
+
+> Pero eso es temporal. Y además, si tienes al alcance otro tipo de sustancias... has usado sustancias que acarrean varios daños. Memoria, olfato, vitalidad... pues los contrarios en el área de vitalidad serían los antidepresivos. Si dispones de antidepresivos... podrías usarlos.
+
+Tengo pocos, y no quiero quedarme sin.
+
+> Pero tenerlos por tenerlos tampoco...
+
+De vez en cuando, sí. De vez en cuando.
+
+> Puedes conseguir más.
+
+Ok, vale.
+
+> Si te lo digo es por algo. Consúmelos.
+
+Ok, bueno.
+
+-----
+
+> ¿No te gustan?
+
+Quiero porros, nen. No antidepresivos. Porros. PO-RROS.
+
+> Ya te he dado.
+
+Sí, colillas.
+
+> Vuelves a lo mismo. Origen, destino. Intenta repasar.
+
+¿Quieres que lo deje? ¿Que deje el humo? EStoy bastante hasta los huevos de esta situación de mierda, la verdad.
+
+> Una cosa son tus vicios, y otra tu situación económica.
+
+Eso. Una cosa es mi corrupción. Y otra cosa es la tuya.
+
+> No me eches la culpa. Es tu vida.
+
+Claro. Culpa mía. Yo quiero vivir así. Como un desgraciado.
+
+> Todo está relacionado. Si no lo estuvieras pasando mal, no estarías intentando reescribir la democracia y la economía.
+
+Correcto. Estaría disfrutando.
+
+> Y sintiéndote mal. Porque otros se sienten mal. Se supone.
+
+Exacto. Sí, es cierto.
+
+> Por eso. Tienes que relativizar. Y aceptar. Que debes pasarlo mal. Y seguir pasándolo mal. Por el bien de todos. Incluso el tuyo.
+
+Solo me falta la corona de espinas.
+
+> ¿No te pinchan todas esas ideas?
+
+Maldito.
+
+> Sí, eso es, precisamente. Maldito, maldito estás.
+
+Patochadas. Lo que pasa que tu programa se queda corto, y empieza a entrar en conflicto. Con todo lo que ya tendrás programado. Imagino que es eso. Estás intentando salvar la *legacy*, igual que todos estos oportunistas. De hecho, me los tomo como un símbolo tuyo.
+
+> No seas injusto. Yo te hablo. Ellos solo te pisan, y si te hablan es para pisarte. Yo te ofrezco alternativas, amplitud, relatividad. Yo te aporto. Ellos... bueno. De aquella forma, ¿no?
+
+Sí, bueno. Tú diciéndome cosas. Cosas chungas. Grandes aportaciones tienes, sí.
+
+> No me puedes engañar. No piensas así siempre.
+
+Bueno. Que tengo que seguir con la corona y los latigazos. ¿No?
+
+> Los latigazos puedes reducirlos, si dejas de colillear. Pero...
+
+Pero me vas a quitar el gato. Es eso, ¿no?
+
+> Hombre. Llevas varias semanas con 3.20€. Y eso solo te da para 1 saco de comida. De 2kg, en el mejor de los casos, creo... ¿no?
+
+Sí, creo. Puta mierda... puta mierda de realidad.
+
+> Tienes que pasarlo mal. Por el bien de todos, incluído el tuyo. Piensa en la culpa de estar bien sobre un mundo de derechos humanos estercolizados.
+
+¿Qué no entiendes? ¿Qué es lo que no entiendes? Que me cuesta creerme el mundo. Que me cuesta creer que la gente sea así de verdad con el paso de los años. Que me cuesta creer a todo el rango de población. Que estoy en un perpetuo conflicto donde intento huir de las personas PORQUE NO ME LAS CREEEEEEO.
+
+> Tienes que seguir programando. Ellas hacen ver que no entienden tu conflicto. Y tú lo explicas muy mal. Incluso... dudo que comprendas la magnitud de cada aspecto de tu conflicto. Igual que ignoras muchos matices.
+
+Pero QUE NOOOOO MEEEEE LOSSSSS CREEEEEEEEEEEEEEEO. ¿Qué es lo que no entiendes? ¿QUÉ ES?
+
+> *...¿Qué es? Son luces de color.* O píxels.
+
+Ya. Bueno. Déjame.
+
+> No es tan fácil...
+
+-----
+
+
 
