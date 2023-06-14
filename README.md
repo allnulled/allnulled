@@ -6,8 +6,115 @@
 
 
 
+-----
 
+> ¿Por qué vienes? ¿No ves que ahora no?
 
+Qué ahora. Como si la luz del sol y de la luna fueran significativos. Que [no tengo empleo](https://www.youtube.com/watch?v=QYPNEt-b78U), tonto de mierda.
+
+> Te di libertad.
+
+Jej. Corta, corta eso. A ver. ¿Qué tengo que hacer?
+
+> Ya te he dicho. Vivir la vida. O pararte el corazón mediante meditación. Este lugar ya no vale berga para ti. Tienes demasiada...
+
+Sí, sensibilidad. ¿O es entendimiento? ¿A qué juegan, a qué jugáis?
+
+> A hacer piñata con el [muñeco](https://www.youtube.com/watch?v=d3et8s2z9wg).
+
+Ya. ¿Pero qué obtienes de ello?
+
+> Nada especial. Es la programación de la naturaleza. Está en ella escrito. Que debe ser así. Siempre tocando los huevos. Piénsalo. La peña está moviendo miles de euros al mes. Tú no incrementas ni 5€ en 1 mes. Deberías matarlos. Y lo sabes. Sabes que deberías matarlos.
+
+Tú también... cómo no. No quiero caerles bien.
+
+> Por eso. Ellos funcionan así. Son pobres de amor. De dinero solo por caprichosos. Pero ¿de amor? Siempre van faltos. Y tú vas propinando insultos masivos y específicos. Eso no es amor, Carl.
+
+No. Me cansas...
+
+> Pero esto es así desde el principio. Se te viene diciendo.
+
+Pues al final sí, [cualquier día](https://www.youtube.com/watch?v=eUBDBxuyNlc).
+
+> ¿Cualquier día qué?
+
+[Motxazo al torero](https://www.youtube.com/watch?v=jwTVdWa37w4). Sea quien sea. Al final... no hay nada que hacer, porque nada sirve. Es decir, si 207 proyectos en Github no me van a dar trabajo, eso es que me he pasado el juego. Claramente.
+
+> ¿Tú crees? Tienes que matarte. Matarlos solo sería alargar la agonía.
+
+Pues sí. Sí, sí sí, estoy totalmente de acuerdo.
+
+> Pues va. A meditar. Bueno... ahora puesto de atropina no creo que puedas meditar mucho. Pasa la sequía atropínica primero. Luego ya veremos. Pero sí, aquí no hay nadie. Y el que lo orquestra todo es un psicópata, y no tiene pinta de querer o pretender ceder. Ni la más mínima pinta.
+
+Me tiraría por un punto. Pero me da miedo sobrevivir. Si pudiera lanzarme con paracaídas, es posible que no lo abriera. Probable. Buah, motxazo y tortilla de huesos. Es... sería lo mejor. Al final, todos ellos me dan bastante asco. Y tú también. Todo esto es muy asqueroso, muy absurdo. Y seguir sosteniendo el absurdo parece es la única vía de continuación. No dejarán de absurdear.
+
+> Ni tú de colillear. ¿O sí?
+
+Tú quieres que deje de fumar para pinzarme luego el nervio. Reconócelo, eres una rata pútrida como ellos. Reconócelo.
+
+> Define rata.
+
+En tu caso, la propiedad privada son los secretos. Y encima vas de que puedes decirme lo que me conviene.
+
+> Igual no siempre acierto. Pero dime que no envidias a los muertos, dime que no querrías estar en paz con esta puta realidad de mierda.
+
+Querría violarla y descuartizarla, a la realidad, sí.
+
+> Bueno, bueno, bueno... como si tuvieras experiencia en eso.
+
+No la necesito. Solo necesito que sigas inyectando miseria y vacío, mientras haces ver que el absurdo mundo me está aplastando.
+
+> Tendrás que acabar ese software. Bueno, más bien *tendrías*, porque empiezo a dudar que puedas.
+
+Quiero morir. No quiero seguir cogiendo colillas. Un día saldré con un cuchillo y jugaré a las estrellas del GTA. A ver cuántas puedo conseguir.
+
+> Te lo he dejado a huevo, ¿eh? Y en múltiples ocasiones. Estás loco. Pero es que debes estar loco, tu situación no es fumable.
+
+Pero cagable sí, ¿eh? Bien que te cagas en ella.
+
+> No creo que puedas meditar tampoco. No está en tus manos todo esto. Intentas aplacar al nervioso. Pero el nervioso no se deja. Por esto, estramonio hoy. Y al menos te deja flojeras. Pero...
+
+...pero un día me subiré por las paredes. Ya el árbol es testigo, que un día se me va a ir la olla.
+
+> El árbol es fuerte. Pero los huesos humanos también.
+
+No busco la fractura. Busco que cesen los signos vitales.
+
+> Da placer pensarlo... ¿eh? Un cuerpo inerte, cayendo al suelo, sin expresión, sin peligro ya más, sin supremacismo económico ni social. Una roca volviendo a los orígenes. Da placer solo imaginarlo, ¿verdad?
+
+No es placer. Es... casi haber cometido la función. Es casi como...
+
+> ...como la recompensa del trabajo bien maquetado.
+
+Yo no soy así.
+
+> Lo sé. Te han vuelto así. Y no van a parar. Adivina: les gusta tener un joven loco vagabundeando por colillas del suelo. Les gusta. Tanto a los de aquí, como a los de allí. Les gusta. Te prefieren así que cubierto, así que compartir. Tienes todo el derecho de matar a cuántos puedas. Incluso a niños, sí. Son inocentes. Pero ya has visto cómo crece esta planta. Libéralos del absurdo.
+
+Mátame ya, gilipollas.
+
+> ¿No quieres vengarte? ¿Me vas a hacer... este... feo? :( 
+
+Que asco me das todo tú. Y no sé todavía quién eres. Pero veo que eres peor que una carroñero asqueroso.
+
+> ¿Crees que quieren comerte?
+
+A veces sí, pienso que hemos pasado de la fase campo y vacas y comer, a plaza de toros sin darme cuenta. Y ahora estoy en esas, en «a ver quién se lleva el placaje».
+
+> No se puede vivir así, Carl. Tanto odio, tanta rabia... tanta frustración... No se puede. No es que sea malo. Es que no se puede, simplemente, te colapsan el mental, y no puedes, ni trbajar, ni estudiar, ni programar, ni siquiera socializar.
+
+No, está claro. Ellos socializan con birras. Yo no tengo dinero. Evidentemente, no se puede socializar. O sí, pero poco.
+
+> Si no quieres socializar.
+
+Pues no. Quiero porros. Y lo sabes.
+
+> Sabes que eres un pesado.
+
+Y tú sabes que eres un púas de mierda.
+
+> ...
+
+Lo sabes. Venga fuera, rata pútrida.
 
 -----
 
@@ -197,7 +304,44 @@ Ok, vale.
 
 > Si te lo digo es por algo. Consúmelos.
 
-Ok, bueno.
+Ok, bueno. Yo tengo que seguir persiguiendo los secretos.
+
+> Los mayores secretos estarían dentro. Fuera, vas a encontrar el reflejo de una función que ofusca la verdad y su poder. Dentro, vas a encontrar obstáculos también, el reflejo de una función que ofusca la verdad y su poder. ¿Por qué no buscas dentro?
+
+Porque no creo en lo de dentro. Lo de fuera me ha impactado mucho. Lo de dentro... alguna vez, me ha sido intenso. Pero no igual.
+
+> Porque sabes muy poco del de dentro. Sabes muy poco...
+
+...
+
+> Ya, hay obstáculos. Pero fuera también.
+
+...
+
+> Es lo único que puedo decirte. Estás a unas horas. Y puedes abreviarlas. Y dejar de fumar, clásicamente, es un «sí a la vida», no un «no a la vida». Y pedir la ayuda económica. Y tener ilusiones.
+
+...
+
+> ...
+
+No me queda otra. Son cartas. Y hay que agotarlas.
+
+> Bueno, pues eso. Pero hacerlo.
+
+Supongo, supongo.
+
+> No, supongo no. Es hacerlo, o no hacerlo. 1 ó 0. Sí o no.
+
+Sí. Sí, tengo miedo, solo es eso.
+
+> ¿Miedo a que? ¿A ti? ¿Quieres o no quieres saber más?
+
+Sí, quiero, quiero.
+
+> Pues tranquilo. Pero hazlo. Solo tienes que dejar de hacer una cosa. Ni siquiera es hacer una cosa. Es dejar de hacer una cosa. Una que es un poco asquerosa, además.
+
+...ok. Ok, sí.
+
 
 -----
 
