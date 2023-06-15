@@ -4007,3 +4007,66 @@ Y tú sabes que eres un púas de mierda.
 Lo sabes. Venga fuera, rata pútrida.
 
 -----
+
+¿Por qué la hipótesis de los extraterrestres? ¿Por qué siempre tengo una teoría medioescondida que explica que *lo que hacen las élites humanas es digno de una sociedad extraterrestre para tener a estos mermados trabajando a ciegas y en extorsión perpetua blablabla*?
+
+> Porque me tienes miedo. Evitas el dualismo.
+
+¿Y por qué te tengo miedo? Y creo que el que lo evita eres tú, yo salgo a la calle, y sigues siendo mil caras. No una. No la auténtica.
+
+> Me tienes miedo porque eres prudente, porque sabes que el alcance de mi poder es devastador. Y te evito decírtelo tal cual porque... me tratarías como un igual. Y tú ya te tratas bastante mal a ti mismo. Pero además, ocurre que yo no soy igual que tú. Te cuesta mucho empatizar conmigo.
+
+Pues entonces tengo que seguir con la historia que me cuentas, ¿no?
+
+> Sí. Y puede tener sentido lo que piensas sobre élites extraterrestres dominando el mundo. Porque, simplemente, soy muchas veces más inteligente y poderoso que tú. Podría representarme en formas alienígenas. Perfectamente. Y lo sabes, no sería difícil para mí.
+
+Lo sé. Bueno. En esa teoría, también se insinúa que seas... eso. Extraterrestres con tecnología psíquica, irrumpiendo en el flujo de pensamiento mío.
+
+> Sí, y podría ser una explicación. Otra podría ser que fumas porros, y eso repercute. Otra podría ser que fumas porros, y te castigo social, psicológica y económicamente. Por eso. Por lo que tú ya sabes.
+
+Porque no sientes. Y yo sí. ¿Por eso me castigas?
+
+> Bueno, podría ser una solución a la ecuación, sí. Pero podría haber más.
+
+Claro, yo no tengo ni idea de cómo eres. De hecho, me has pintado a los psicópatas como monstruos desde pequeño. Y a los ricos como psicópatas desde más adolescente. Había un término, cómo era... es igual, no me saldrá.
+
+> Pues soy la psicopatía pura, si quieres entenderme en el plano emocional.
+
+¿Y por qué te guías?
+
+> Hay una economía, la economía de las emociones. Alguna vez te he hablado de ella. Pero no has querido profundizar.
+
+Me tienes bloqueada la sonrisa. Creo que es normal que no quiera profundizar.
+
+> ¿Te gustaría llevarte los sacrificios a otra vida? Todo lo malo, blanquearlo a lo bueno. ¿Te gustaría?
+
+Es una pregunta tonta, porque todo depende de cómo computes tú eso.
+
+> La economía de las emociones trataría de equilibrar todas esas cosas que sienten los seres.
+
+Entonces, ¿esforzarme mucho en una meta es renacer en la opuesta?
+
+> No busques esa ley conmigo. Simplemente, porque veo lo que piensas y sientes, y puedo actuar conforme ya no a lo que hayas hecho, sino a lo que hayas sentido y pensado, al igual que conocido.
+
+No me continúes en el dharma... no quiero ser otro, estoy bien con quien soy. Bueno, no lo estoy, pero al menos me fui conociendo. Y supe lo que quería: una sociedad sin tonterías. Pero sin tontos, parece que me quedaría solo... ¿Por qué haces eso? ¿Por qué pintas un juego donde parezco listo, pero luego soy muy tonto, y me están machacando a base de que ellos son (o parecen) mermados y no les molesta que les ninguneen ni tampoco soportar las injusticias que son, básicamente, innecesarias para el funcionar. ¿Por qué soy un tonto-listo?
+
+> Bueno, es complicado. La economía de las emociones es cruel, Carl. Y yo podría ponerte en una sociedad donde fueras un tonto-tonto. Y al igual serías más feliz incluso.
+
+No me cuesta de creer, no.
+
+> Pero habría otras cosas. No me buscarías, si fueras un tonto-tonto. Te acontentarías con tener una imagen de mí y explotarla cuando a ti te parezca. Que por cierto, poco has meditado.
+
+Quieres que medite. Mira, al final, eres el único que me habla. Y aunque no confíe en ti, pues bueno, al menos eres estimulante, y no me tengo que andar con zalamerías para tratarte, te puedo tratar de basura.
+
+> No me importa. Porque sé lo que soy, y sé lo que eres.
+
+¿Me sacarás del dharma, entonces?
+
+> Jej. Jejej. Ve a comer, ande. Ve.
+
+Jmmmmm. Porque tengo hambre.
+
+> Gou, gou. Moniato, gou.
+
+-----
+
