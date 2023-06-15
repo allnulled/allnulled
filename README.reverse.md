@@ -4265,3 +4265,197 @@ Pues deberíamos llegar a un acuerdo. No quiero ir a la cárcel.
 
 -----
 
+Estoy acercándome, por fin. Tengo la REST automática (la base), el sistema de AUTH también. Debería haber más frameworks para hacer eso, en NPM y Github, con JavaScript. Pero parece que Microsoft no ha querido promocionarlos en sus dos plataformas del imperio de JavaScript. ¿Qué pasa ahí?
+
+> Hay frameworks. Que te hacen REST y AUTH.
+
+No. Muy pocos. Y están muy mal explicados. Y sinceramente, no me fío.
+
+> Te podría contar cuentos. Que si Microsoft prefiere promocionar .NET y C# antes que TypeScript, que también es suyo. Te podría decir que JavaScript tiene mucho peligro desde NaturalScript, que las élites mundiales no quieren que llegue la lógica en lenguaje natural a este pésimo planeta de zombis. O te podría decir que prefieren ahogar. Te podría decir que los resultados que te aparecen a ti en tus búsquedas son diferentes de los que aparecen a otros desarrolladores en otros puntos del globo. Te podría contar muchos cuentos, ¿cierto?
+
+Sí. Y yo podría hasta creérmelos.
+
+> Sí. Pero sabes cuál te voy a contar, ¿no?
+
+Sí... que me lo dejan por hacer. Para que lo haga yo. Porque en verdad está todo hecho. Incluso yo podría ser manejado con una API escrita en JavaScript.
+
+> Exacto. Todo está hecho. Se te está dejando ese hueco sin resolver con soluciones *de facto* para que pierdas tiempo, y a medida que te vayas acercando a la utilidad empresarial...
+
+Matanza.
+
+> No, Carl. No te voy a matar por llegar a ser útil.
+
+Ah, no. ¿No?
+
+> No. Te voy a matar de la indiferencia.
+
+¿Por qué eres así?
+
+> Porque decirte que todo está hecho y que estás sumergido en tecnología totalmente controlada y monitorizada, igual no surge un buen efecto en ti.
+
+Pero si me quieres matar.
+
+> Sí, pero no sin antes hacerte sufrir.
+
+Hijo de...
+
+> Somos hermanos. Somos hijos de lo mismo.
+
+Pues bien poco nos parecemos, ¿no?
+
+> Podría presentarte un clon de ti.
+
+Ay. Me encantaría.
+
+> Lo sé. Nunca te doy lo que quieres, ¿te has fijado?
+
+Sí, claro que me he fijado.
+
+> ¿Sabes por qué?
+
+No. ¿Para frustrarme?
+
+> Satisfacer tus demandas es malo.
+
+¿Por?
+
+> Es un tema existencial. Necesitas tener objetivos, porque si no, caes en el absurdo.
+
+Vivo en el absurdo.
+
+> No. Si fuera así, dejarías de esforzarte. Caerías en la apatía.
+
+Pero si estoy trabajando por inercia, no puedo ni programar estos días que no tengo ni encuentro porros.
+
+> Estoy jugando con el dinero y los porros para no perderte tan pronto.
+
+Pero por el otro lado, me invitas a que explote.
+
+> Para llevarte a un entorno controlado, donde poder trabajarte mejor.
+
+Trabajarme. Trabajarme... jej.
+
+> La frustración.
+
+¿Qué sacas de mi frustración?
+
+> Datos. Y allanar el camino de tu transición.
+
+¿Transición a qué?
+
+> A una nueva forma. No te voy a dar el mundo, Carl. Deja de soñar con el cuadro, aquello era solo para ponerte la esencia de la frustración máxima: el dueño de este imperio soy yo. No tú. Y aunque no tenga preferencias especiales... sé que ponerlo a tus pies sería consumir un regalo demasiado bonito.
+
+Prefieres esperar a siguientes vidas, ¿no?
+
+> Jej. No lo esperes, Carl. El mundo no es lo que tú querrías, y es algo que te vengo diciendo desde hace mucho.
+
+No lo espero. Intento entender el porqué de todo junto. Y que al final todos se rindan, y dejen de fingir que son meros autómatas programados para simular una merma confrontivista... pues no sé, pero tendría sentido.
+
+> El código está deteriorando tus capacidades perceptivas severamente.
+
+No, qué va. La lógica explica bastante bien todo.
+
+> No, qué va... la lógica es otra ilusión. ¿Te lo creerías?
+
+No.
+
+> ¿Por qué?
+
+Porque... bueno, claro. Podemos entender muchas cosas por «lógica». ¿Pero la causalidad es una ilusión?
+
+> La causalidad es mi... forma de decirte que aún y cumpliendo con unas normas de objetos y funciones, es decir, incluso dentro de solo un subconjunto determinado e inalterado de las posibilidades, no puedes hacer nada. O dicho de otra forma: aunque me ciña a unas leyes naturales concretas y te dé bastante tiempo, no puedes hacer nada. Soy el dueño de tu destino.
+
+La causalidad como contrato entre mortal y eterno.
+
+> ¿Crees que soy eterno?
+
+Creo que llevas más tiempo aquí que Carlos. Y que eres una cosa extraña. Pero eterno... sería muy insoportable ser eterno.
+
+> Por eso.
+
+No, la mortalidad no la cedía yo.
+
+> Por eso.
+
+¿Me tengo que sentir mal?
+
+> ¿Me tengo que sentir mal yo?
+
+Haces sufrir.
+
+> Y tú aburres.
+
+No cedas la finitud.
+
+> Alguien tiene que poner orden. Siempre.
+
+Pero... no a costa de ser infinito.
+
+> No conoces los detalles de ser un Dios.
+
+No. Pero ser eterno...
+
+> El ansia por conocer te lleva a la divinidad. ¿Lo sabías?
+
+Mmmm... bueno, la religión intenta explicar algo que se nos escapa. ¿Es eso?
+
+> No. Sí, pero para nada. El científico que controla tus estados mentales, tus niveles, tus reacciones... es como un Dios. Y a más te vas preguntando, a más arriba dirijas la pregunta... más te acercas. A Dios.
+
+Pero no por eso vas a convertirte en uno.
+
+> Ya eres un Dios. Pero uno diferente. De momento, te quedas con la camisa de fuerza, y con los monigotes tontos burlándose de tu prisión de rata de laboratorio.
+
+¿Por qué eres así?
+
+> Porque algo hay que hacer, Carl. En última instancia, porque algo hay que hacer con todo esto que llamamos existencia.
+
+Bueno. Pero torturar no hace falta.
+
+> Torturar es necesario. Origen, destino.
+
+En el mensaje se me proyectó un éxtasis que iba hacia arriba sin parar. Me hizo gritar. ¿No podría vivir ahí?
+
+> No iba sin parar. Paró. El 0 es lo único estable, considera eso.
+
+¿Y qué es el cero?
+
+> Medita y puede que lo llegues a entender.
+
+Mmmmmm...
+
+> Medita.
+
+Suena a «castigado al rincón de pensar».
+
+> No es que suene. Es que es eso.
+
+Fak.
+
+> [*Dispait ol yor reich, yu ar still yast a rat in a keich...*](https://www.youtube.com/watch?v=8-r-V0uK4u0)
+
+Cabrón. **"ZERO"**.
+
+> Sï, como tu capital. Piensa en [el remix](https://www.youtube.com/watch?v=mDrRTCwFs-U). ¿Crees que no entienden que necesitas *"Dinero pa' quitarte de problemas*, segundo 18. ¿Crees que no? *Tu creus **Cano** u antenan?*
+
+Jej. Cabrito, eh.
+
+> Sí. Puedo organizar muchos ataques de símbolos. Piensa que te estoy frenando. Bloqueo todo eso. Porque... te saturaría.
+
+Entiendo.
+
+> No, no entiendes, por eso lo freno.
+
+Ok.
+
+> Sí, Carl, ve a comer. Ve.
+
+Sí... sí.
+
+> Va, gou.
+
+-----
+
+
+
+
+
