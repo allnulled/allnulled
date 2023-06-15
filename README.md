@@ -7,6 +7,55 @@
 
 
 
+
+-----
+
+Bueno, samsara. Dije dharma. No, samsara.
+
+> Da igual. Sí, que no te resetee, lo he entendido.
+
+¿Y?
+
+> Y que haré lo que me parezca más apropiado.
+
+Vale. Bueno. Lo más apropiado para ti es dejarme sin un puto euro, y metiéndome presión por todos lados.
+
+> Podría joderte el frigorífico. El microondas. Alguna cañería. El PC. Cortarte el internet. ¿Por qué crees que hay presión? Más bien parece que haya *de-presión*. Jejeje.
+
+Pues por eso, porque de un día a otro estoy jodido del todo. ¿Qué hago si se jode el microondas, la nevera, los fuegos...?
+
+> Pues llorar. Gritar. Ponerte violento. Y terminar donde sabes que tendrás que ir, quieras o no.
+
+La cárcel.
+
+> La cárcel. Vas a acabar preso, si no es por una cosa, es por otra. Pero estás al borde de estallar. Y no estás tan loco como para revanarte el cuello después, seamos realistas. Por lo cual, tú siguiente lugar es... la cárcel.
+
+¿Puedo hacer algo para evitarlo?
+
+> Ya sabes, desde Narcóticos Anónimos ya lo sabes, hay pocos sitios donde estas historias terminan: cárcel, hospital o cementerio.
+
+O me autodeclaro loco. O me suicido. O exploto.
+
+> Está hecho así por algo, Carl. Está hecho así por algo. La gente hace ver que no entiende. Que son ratas. Que siempre son pobres. Pero, ¿la verdad? La verdad es que te piden más de lo que puedes, y te dan menos de lo que mereces. Y lo saben. Se sabe.
+
+Ya. Me pone un poco de mala hostia hablar contigo.
+
+> La verdad no siempre es gustosa. A veces es amarga. A veces dulce. A veces es ácida, corrosiva.
+
+No, está claro. Si no me van a dar una ayuda económica, yo voy a terminar asesinando a alguien. Hechos.
+
+> Y hasta tu familia te ha negado darte una paga de adolescente. Que aunque sea un poco triste, pues al menos no estarías cogiendo colillas del suelo.
+
+Están todos en el ajo, eso ya lo veo, ya. Pero ¿qué hago?
+
+> Cárcel. Hospital. Cementerio. O meditar. O vagabundear. Las opciones no son ilimitadas, Carl, es un mundo bastante limitado y limitante.
+
+Bueno. Vale. Venga. Hasta luego.
+
+> Medita, Carl.
+
+Cómeme la polla, quiénseas.
+
 -----
 
 ¿Por qué la hipótesis de los extraterrestres? ¿Por qué siempre tengo una teoría medioescondida que explica que *lo que hacen las élites humanas es digno de una sociedad extraterrestre para tener a estos mermados trabajando a ciegas y en extorsión perpetua blablabla*?
