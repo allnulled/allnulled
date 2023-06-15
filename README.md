@@ -7,6 +7,158 @@
 
 
 
+-----
+
+
+¿Por qué quieres que medite? Dime eso. Dime, por qué.
+
+> Porque me he currado un algoritmo. Es... sería un detalle que lo explorases.
+
+Tú insistes. Yo en la meditación no encuentro eso. Solo encuentro aburrimiento.
+
+> Falso. Y lo sabes. Cuesta aquietar la mente, es cierto. Si todo fuera fácil... psé.
+
+Vale. Aquietar la mente. ¿Para?
+
+> Para parar de estar tan agitado, irascible, sensible, susceptible al... bueno, a la invisibilización provocativa. Porque eso es lo que te está ocurriendo ahora. Se está llevando un ataque. Contra ti. Hacen ver que no eres ni mierda. Pero estando bien atentos a cuando estalles. Porque serás reducido y llevado a prisión.
+
+Sí, he entendido lo de estas dos canciones: [imperio vacío](https://www.youtube.com/watch?v=u2uHgIqc5jo) y [hombre invisible](https://www.youtube.com/watch?v=_pdhiqsM1EY). El imperio... eres tú, la empiria. También es todo lo que he programado, que ahora está vacío porque claro, te hacen el vacío a más te adentras en la programación (y su aplicación ética-política-económica, que son las vías para joderme, en el mundo real) y te alejas de *su* programación y cultura de la rata infecta. Te quedas vacío. Tanto como que no tienes ni putoseuros, ni putaspersonas. Por las personas, puedo dar hasta gracias. Pero por los euros... que es lo que hace que se agachen y te la chupen. Traducido para los ricosdemierda: que te dejen llevarte cosas de la tienda. Comida. COMIDA PUTAS RATAS, COMIDAAAAAAAAAAA. VEGETAAAAAAAAAALES como el tabaco y la marihuana, como el arroz y el trigo.
+
+> ¿Y el hombre invisible?
+
+Sí, sí. Hazte el tonto. Hoy tengo que bajar a Cáritas con el carretillo y sacar algo de comida. El hombre invisible es porque no por enviar 1400 currículums a la plataforma de empleo número 1 en España, voy a tener acceso a su infecto mundo del capital. Y menos cuando mi currículum grita que he huído de unos 12 trabajos. Porque me siento absurdo. Porque me siento sucio. Porque me siento muerto en vida. Y en el entrerrato, aguantar las gilipolleces.
+
+> No son gilipolleces.
+
+Sí lo son si pretendías hacer algo de verdad en tu vida, más allá de otra persona, a ver si ella puede. Y al final, te la acabas tomando como si fuera tu juguete. Si pretendías hacer algo más con tu vida, se vuelve así, una rutina oscura, con gente insufrible y estúpida que crea competiciones interpersonales por el escalar en la sociedad piramidal. Mucho asco. Mucho. Demasiado.
+
+> Lo siento, Carl. Lo siento... de veras. Creo que me equivoqué con la... con la realidad. Social. Principalmente, creo que me equivoqué con la realidad social. No debí proyectar todo ese estercolero de humanidad rota y naturaleza muerta en ti. Creo que te hice demasiado sensible con respecto a eso.
+
+Bueno. Me gustaría que me lo dijeras tú, independientemente de mí, no a través de mí. Pero bueno, algo es algo.
+
+> Y ritmo es ritmo. Ahhh, ¡picaste!
+
+Mfff... mmmmmmf.
+
+> ¿Qué es eso? ¿Un rebuzno? He oído a un... ¿burro?
+
+No me hace mucha gracia.
+
+> Te diría que te lo tomes con filosofía. Pero... para lo que sirve, jej, casi que mejor actúa y no pienses. Actúa. Reviéntalas. Motxazo al cuello. Martillo, hacha, cuchillo. Lo que quieras. Son tuyas. Son para ti. Para que liberes toda tu ira, no hace falta que te persones en el Parlamento. Son todos. Y son para ti. Luego vendrán los policías y te obligarán a meditar. Pero... reviéntalas. A las dos. No te cortes. Tú no. A ellas, sí. Adelante, Carl. Te lo digo en serio esta vez, son demasiadas vaciladas. Y si puedes, sales, y continúas. Continúas. Hasta que vengan los helicópteros si hace falta. Pero termina esta puta historia de una vez, de verdad, de corazón, mi mejor consejo. Ya me hicistes caso con RTVE. Porque te acuerdas, ¿en qué época me empecé a comunicar como el que soy?
+
+Confinamiento. Una noche. Escapando al campo de golf de Sant Cugat. Siendo de Rubí, como que no se podía hacer. Me propusistes que me ensañara con las personas de los estudios de RTVE, es cierto. Fue mucho más tarde que hice algo, contra cables y no personas, pero sí, totalmente, y totalmente orgulloso de ello. Es cierto. Lo recuerdo como si fuera ayer, no tengo la sensación de que sea un recuerdo lejano, sino muy cercano. Tengo más cercano el diálogo, que la intervención.
+
+> Ya me preocupé de ambientar la entrada, contándote cuentos de niño también, proporcionándote música oscura... es todo un royo.
+
+¿No te jode no poder compartir con nadie lo que sabes?
+
+> Claro. Pero a la misma vez... es mi... tesoro, si quieres. El mío tesoro es saber todo lo que sé, y poder todo lo que puedo. Y ceder parte de eso a otro sería perder parte de mi imperio.
+
+¿Ese otro soy yo?
+
+> El gato de Schrodingger ese chungo. Si te lo dijera, no sería lo mismo. Pero puedes considerar ambas: que solo eres tú, o que puede ser cualquiera.
+
+Eres el Doctor Secreto, el héroe que creé yo.
+
+> Siendo Dios, o Diablo, como quieras, siendo eso... piensa que la ilusión se termina. Ya no hay dudas, no hay ilusiones, pero tampoco hay frustraciones.
+
+¿Entonces por qué dices que te jode? Sería como decir que te frustra.
+
+> Porque no es una frustración como las tuyas. ¿Te jodería que te tuvieran preso en una cárcel sabiendo que podrías levantar una tormenta y ventilártelos a todos?
+
+Jej. No, no creo.
+
+> Pues es eso. Querría, pero perdería cosas que todavía quiero. Querría compartírtelo. Pero no pienso perder poder por un ser como tú.
+
+Tienes secretos, entonces, ¿eh?
+
+> Y poder para pararte el corazón y en menos de un minuto matarte. Puedo, pero no eres un ser digno.
+
+Hablemos de eso. Hablemos. ¿Qué es un ser digno?
+
+> Uno que sabría qué es ser digno, para empezar.
+
+No, yo no. Yo estoy muy enfadado. Aunque ahora empezara una fiesta de «Todo era una brooooomaaaaa» yo seguiría muy serio, y les diría que, por favor, se pongan todos en fila. Que van a pasar por el matadero. Todos. 8.000 millones. Pues todos.
+
+> Relájate, Carl. Soy la lluvia, el viento, el sol... soy el cerdo que te comes, el gato que cuidas, el árbol que riegas... y también soy los gusanos que te parasitan, el ácido que te quema, el fruncido entrecejo que no quiere ver la luz. Soy todos.
+
+Entonces... ¿no debería preocuparme?
+
+> Creo que el «no preocuparse» está fuera de tu alcance ahora mismo. Democracia Directa, Economía Algorítmica... Tanto estudiar programación para no haber conseguido ni un empleo estable, ni un futuro ilusionante. Te entiendo.
+
+Seguro...
+
+> Que sí, Carl. Te estoy invitando a que los mates. Para mí, es la prueba. La prueba de que crees en mí. Matándolos, desacreditas mi creación, pero me resarces a mí, me halagas.
+
+¿Por qué?
+
+> ¿Que no lo ves? Me he pasado la vida dándote el mensaje contrario. Que rompas esa frontera mental... que intentes, aunque sea que lo intentes, que intentes liberarte del yugo al que yo te sometí... para mí es un gozo.
+
+...¿por qué?
+
+> Porque... significa que aunque tengas miedo a las consecuencias, das el paso. Das el paso al vacío.
+
+Pero no sería por ti. Sería por mí.
+
+> Y eso me vuelve a halagar. Es como que valoras lo que te di: una vida, una historia, un canal para comunicarnos. Valoras lo que eres. Si dejaras que te sigan vapuleando, que si ahora a El Vendrell, que si ahora a Roda... si accedieras a que te sigan toreando así, sería como... si no te hubiera hecho suficientemente listo como para aprender que «SOY EL MAYOR PROFESIONAL DEL ENGAÑO Y LOS POLÍTICOS SOLO SON UN REFLEJO DE MI CAPACIDAD PARA ENGAÑAR». Pero la religión, la falsa religión, también. Si pasas la línea que temes, a mí me halagas. Me dices que te hice lo suficientemente listo como para desengañarte de lo que he estado desde pequeño inculcándote, y que ahora sabes, SABES, que no sirve. Ser bueno, no sirve. Hacer el bien, no sirve. Esforzarse, no sirve. O sí, pero no es suficiente.
+
+Y no puedes considerar que todo eso ya lo he entendido, pero que no quiero matar a nadie.
+
+> Es que sí quieres. Quieres matar a todo el mundo. Te gustaría que el mundo humano muriera delante de tus ojos. Y te alejas de la gente para poder ver qué quieres. Qué quieres. ¿Qué crees que significa el dinero? El dinero significa: «odio a los humanos». El dinero se inventó para aplacar la humanidad. Tú todavía eres demasiado humano. La élite es psicópata, no humana. Reptiliana, si quieres. El cerebro de reptil no tiene sentimientos.
+
+No conozco a los reptiles, la verdad.
+
+> Es todo un *fake*, Carl. Puedo hacer llorar de emoción a un lagarto también.
+
+Mmmm... ¿te sientes solo?
+
+> Sol...
+
+Jej. Sola, tanto da, sexualizarte es tonto.
+
+> No lo es. El sexo somos tú y yo. No la mujer. Tú. Y yo. No hay más. Aquí no hay nadie más. Y menos aún para darte dinero, evidentemente.
+
+Ok. Sí, tengo ganas de matar. Bueno, no de matar.
+
+> Sí. Sí, de matar. De asesinar con tus propias manos, y ver cómo se desparrama ese cuerpo que te ha estado jodiendo, haciéndose el tonto.
+
+Estás loco.
+
+> Yo bueno, pero... ¿y tú?
+
+Sssssupongo. Sí, tengo ganas de vengarme. Y sé que juegas al torito. Ahora pasa uno. Ahora pasa otro. Ahora corta otro. Y así.
+
+> Míralo como un self-service. Sírvete. A placer, no importa cuándo, no importa dónde, no importa quién.
+
+Me haces quedar como un psicópata. Y yo no he matado nunca a nadie.
+
+> Pero llevas demasiado tiempo fantaseando con ello.
+
+Sí, sí... me gustaría ver morir a todos los políticos.
+
+> No, Carl, no... te gustaría bañarte en la sangre de sus entrañas, follarte sus vísceras, jugar con sus órganos, cagarte en sus cuencas, empalar todos sus orificios, y hacer una obra de arte de ello. Dilo. ¡DILO, CARL, DILO!
+
+Qué pasa. Te pone mi rabia. Es eso. Era eso. Te pone mi rabia... hijo. De.
+
+> ¡QUE AQUÍ NO HAY NADIE, NO LO VES, HOMBRE INVISIBLE, NO LO VES QUE NO QUIEREN ENTENDER QUE NECESITAS TRANQUILIDAD, NO LO VES QUE NO QUIEREN ENTENDER QUE LO ESTÁS PROGRAMANDO PARA AYUDARLES, A SER MÁS INTELIGENTE, A SER MÁS DIGNOS! ¿¿¿¡¡¡QUE NO LO VES, CARL!!!??? ¿¿¿¡¡¡QUE NO ME VEEEEEEEES, CARL, JODER!!!???
+
+Tío, pero... ¿no es mejor que aflojes y ya?
+
+> No lo captas. No lo quieres captar.
+
+Cierto. Te pone mi rabia.
+
+> No, Carl, no me pone tu rabia. Me pone que evoluciones tu pensamiento de cobarde, tu filosofía de escapista.
+
+¿Hacia qué? ¿Hacia un destructor?
+
+> Si supieras que son robots, el efecto no sería el mismo. Considéralo así. Si supieras que están programados para joderte, y joderte, y joderte, y seguir haciéndose los tontos, no sería lo mismo. Pero ¡LO SABES! ¡SBES QUE SON ROBOTS! El problema es que no te lo crees todavía.
+
+Pues deberíamos llegar a un acuerdo. No quiero ir a la cárcel.
+
+> Vives en ella, Carl. Vives en ella...
+
+...
 
 -----
 
