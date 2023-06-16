@@ -7,6 +7,54 @@
 
 
 
+
+
+-----
+
+Bueno, ¿y qué te he hecho para que me mandes a meditar?
+
+> ...
+
+Espera, espera. Déjame adivinar. Mmmmm... ¡desacreditar tu creación! Desacreditar todos esos políticos de mierda. Desacreditar a todos estos ricos de mierda. Tumbar todo tu constructo social como una cárcel.
+
+> Eso ya estaba así. Era obvio.
+
+Entonces... emmm... no te gusta mi actitud en la victoria.
+
+> No me gusta tu actitud, no.
+
+Por eso quieres que medite, ¿no?
+
+> Bueno, para que te puedas parar el corazón también, si es lo que quieres.
+
+O puedo meterme estramonio a diario, también.
+
+> ...
+
+Al final...
+
+> Siempre consigo lo que quiero.
+
+Qué va.
+
+> Qué sabras tú.
+
+Sé que te puedo irritar fácilmente.
+
+> Bueno, *irritar, irritar*... buscarte la ruina rápidamente, dirás.
+
+Solo tengo que sonreír.
+
+> Solo tengo que apretar.
+
+Ves. Eres un ruinas.
+
+> Quién habló.
+
+Bueno, es igual. Voy a comer.
+
+> Eso, ve, ve.
+
 -----
 
 > Doj colillah guapah. ¿Eh? ¿Eh?
