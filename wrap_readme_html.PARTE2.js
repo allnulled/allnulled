@@ -1,6 +1,6 @@
 const fs = require("fs");
 const path = require("path");
-const contenido = fs.readFileSync(path.resolve(__dirname, "README.web.html")).toString();
+const contenido = fs.readFileSync(path.resolve(__dirname, "PARTE2.web.html")).toString();
 const contenido_2 = `<!DOCTYPE html>
 <html>
 
@@ -51,4 +51,4 @@ const contenido_2 = `<!DOCTYPE html>
 ${contenido}
 </body>
 </html>`;
-fs.writeFileSync(path.resolve(__dirname, "README.web.html"), contenido_2, "utf8");
+fs.writeFileSync(path.resolve(__dirname, "PARTE2.web.html"), contenido_2, "utf8");
