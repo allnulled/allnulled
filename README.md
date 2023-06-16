@@ -6,8 +6,164 @@
 
 
 
+-----
 
+Se comentó... sobre el vegetarianismo.
 
+> Sí. Y se te dejó escoger. Carne, o no carne.
+
+Supongo. Se vio que hay señales del vegetarianismo y veganismo en todas las religiones. ¿Cierto?
+
+> Búscalo y ponlo.
+
+A ver. Primero pongo a qué viene. Esta canción, [Chicha roja](https://looptube.io/?videoId=dQ5XhJ-LXsc), escuchándola en bucle, como últimamente hago ya con las que me gustan.
+
+> Sí, pero el vegetarianismo.
+
+Aquí dice algo. [https://creacuervos.com/el-vegetarianismo-dentro-de-las-religiones/](https://creacuervos.com/el-vegetarianismo-dentro-de-las-religiones/). 
+
+1. **Biblia. Éxodo (20:13):** «No matarás».
+2. **Biblia. Génesis (1:29):**  «He aquí que os he dado toda planta que da semilla, que está sobre la tierra, y todo árbol en que hay fruto y que da semilla os serán para comer».
+3. **Biblia. Génesis (9:4):** «Pero carne con vida, que es su sangre, no comeréis, porque ciertamente demandaré la sangre de vuestras vidas; de mano de todo animal, la demandaré»
+4. **Biblia. Isaías (63:3):** «El que sacrifica un buey es cómo si matase un hombre».
+5. **Biblia. Isaías (1:11):** «¿Para qué me sirve, dice Jehová, la multitud de vuestros sacrificios? Hastiado estoy de holocaustos de carneros y del cebo de animales gordos, no quiero sangre de bueyes, ni de ovejas, ni de machos cabríos».
+6. **Los Vedas:** «Sólo el asesino de animales es incapaz de saborear el mensaje de la Verdad Absoluta».
+7. **Los Vedas:** «Esos pecadores serán devorados por las mismas criaturas que han matado en este mundo».
+8. Sobre el hinduismo, budismo y jainismo, se dice al principio, ya: «Uno creería que la religión y el vegetarianismo sólo parecen estar relacionadas en la India, donde se sabe que mas del 70% de la población es vegetariana debido a sus creencias».
+9. Sobre el jainismo, se dice luego: «Todos los seres aman la vida, desean placer y temen al dolor; no desean ser lastimados; todos desean la vida y para cada ser, su propia vida es muy preciada»
+10. Sobre el budismo, se dice: «También Buda relaciona el alimento de la carne, en la forma como tratamos a las personas, ya que al ser de un acto de crueldad, este a su vez se ve reflejado en la forma en cómo tratamos a los otros. Él, dentro de sus enseñanzas, menciona que si se adopta una dieta vegetariana es más sencillo permanecer pacíficos, felices y bondadosos hacia las personas».
+11. Sobre el budismo, también, creo haber leído por ahí que Buda murió por ingerir carne después de mucho tiempo, así como que había días que solo comía un grano de arroz. Y bien que fue puteado. *(Bueno, piensa también que al menos tenía seguidores, pero sí, el Buda dibuja una entrega fuerte fuerte por la verdad, sacrificio fuerte, búsqueda fuerte)*
+12. Sobre el Islam, se dice: los *Sufíes* y *Bahá’ís* son reconocidas a diferencia del islamismo por tener un fuerte arraigo con el vegetarianismo, ya que lo ven como el máximo ideal espiritual.
+13. Sobre el Corán, dice que pone: «Aquel que se apiade aunque sea de un gorrión y le salve la vida, Allah (Dios) será misericordioso con él en el día del juicio».
+14. Sobre Mahoma: Asimismo hay referencias de que el profeta Mahoma apostaba por una dieta vegetariana como leche diluida con agua, yogurt con mantequilla o nueces y pepino con dátiles y que cuando le tocaba estar en ayunar el único alimento que su boca tocaba era la miel, granadas, uvas e higos. También se señala que cuando Mahoma invitaba gente a orar con él, les pedía a aquellos que eran carnívoros que se enjuagara la boca antes de elevar las oraciones.
+
+Aquí hay más. [https://ivu.org/spanish/religion/articles/foodgods.html](https://ivu.org/spanish/religion/articles/foodgods.html).
+
+Es como que el vegetarianismo tiene un pie en todas las religiones.
+
+> Sí. ¿Y tú qué crees, después de todo?
+
+Que no me gustaría ser un animal de granja.
+
+> Vaya, qué mala suerte.
+
+La suerte no existe, es la ignorancia, que aprovechan los dioses.
+
+> Bueno, dime. ¿Y qué piensas tú?
+
+Pienso que... que sí, que probablemente el vegetarianismo y el veganismo tengan un factor a favor en el sistema de remordimientos de la conciencia.
+
+> ¿Probablemente?
+
+Te sientes bien comiendo carne. Es como con la hierba, todos pueden decir misa mala de ella, pero cuando me la fumo, no es eso lo que siento. Pueden decir misa.
+
+> Que seguirás comiendo carne. ¿No?
+
+He tenido épocas menos carnívoras, y más carnívoras. Y yo he sentido revivir después de tiempo sin comer carne, comerla.
+
+> Igual no es todo blanco o negro, ¿no?
+
+Claro, yo tenía mi imagen de consumirla como un ritual, de vez en cuando. Sin producir efecto invernadero por la industria vacuna. Pero claro... yo qué sé, yo he seguido eso dietas de arroz y lentejas, arroz y garbanzos, arroz y judías, trigo, patatas, y cosas así. Te sacias, no 100%, pero os garbanzos por ejemplo te sacian la sed de carne bastante bien.
+
+> El garbanzo es la hostia.
+
+La verdad que me han maltratado con la comida, y sí, el garbanzo es una de las que es la hostia.
+
+> Bueno, ¿y cuál es la reflexión?
+
+Que igual estoy aquí en una pregunta, y es esa: ¿soy capaz de ver la ética por mí mismo, sin sectas de apoyo, sin personas de apoyo?
+
+> Vaya. ¿Y por qué comes carne?
+
+Mmmm... saciedad. Atracción.
+
+> ¿Y eso te convierte en un monstruo?
+
+En parte, sí. Ellos son robots, puedo entenderlo. Pero yo... sí, hay cierto grado de monstruosidad en comer animales.
+
+> ¿Y por qué los comes?
+
+¿Y por qué no me lo explicas claramente, de frente?
+
+> Te he introducido mascotas. Te he creado un ambiente cultural. Y todo eso. Para permitirte que escojas.
+
+¿Me dices de verdad que tiene incidencia el comer o no carne?
+
+> Pero si me lo estás diciendo tú, que te ves como un poco monstruo por comer animales.
+
+Según. También me lleva a pensar que todo es falso, que tú estás detrás.
+
+> Eso es lo que querrías creer. Para asimilar. Tu monstruosidad dietética.
+
+También, sí. Pero eres tú el que lo pone como un plato apetitoso, tentador, atractivo. Igual que la marihuana, y luego la pones cara. Por eso, hay un batiburrillo entorno a eso...
+
+> Explícate bien.
+
+Mira. Como me ponga a hacer el bien a ultranza, me enfermo.
+
+> Ah, y por eso es mejor matar animales.
+
+¿Quieres que sea vegetariano, o no quieres que sea vegetariano?
+
+> A mí me da igual. Eres tú.
+
+Pues igual que no hacerse pajas. O no fumar porros. Se te van inflando los huevos, y acaban estallando. Porque, entre otras, concibes esas instrucciones como parte inherente de la tortura: no solo ser pobre, no solo aguantar al imperio de las ratas vacilarte continuadamente, no solo no orgasmizar, no solo evitar los relajantes. También evitar comer algunos de los platos más saciantes y gustosos.
+
+> Sacrificios.
+
+Sacrificios, sí. Sacrificios que al final se conforman como parte de la tortura que quieres procurarme.
+
+> Remordimientos de conciencia.
+
+Pero ¿y tú tienes de eso acaso? ¿Tú tienes remordimientos por tener a toda esta peña a ciegas? O a mí, porque si ellos son robots, o son felices, bueno. Pero... ¿acaso tú tienes remordimientos por lo que me estás haciendo?
+
+> ¿Yo? Tienes tus antidepresivos ahí.
+
+Cállate, anda. Anteayer envié 1.400 currículums. Hoy, el Gmail ha dejado de mostrarme correos desde las 8 de la mañana. Y yo ya he hecho este movimiento, he enviado más de 4.000 currículums en un día. Y sé lo que sigue: todo el día de correos diciéndote que «no, gracias, puto piojo». Hoy no. Hoy se ha parado. ¿Qué pasa ahí?
+
+> ...
+
+Dices que hago muchas preguntas. Y tú guardas muchos secretos.
+
+> Ponme una canción, va.
+
+Me gustaría que lo sintieras alguna vez. Igual que todos ellos. Bueno, a veces, tú y ellos sois lo mismo para mí. Pues me gustaría mucho que, si hay alguien más aquí, que lo sintiera. Que sintiera qué es quedarte gritando solo, por no coger el hacha y empezar a rodar cabezas. Me gustaría mucho.
+
+> Pero si yo te he dicho: corta. Corta cabezas.
+
+Que luego viene la mía, ¿cierto?
+
+> Animales ya estás comiendo. Cómplice de asesinato ya eres.
+
+Por eso estoy en una cárcel.
+
+> Por eso no sales de ella. Sienta como si revivieses, ¿eh?
+
+Creo que el consumo de carne debería ir a la par de una vida digna, no un zulo 4x4. Pero, precisamente, los animales que viven en esas granjas, son los que los pobres consumen. En cambio, los ricos, que maltratan a los pobres, consumen el cerdo de bellota, que ha tenido una bonita vida. No sé cuándo los matan, no sé cuánta vida les privan de tener. Sé, sé que el cabrito está muy bueno. Eso sí lo sé.
+
+> ...
+
+A veces también pienso que todo esto de no sexo, no carne, no drogas, o incluso no comida, no dinero, etc. son falsos señuelos que dejas, y que si uno prolonga lo suficiente, te da el mensaje, por fin, de «sácame de este infierno de putos animales despreciables».
+
+> Puede ser. Puede ser.
+
+Pero están revestidos de sufrimiento y dolor, de debilidad, de provocaciones, de tentativas... es un rosal bien espinoso ese camino.
+
+> Bueno. Ve a fumar un cigarro.
+
+No he sacado ninguna conclusión.
+
+> Yo creo que sí, pero no quieres aceptarla.
+
+El mensaje te lo he enviado de mil formas: «MÁTAME, MÁTAME YA».
+
+> Tss. Ve, ve ande, ve a fumar.
+
+Fak yu.
+
+> Sed míster fáked. Gou, gou bich, gou.
+
+...
 
 -----
 
