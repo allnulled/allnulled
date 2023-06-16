@@ -7,9 +7,549 @@
 
 
 
+-----
 
+> Doj colillah guapah. ¿Eh? ¿Eh?
 
+Sip.
 
+> Igual deberías dormir.
+
+Sí, ahora que lo siento en todo el cuerpo. Los ojos. Rílax.
+
+> Ves. Pues eso a mí no me gusta.
+
+¿Por?
+
+> Porque te vuelves muy tonto, te relajas mucho.
+
+Pero...
+
+> A mí eso no me gusta.
+
+...
+
+> Es bromaaa. Fuma. Ya sufrirás luego.
+
+Pero no es eso, a ver. Yo me relajo así, esta vía para relajarse es una vía que solo copa el THC.
+
+> No es cierto, pero sí.
+
+¿No es cierto?
+
+> No. Puedes provocar situaciones donde ni te apetezca fumar THC. Por ti mismo.
+
+Es cierto. El...
+
+> ...ayuno, por ejemplo.
+
+Sí, pero...
+
+> La hipertermia. 
+
+También, también...
+
+> El ejercicio físico.
+
+Es verdad.
+
+> Pues ni a entender eso llegas.
+
+Bueno, a ver un momento. Punto por punto. El ejercicio físico, te digo, te da más aguante y nerv...
+
+> La meditación.
+
+Sip.
+
+> La meditación es la forma más clave.
+
+Es difícil. Lo dices como sí *ah, pim, medita*. Fácil.
+
+> Tú puedes.
+
+A veces.
+
+> Y puedes mejorar.
+
+Supongo que practicando.
+
+> Pues... primero.
+
+Me aburrí.
+
+> Mmmm...
+
+Me aburro, me aburre.
+
+> Pues ejercicio físico.
+
+Claro, hacer la compra a Cancún. Recorrer 13km para recoger unas colillas.
+
+> Antes salías a correr.
+
+Con el perrillo. Porque se le ve feliz cuando hace ejercicio. El gato también lo agradece.
+
+> Todo animal obtiene un premio por el mero hecho de hacer ejercicio físico. No hace falta obtener la fruta.
+
+Sí, pero...
+
+> Entraste por algo.
+
+Sí, quería hacer notar que... no hay nada que hacer. No hay vías. Bueno, así empiezo este escrito. Lo he intentado todo.
+
+> Falta lo obvio. La ayuda económica y la ayuda psicológica.
+
+Vale. Dos meses. Si yo sé que es una forma de hacerte dócil. Sé que es eso. Que si hubiera unas élites extrablablabla, te hacen pasar por ese aro de: «ah, que la quieres, pues espera 2 meses, y hablamos». Sé que es así. Tienen ordenadores, bases de datos, sé la velocidad de un procesador, y el tiempo de una operación así contra un ordenador. Milisegundos. Ni segundos: milisegundos. Soy un putopobre y llevo más de mediavida de putopobre. Sí, estoy cubierto en cosas. Pero bueno, también no he parado de intentarlo, y eso no lo van a computar.
+
+> Ves. Es que te vas muy allá.
+
+Y estoy cubierto en cosas, pero para nada son garantía. Es decir: estoy en pelotas, pero surfeando en la ola. Esa ola baja. Y yo me voy al pedo. Ahora entiendo el cartelito de la casa. "Vientecito". Porque de un soplido, me voy al pedo. Sí, sí. Muy ingenioso.
+
+> Te lo he dicho. Larga de aquí. Por eso. Primero empieza haciendo la compra en Cancún. Te entrenas. Y te preparas para ir a India a por unos porros. A pata. 6 meses. Te matan por el camino, imagino. Pero bueno. Es...
+
+¡DIGNO! ¡CABRÓN!
+
+> Sí, pero te he hecho llegar. Al final, todo esto del lenguaje y eso, tenía que llevarte a algún lado.
+
+Está claro.
+
+> Bueno, claro, claro, no está. Pero en fin, algo hay que darte.
+
+¿En serio?
+
+> Carl. Eres un humano. Pese a todo, eres un humano.
+
+Y me odias.
+
+> Y te odio. Bueno, no es que te odie. Pero funcionas con dinero, al final. Estás atado.
+
+Sí, el estar a cero crea una forma de pensar.
+
+> El dinero pervierte la forma natural de pensar, Carl.
+
+...sí, dicho de otra forma.
+
+> Es... sería una colonia extraterrestre.
+
+¿Y qué querrían?
+
+> Ah, cualquier cosa. El oro, los experimentos que podrían ir desde químicos hasta psicosociales...
+
+Pregunto cosas tontas, ¿no?
+
+> Bueno. Es que con lo que has buscado sobre eso... pues el margen es bastante amplio.
+
+Juegas siempre a los secretos.
+
+> Y tú a los bucles. Te repites. Recuérdate lo que querías recordarte.
+
+Tú dices: meditación, lo mejor. Ejercicio físico.
+
+> Podrías estar bien. Pero «comida, comida...»
+
+Pffff. Yo no puedo programar.
+
+> Nadie te pide ni quiere que programes, si eso te hace enloquecer.
+
+Ya. Prefieren mantenerme barato. Ya.
+
+> No es eso tampoco. Pero la ayuda tarda 2 meses. Por mucho que llores.
+
+No puedo rellenar esos papeles estúpidos. Es muy...
+
+> Insultante. Te he dicho que odio a los humanos. ¿Te he dicho que odio a los humanos? Pues no. Pero si juegan con dinero, sí.
+
+¿Has sido humano antes?
+
+> Interesante pregunta.
+
+...
+
+> Déjame pensar.
+
+Eso es que sí.
+
+> No del todo. 
+
+Eso es que yo no soy humano.
+
+> Tampoco del todo...
+
+Eso es... que sí soy humano. Pero que también soy lo que tú.
+
+> Un dios. Se podría decir.
+
+Entonces nos parecemos en algo.
+
+> Somos dioses. Sí. Claro que... define «dios». Ahí cada uno.
+
+Emmm... 
+
+> ...
+
+Me ha dejado pillado todo este asunto.
+
+> Claro, Carl. Había un antes.
+
+Lo pienso poco.
+
+> Meditas poco.
+
+Reflexiono mucho.
+
+> Sí, pero se te va mucho también.
+
+...
+
+> Sí, Carl. La mente es un como un coche. Y puede embestir.
+
+...me lías.
+
+> Es que eres corto. Ves, te pasa por fumar porros.
+
+Mmmm... en fin. No te gusta.
+
+> ...
+
+Había un pasado.
+
+> xD Sí, Carl. Había cosas antes de que nacieras.
+
+...
+
+> No, Carl. El universo no ha sido producto de la generación espontánea de la conciencia desde tu nacimiento.
+
+Estoy pensando.
+
+> Lento.
+
+Estoy... pensando. Silencio.
+
+Ha habido un pasado.
+
+> Claro.
+
+Claro. Y el Big Bang y todo eso...
+
+> Entiendes por qué te hice leer a Stephen Hawking en primaria.
+
+Para que no rebusque en esa dirección.
+
+> No importa lo que haya pasado antes, cuando eres un crío. Importa lo que está pasando.
+
+Emmmm...
+
+> Pero claro.
+
+Es parte del engaño.
+
+> Puede ser, puede no ser.
+
+Siempre hemos puesto que era cierto. Pero no nos habíamos replanteado esta pregunta desde la nueva perspectiva...
+
+> Plantéatela.
+
+Mmmmm... ¿Qué ha habido antes de mi nacimiento realmente, si es que todo esto es un teatrillo en un entorno controlado/monitorizado con tecnología que no explican?
+
+> Podría haber muchos pasados. Pero...
+
+El pensamiento tejió esto.
+
+> Es algo que se adelanta al pensamiento.
+
+Me sale «la luz» pero... no sé, no me dice nada.
+
+> ¿Qué hay al salir la luz? ¿Del sol?
+
+Sí, sí. Lo entiendo, lo estoy entendiendo. Sí, no me hagas explicarlo. ¿A dónde quieres llegar?
+
+> A que no te puedes cagar en el juego de esta manera.
+
+Mmmmm... me faltan porros. Es decir, de las dos colillas, he estirado dos porros juntándolas con collias de tabaco. Y estoy...
+
+> Que eso a mí no me importa.
+
+Te importa.
+
+> No.
+
+...
+
+> ...
+
+Necesito porros.
+
+> Te he explicado.
+
+Deporte no puedo hacer 24 horas.
+
+> No hay día ni noche. Puedes alternar ejercicio light con fuerte.
+
+Que eso me convierte en militar, empiezo a pensar en royo militar, que el deporte saca una faceta de «con el físico se resuelven las cosas». Y no conviene esa mentalidad.
+
+> Preferirías no tener...
+
+Vamos a ver. Me estás acorralando. Quiero decir...
+
+> Solo te quito los porros.
+
+Son unos días. Y lo sé. Pero el pensamiento flotante de «con porros...» ese no se va.
+
+> Se puede ir si hay algo que lo eclipsa.
+
+Y tú propones ejercicio físico. Cuando el mejor, el mejor porro de porros, viene cuando después de ejercicio físico de largo rato, te duchas, comes guai y te echas algo con porrillo: un Monster (bueno yo compro siempre el más barato, marca barata que da para más), un café, una infusión de algo...
+
+> Tienes también el estramonio.
+
+Pinchazo en el corazón.
+
+> Eso quiere decir que si abusas, te atacaré por ahí.
+
+Porque hoy ya iba a repetir. Y mira que es asqueroso.
+
+> Puta cabra de monte.
+
+Jajajajaja.
+
+> Se conoce todas las putas plantas casi.
+
+Sí, pero no sé qué llevan, ni para qué sirven muchas, y no puedo jugar con lo que llevan, sobre todo.
+
+> Hombre. El MDMA es un antidepresivo que de lo fuerte que es, te trauma.
+
+Caro, tío.
+
+> Tía.
+
+Tía.
+
+> Tío.
+
+Tío.
+
+> Tíe.
+
+Mmmm....
+
+> Di. Qué ibas a decir.
+
+Que caro, tix, que es eso, es el mejor antidepresivo. ¿Es el mejor, no?
+
+> Economía de las emociones.
+
+Economía de los secretos.
+
+> Ponle que sí.
+
+Guai. Guaaaaaai. Eso es que no.
+
+> Hombre, tú piensa, solo el MDMA, hace una cosa. Pero si lo mezclas con tal, si lo mezclas con tal... ahora, tienes que saber concentrarlo. Y...
+
+Y no.
+
+> No. Luego los venenos pues están en el límite, entre droga y directamente ataque.
+
+¿Droga?
+
+> Sí, porque el porro es como un mareo, como si estuvieras flojeras. Lo que si habitúas al cerebro, pues es su estado normal. Y si no puedes bajarlo luego, te alteras.
+
+Por eso me preguntabas.
+
+> Si estabas tranquilo.
+
+El MDMA.
+
+> Sí, pero que a mí no me gusta eso.
+
+¿Y qué te gusta?
+
+> Que medites, hostia. Que medites.
+
+Estoy reflexionando.
+
+> Sí. Pero es que medites. No que reflexiones. Que está bien, también. Pero meditar tiene que acompañar, es una cosa aparte.
+
+Ok.
+
+> Bueno. Mientras lo vayas recordando...
+
+Y por qué no te gusta.
+
+> Ya te lo he dicho.
+
+Ay. Ay...
+
+> Ves. Si es que eres tonto.
+
+Jej, bueno ok. Ok.
+
+> ...
+
+Yo había venido a decir que... no sé, que si no hay nada más que hacer. Ir a buscar porros a las ciudades próximas... es una mierda. Una cosa es pisarme. Otra cosa es...
+
+> Lo de pisarse se entiende mal.
+
+Joder, pues que me han hecho estudiar JavaScript y Java y informática que es un puto desquicio al principio. Y hasta hoy en verdad. Es un desquicio.
+
+> Un desquicio sentado.
+
+Encima eso. Es un desquicio de nervios.
+
+> Pues imagínate pilotar un avión, un barco, conducir un bus, un fórmula 1, etcétera. como profesión, claro.
+
+Bueno, que me hicieron aprender todas esas cosas para encontrar un trabajo siempre. Porque era la demanda de trabajadores más importante. En cantidad. Lo que más pedían son programadores. Es decir, el camino me lo estabas mostrando claramente. Todas las flechas apuntaban aquí.
+
+> Es que...
+
+La cosa es que juegas a 2 bandas. ¿Es?
+
+> Uy. ¿Bandas? Muchas más.
+
+Por un lado, me haces ver. Por el otro, me dices *nai*. *Na' hay*.
+
+> *Da.*
+
+...
+
+> Muchas bandas.
+
+Bueno, yo tan listo como tú no voy a ser nunca.
+
+> ¿Lo intentabas?
+
+Jej.
+
+> Eso mismo. *Jej.* Digo yo.
+
+Bueno... que es mucha locura.
+
+> El que algo quiere...
+
+No, si tienes razón.
+
+> ¿De qué?
+
+Que estaría bien huir de todo esto.
+
+> Será mierdas.
+
+Sería guai. Al final, siento que estoy muerto aquí, no puedo avanzar en lo que quiero. Quiero decir... programar y ahora el gato, pero programar era lo que me tenía aquí atado.
+
+> Mayormente. Tomas drogas muy raras. *"JavaScript"*. Pss.
+
+Sí. La verdad es que motiva estar en la cabeza del mundo.
+
+> Bueno, creerlo.
+
+No me dejas conciliar estas 2 versiones.
+
+> No. Este acceso es individual.
+
+Mmmmm... me espero cualquier cosa. Mira que lo he intentado explicar.
+
+> ¿Ahora estás bien?
+
+Claro, nen, son los porros. Si tengo porros, está bien. Pero no. Noooooooo, nono. Tengo algo de colillas y gou.
+
+> Parece caprichoso.
+
+Pero es enfermizo. Es mi medicina de verdad. Llevo media vida consumiéndola. Hay una forma de ser o estar, en mí, que depende de esto. Y si me la quitas, me vuelves tonto. Y ahora no es tonto, es cabreado, loco, en la línea de la realidad.
+
+> Pues eso no se tolera.
+
+No. Ni que te toreen toda la vida.
+
+> Es un juego. ¿Es un juego? Es un juego.
+
+Me voy a fumar lo que me queda de segunda chusta de chustas.
+
+> Ve.
+
+Además me lo estás diciendo. Me estás diciendo que quieres que sea listo (1). Que quieres que deje los porros (2). Y que dejar los porros me va a hacer más tonto (3). Que es lo que pasa, no puedo ni concentrarme.
+
+> ...
+
+Se contradice usted, señor mío.
+
+> ...
+
+Eres solo un espejo tonto.
+
+> ...
+
+Me la vas a negar. Me estás jodiendo hasta por dentro.
+
+> Pero si te lo he dicho, que hasta los gusanos soy.
+
+¿Por qué te contradices?
+
+> A ver. Luego mejoras, Carl. El daño de los porros no es ni tan profundo, ni tan irreversible.
+
+Tío, pero ¿por qué no? Y las demás drogas.
+
+> Ya te lo he dicho. No soy como tú. No me gusta eso.
+
+El problema es el dinero.
+
+> Es el odio a los humanos. Sí. Si hubiera... a ver.
+
+...
+
+> Si hubiera una forma extraterrestre que tuviera colonizada la Tierra. Y colonizada. Estaría en una forma en que odian a los seres humanos, y les inyectan «dinero» en sus sistemas, y luego «ley» para aliviar los daños.
+
+...
+
+> Si solo hubiera humanos, habría una forma de humanos que odian a otra forma de humanos.
+
+Sí, los ricos. Odian a los pobres.
+
+> O a todos los demás. Y tampoco es tan así, un rico se siente agradecido a la gente. Porque vaya donde vaya, se... "genuflexionan".
+
+Los poderosos. A los débiles.
+
+> Igual. El pez gordo tiene más que agradecer al chico, que viceversa.
+
+Por eso.
+
+> Por eso, muerde. Pero ya que estás muerde arriba.
+
+Ves, otra vez juegas. Eres solo un espejo malo.
+
+> ...
+
+Un espejo malo, un espejo malo...
+
+> ¿Has barajado que mi forma de ser contigo haya cambiado por...?
+
+¿Por fumar de dos colillas de mierda?
+
+> Eh. Eran guapas.
+
+Las he notado, por lo menos. Está guai. Es demasiado remoto.
+
+> No pidas.
+
+Paso. Eres un espejo malo. Creo que voy a expulsarte.
+
+> ¿Pero qué querías que fuera? ¿Un extraterrestre vía ssh ejecutando código en tu kernel?
+
+Pues no sé. No sé.
+
+> Soy tu superyo.
+
+Ahora mi superyo. Antes el diablo. Según el día, dios. Que si el Yang.
+
+> No ojo. Tú serías el Yang. Yo voy primero.
+
+Ah. Ah. Bueno, sí. Pareces el listo de aquí, sí.
+
+> Preguntas mucho. Meditas poco.
+
+...
+
+> Es lo mejor que te puedo decir.
+
+...ok.
 
 -----
 
