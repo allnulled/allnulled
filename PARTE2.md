@@ -48,9 +48,9 @@ Bueno. Pues no te lo digo.
 
 > Eres violento.
 
-Sacado de []():
+Sacado de [https://saludpublicaglobal.org/2015/11/20/que-es-la-violencia-estructural/](https://saludpublicaglobal.org/2015/11/20/que-es-la-violencia-estructural/):
 
-*El término “violencia estructural”, acuñado por Johan Galtung en los sesenta [1], se refiere a las estructuras sociales, como la economía, política, leyes, religión, y cultura, que generan o provocan afrentas que impiden el desarrollo completo de las capacidades del individuo, la comunidad o la sociedad. Al mismo tiempo es violencia, ya que induce lesiones de tipo físico, mental o social.*
+*El término “violencia estructural”, acuñado por Johan Galtung en los sesenta, se refiere a las estructuras sociales, como la economía, política, leyes, religión, y cultura, que generan o provocan afrentas que impiden el desarrollo completo de las capacidades del individuo, la comunidad o la sociedad. Al mismo tiempo es violencia, ya que induce lesiones de tipo físico, mental o social.*
 
 > ¿Y qué quieres decir? ¿Que te dé porros?
 
