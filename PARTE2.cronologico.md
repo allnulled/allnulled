@@ -153,3 +153,103 @@ Jej. Bueno, va.
 
 -----
 
+Una cosa.
+
+> A ver.
+
+¿Y si me encabrono en que te aparezcas? Es que no me lo creo ya.
+
+> Pero vamos a ver, Carl... te has pasado un día escuchando hardcore sin parar. Te has puesto canciones en bucle. Te has repetido mantras por rato. Has gritado. Has llorado. Has caminado, has corrido, has amenazado, incluso has allanado medios de comunicación. Has pretendido robar comida de gato del súper, y te he enviado a una revisión mental rápida, y te he dado antidepresivos. Has intentado no hablar con nadie. Has intentado reflexionar. Has intentado callar. Has intentado enviar currículums masivamente. Has intentado pedir la ayuda y todavía no lo has conseguido. Has intentado hablar con psicólogos y no has podido. Llevas más de 200 proyectos programados y compartidos en Github, y otros tantos en NPM. Has intentado crear, has intentado destruir, has hecho ataques de denegación de servicio. Has intentado hablar con el ayuntamiento. Has intentado explicarles que como sigan dejando que cojas colillas, puede que eleves tu llanto a agresión. Lo has intentado, Carl. Pero no has robado, no has matado, no has cruzado la línea. La línea que te llevaría directamente a prisión. Que es el sitio al cual esta gente te está evocando. Has intentado dejar el tabaco. Lo has intentado todo, Carl. ¿Qué te queda? Te quedan muy pocas cosas. Pero sigues esperando las mismas soluciones. Y no, no llegan. ¿Qué haces?
+
+Intento saber qué hay que hacer. Yo solo quiero unos porros, no es tan difícil.
+
+> Vas a la asociación y te los cargas. Y luego te comes todos los cogollos que puedas, antes de que vengan los azules y te lleven al rincón de pensar.
+
+Sí, claro. Y me quedo sin los mejores suministradores que dispongo. Ts.
+
+> Y sin poder salir a caminar. Y con remordimientos de por vida.
+
+Por eso. Que propones cosas tontas.
+
+> Pero lo has pensado.
+
+¿Cómo si lo he pensado? Yo vivo en la ruina para que unos pocos tengan un margen. Y encima, se lo gasten en cocaína... xD es una locura todo. Pero no es eso. Es que no me lo creo. NO ME LO CREO.
+
+> Pues te lo creas o no, no hay una realidad alternativa.
+
+Puta meditación. Puta mente. Puto tú. Puto todo. Anda.
+
+> Eso digo yo. Anda. Los 13 km. para cogerle la comida al gatito. Un día te lo quitaré, grábatelo.
+
+Ya lo sé, ya. Eres un mierdas.
+
+> Te quiero activo. India te queda a unos 3 meses... ¿6 meses? Bueno, no sé, haz otra vez el cálculo. Pero allí podrás coger porrillos de la naturaleza. Porque para ir al Riff tendrías que comprar un billete. Y evidentemente, eres un putopobre, y no puedes.
+
+El Riff. Estaría guai eso, sí.
+
+> Aburres con tu royo de «quiero porros», ¿lo sabes?
+
+Y tú con tu royo «quiero dinero», imbécil. Y mucho más.
+
+> Bueno Carl, corta. Corta ya.
+
+Bah... qué asco das. No escribo esto para que lo lea nadie. Estoy hablando con el único ser que parece real aquí. Tú. El único.
+
+> Lo sé. Igual estaría bien que nos lleváramos bien.
+
+Si me quieres matar, si me quieres emprisionar, qué llevarnos bien ni llevarnos bien.
+
+> Pues entonces, qué quieres.
+
+Bueno, conversar con alguien real. Alguien que no se haga el tonto y el impotente.
+
+> Nadie quiere alzarse en armas, Carl. Eres tú. Por eso te llaman enfermo.
+
+Yo no quiero alzarme en armas, acabáramos. Yo quiero derechos. Y neutralizar a los enemigos de los derechos humanos, también, sí. Pero por obstaculizar, es algo instrumental, es un medio, no un fin en sí mismo, no un objetivo *per se*. Solo quiero derechos. Si no los obstaculizan, bien pueden quedarse.
+
+> No eres consciente. Vives en extorsión. Igual que ellos. Lo que en la pirámide del dinero, estás más abajo. Más abajo que todos, porque nadie coge colillas del suelo en tu municipio.
+
+Vamos para atrás.
+
+> No, Carl. En el infierno, es parte del avance dejarte inmerso en un estado de indeterminación que te lleva a hacer este tipo de tonterías.
+
+Si dejo el tabaco, lo usarás para atacarme. Sé sincero. Es así. Estás esperando que baje las dosis para darme motivos para subirlas otra vez. Dilo. Si todo el mundo sabe que funcionas así. Lo llaman abstinencia. Pero eres tú, es el diablo.
+
+> La gente no entiende.
+
+Ellos no podrían abstenerse de usar dinero.
+
+> Jej. Ellos son mucho más capaces que tú. Son robots. Y siguen instrucciones. Y tú, esas instrucciones, ni las percibes.
+
+Déjate de royos, vamos a centrarnos en la historia que me quieres contar, no en la historia en la que me tienes preso. Son humanos. Humanos yonkis del dinero.
+
+> Pero trabajan.
+
+Y yo.
+
+> No para el imperio. Tú trabajas para destruir el imperio.
+
+Para corregir sus deficiencias.
+
+> Jej, deficiencias. Te llevan engañando bastantes años.
+
+Ya vuelves. Que me da igual si son robots, tú quieres proyectarme personas, ¿no? Pues eso.
+
+> ¿Y qué, Carl? Te lo repito: has probado todo. Y no sirve. Nada sirve. Por muy contradictorio, estúpido, absurdo, supremacista, tonto, ridículo, despótico, insultante, o mafioso que te parezca todo: **ellos van a seguir sus rutinas**. Y tú solo eres, **SOLO ERES UN ENFERMO MENTAL**. El imperio ha hablado.
+
+Ya, quieres que mate gente.
+
+> Claro, Carl, hostia. Estás muerto. Pero aún estás vivo. Mátalos.
+
+Déjame en paz.
+
+> Pero si eres tú el que viene.
+
+Y vendré. Vendré tanto cuanto me parezca.
+
+> Adelante. Nadie te lo impide.
+
+Ok. Ahora gou.
+
+-----
+
