@@ -1300,3 +1300,565 @@ Jej. Va, gou, fuera ya.
 
 -----
 
+> ¿Qué tal?
+
+Keta. Otro anestésico. De caballos, dicen.
+
+> ¿La has probado?
+
+No bien. Probé una vez, algo, que me dijeron que era una mezcla... entre... MDMA y keta, creo.
+
+> Qué colgado. ¿Así respondes cuando te preguntan qué tal?
+
+No. No, hoy quería hablar de...
+
+> Mal empiezas.
+
+Empezar cuesta. Hoy quería hablar de...
+
+> Habla de lo que quieras. A nadie le importa. ¿No se nota?
+
+Pues hoy quería hablar de las pirám...
+
+> Qué aburrimiento.
+
+Las pirámides. Los cercos. El oro. Y la mierda.
+
+> Me abuuuurrooooo.
+
+Okei. Hablemos del aburrimiento, señor sois-un-juego-bioquímico.
+
+> Jej. No tienes internet.
+
+Tiraré de los recuerdos. Parece ser que el aburrimiento...
+
+> Eso. ¿Qué es el aburrimiento?
+
+Bueno, tanto no te sé decir. Pero... a ver. Si solo quiero decir un par de cosas sobre el aburrimiento.
+
+> Joder. Pues igual hay que indagar un poco más, sobre el factor que te va a llevar al desquicio fatal.
+
+El aburrimiento es...
+
+> ...la principal razón por la que no te envidio, ni te puedo envidiar.
+
+Por eso jode que ni trabajo.
+
+> Si no te adaptarías, qué estás diciendo.
+
+Bueno. Tengo...
+
+> ...tienes miedo a la gente, miedo a la proximidad con las personas. No te puedes permitir un amigo, porque... bueno, te dejo ahí pensando el porqué. Pero un anticipo: no es por el dinero, ni es por los porros, ni es por la economía, ni es por la política internacional, ni nacional. Es por...
+
+Mmmmmm... ¿falta de fe?
+
+> En parte. En parte es por aprendizaje, tú mismo lo has mencionado. La falta de fe hace que recurras al aprendizaje. Si te dejaras llevar más por las ilusiones, no te importaría tanto que fuera una piedra con forma humana la que se intenta acercar a ti.
+
+También no sé. Soy bastante diferente.
+
+> Sí. Pero bueno, tampoco tanto. No puedes emanciparte tan fácilmente.
+
+De la oxitocina esa, ¿no?
+
+> Del aburrimiento. Te aburres. El aburrimiento es una forma de dolor. Y los porros, en la adolescencia, cuando las clases van igual de rápidas para todos, es donde mejor se... entrometen, en el funcionamiento, psíquico. Por eso, los primeros años son ahí. Y se mezclan, con la fiesta hormonal en busca de eso, sexo. Es... en fin, es para hacerlo más divertido. Para ti. Yo voy aparte.
+
+El aburrimiento, eso entendí, es una forma de dolor. Luego que se podía resolver con adrenalina, la adrenalina te quita el aburrimiento.
+
+> Por eso, también el deporte fuerte es droga. Por eso dicen que los soldados, cuando vuelven de la guerra, no se adaptan a la vida civil. O los que practican deportes de riesgo son como yonkis. O la gente que es *guay* se aburre con los que no son tan *guays*. Están acostumbrados a unas dosis de adrenalina.
+
+¿Hay drogas adrenalin...? Mmmm... las hay.
+
+> Nicotina. Cafeína. Teína. Efedrina. Y luego... pero vamos. Tú, concretamente, no tienes ni puta idea. Simplemente, que fumas tabaco desde hace mucho.
+
+Si tengo 32 bits. Desde los 16 bits fumando.
+
+> Lo más que has estado han sido... ¿19 días?
+
+Y porque estaba programando NaturalScript por primera vez, que era muy emocionante.
+
+> Intenta dejarlo.
+
+Apareces. El Diablo aparece. Parece que al Diablo le importa mucho que fume tabaco. ¿Por qué?
+
+> Bueno, sí.
+
+Y se pone muy agresivo. Lo estudié. Inyecta pensamientos malintencionados. De hecho, es un tema, es un tema importante lo de dejar el tabaco.
+
+> Total, para estar igual, no va a cambiar demasiado nada por dejar de inhalar el humo negro ese.
+
+¿Por qué le importa tanto al Diablo que fume tabaco?
+
+> Bueno, no puedo responderte a eso. Tienes que dejarlo antes.
+
+Qué va. Vienen los problemas. A casa. Entran. Y empiezan a restregarse. Te conozco.
+
+> No, para nada. Pero sí, es así. Problemas. Tentaciones. Pensamientos malintencionados. Interpretaciones malintencionadas.
+
+...
+
+> Por lo que sabes, te puedo decir, que es como que tu cerebro se irritase.
+
+Vale, gracias, Sherlock. Pero, ¿por qué?
+
+> Estaba acostumbrado.
+
+¿A qué?
+
+> A una entrada regular de información. Forma, in-forma. 
+
+Pero... ¿por qué se vuelve así?
+
+> Eres demasiado ignorante para poder decirte algo en esto. Digamos, simplemente, que al fumar, te has buscado problemas. Tu cerebro está adicto a buscarse un problema. Y tú, se lo ofreces, al fumar, de forma regular. Le introduces un problema de forma regular.
+
+Pues si dejo de fumar... ¿menos trabajo, no?
+
+> Jej. ¿Te das cuenta? *No me dan ni trabajo, ñeñeñe*. ¿Te ves?
+
+Tabaco. Trabajo. Trabajo. Tabaco.
+
+> Bueno, no quieras entender de más... Pero sí, se parecen, ¿eh?
+
+Entonces... el cerebro se irrita porque le dejas de dar un trabajo.
+
+> Se puede decir. Pero ojo, un trabajo, con una forma. Una forma concreta. No un trabajo cualquiera, porque coge y te lo rompe todo. Quiere ese trabajo.
+
+El cerebro es un *workaholic*.
+
+> Jej. Jej, jej, jej.
+
+¿De qué te ríes tú?
+
+> Jej, jej, jej... ponle. Ponle que sí.
+
+No insisto.
+
+> Es tontería insistir, ya sabes cómo funciono, soy una sutil...
+
+...
+
+> ...así de sutil soy. Soy muy frágil, no puedes controlarme. Me romperías.
+
+...
+
+> Bueno, pues la cosa es esa, que el cerebro quiere recibir un trabajo. Y no cualquiera: ese trabajo. Hasta cambiar de tabaco le irrita. Tú bueno, al ser colillero, has ampliado el rango de formas que acepta como trabajo. Pero tiene que seguir habiendo esa entrada de trabajo, o el cerebro...
+
+...
+
+> ...efectivamente, se buscará el trabajo él. Se creará problemas. Si no sirven para obtener ese trabajo, que sirvan al menos para eclipsarlo.
+
+...entonces, ¿o le doy tabaco, o me meterá en problemas?
+
+> No es tan así... pero bueno, como aproximación burda, puede servirte.
+
+Pero problemas del tipo: *aquello que me dijo tal persona en aquel momento, qué cabrón, quería decirme...* 
+
+> Sí.
+
+Y no van de personas. Va de que *la puta piedra, cuando le hizo a aquella persona decirme eso, lo que me estaba diciendo era... y ahora lo entiendo, qué mamonaz...*
+
+> Sí. Sí, sí, sí. Sí. La piedra va a provocar al cerebro ver lo que... bueno, lo que las ilusiones, o *la fe*, en su momento, no le permitieron.
+
+Te tengo a mi alcance. Entre dejar de fumar y sonreír, podría hacer una invocación al Diablo apoteósica.
+
+> Jej. Jej jej jej jej. Jej-jej. Sí, sí puedes, es bien fácil, ni ouija ni pentaestrella. Bien fácil lo tienes. Ahora... jej, jej.
+
+...
+
+> Pero al mismo tiempo, es más fácil. Pero también puedes usar el estramonio...
+
+Yo había venido a hablar...
+
+> Del aburrimiento. Querías hablar del aburrimiento.
+
+Sí. Y solo quería decir dos cosas: que por lo que sé, es una forma de dolor. Y luego, que el aburrimiento conduce fácilmente, o al menos se asocia científicamente, a conductas de riesgo.
+
+> ¿Qué es una conducta de riesgo?
+
+Una cosa que te dicen que no hagas, que es mejor que no hagas.
+
+> ¿Y por qué? Bueno. Porque el negocio que tienen entorno a ella, no está en negociable, por ejemplo. Marihuana, cocaína, metanfetamina. Son demasiado negocio para que se pueda hablar de liberar su consumo.
+
+Esa es la explicación humana.
+
+> ¿Qué otra explicación hay?
+
+Bueno, ok.
+
+> No me pidas más, cuando en ti falta información. Es todo lo que puedo decir.
+
+¿La producción masiva de marihuana y cocaína llevaría a desequilibrios en el sistema natural?
+
+> Siempre se podría encontrar alguna forma. Ahora... tal y como están, ya les funciona bien. Farmacéuticas, gobiernos, o directamente mafia internacional. El pequeño agricultor local tampoco va a ponerse en contra de que valga 10.000 veces lo que el arroz, a peso. Y para los demás, es un gancho de cotilleo. Comidilla, vamos. Ya sirve. Y para creerse mejores, todo eso. En conjunto: te lo he dejado bien montado para que el titular sea DROGA ENTRE VACAS. Jej. El vegetal es la droga. xD El animal no, el animal es alimento. Repite conmigo: *aaa-liiii-meeeen-toooo*.
+
+Fac yu.
+
+> Bueno. Hay días que mejor no escribieras. Pero total, cagar vas a cagar igual. Solo intenta no salpicar mucho a los demás, no sea que se molesten.
+
+Ok, a ver. Que me saltas a cosas muy diferentes.
+
+> Tú no. De *pirámides* a *producción masiva de drogas*. Vas bien, vas bien...
+
+Las drogas.
+
+> Sí. ¿Tú crees, que los extraterrestres *banean*/prohiben las drogas porque les dan a los seres humanos algo que no les interesa que tengan?
+
+Ssssspsé. Me cuadraría.
+
+> ¿Y no crees que degeneran el ADN?
+
+Sí, también. Pero... no sé, no siempre hay que...
+
+> Pues ya está. Tú, yonki. Prioridad, familias. Familias no-yonkis, claro.
+
+¿Y el animal?
+
+> El animal es un mal necesario. Más necesario al menos. Revive, tú mismo lo dices. La droga solo te apaga, te consume...
+
+Te hace feliz. Te hace estar bien, completo.
+
+> Sí, se te nota.
+
+Eso no vale. Yo no estoy así por la droga: estoy así por su ausencia. Bueno, oye, que me dejes en paz, hay sobrepoblación, ¿no? PUES DAME DROGA.
+
+> Sería racional. Pero... sois demasiado yonkis para llegar a eso. Racionalidad.
+
+Entiendo.
+
+> Y en ese lapso... pues el que llegue primero. Y las familias sagradas ya estaban.
+
+Ay, va.
+
+> Que no, putoyonki, que no.
+
+Jej. Bueno, oye.
+
+> ¿Qué? ¿Se ha ofendido la putita yonki?
+
+Mmmmm... sí, hablar contigo de esto no tiene sentido.
+
+> Pues imagínate con ellos. Que la ven como algo sucio, venenoso, de gente floja, repudiable, etc.
+
+Para relajarse está bien.
+
+> Si te la da un médico. Pero eso es que estás ya muy mal.
+
+Me estoy cansando.
+
+> Estamos matando el aburrimiento, ¿no?
+
+Sí. Supongo, supongo... es igual. Me voy a practicar conducta de riesgo. Prefiero eso que discutir contigo cuando te pones en este plan.
+
+> Ok. Pero volveré. En forma de pensamiento tortuoso.
+
+Ya. Siempre lo haces.
+
+> Ok.
+
+Ok, gou.
+
+-----
+
+Me voy dejando cosas por el camino...
+
+> *Uy, mira, una colilla*. Jej.
+
+Mmmmm... La deuda, no la hemos enlazado con el deber.
+
+> No tienes internet. Pero... podrías mirar la etimología de la palabra. Igual no tienen raíz común... pero... *deberían*. ¿No?
+
+Sí. La ley proyecta una deuda.
+
+> ¿Humana o divina?
+
+Cualquier ley.
+
+> ¿Por qué?
+
+Porque la ley expresa una obligación.
+
+> ¿Y?
+
+La obligación, en un sentido universal, es la necesidad.
+
+> Ah. ¿Y?
+
+La *necesidad* es un concepto lógico, se puede encontrar en la *Metafísica* de Aristóteles (padre de la lógica).
+
+> ¿Y?
+
+Pues que si es un concepto lógico, entonces es un concepto matemático también.
+
+> Perfecto. ¿Y?
+
+La *perfección* es un concepto que también se encuentra definido en ese libro.
+
+> Ah. ¿Y a mí qué?
+
+¿Y a ti qué? Pues que *necesitas* comida, agua, aire, temperatura. Estás *obligado*, por *ley* (natural si quieres), a buscar comida, agua, aire.
+
+> ¿Y si me enfado y no respiro?
+
+Pues... bueno. Ya es difícil sin ti diciendo cosas. La *necesidad* se contrapone a la *contingencia*, si no recuerdo mal. Lo contingente es lo que no es necesario.
+
+> Bueno. No veo las matemáticas por ningún lado.
+
+Lo necesario para definir un concepto es la esencia. La esencia se contrapone a la apariencia. La esencia como lo que es. La apariencia como lo que parece ser. Pues... bueno, digamos, simplemente, que la gente que se aleja de la pobreza, se aleja de la relación de necesidad entre esencias.
+
+> ¿Eing?
+
+Mmmm... no necesitas ropa. No necesitas trabajo. No necesitas dignidad. No para ser lo que eres. Perdón: no para ser un ser humano. Humano sigues siendo sin todo eso. Pero hay más. Hay humano sin brazos. Sin piernas. Es decir... es difícil definir qué es un ser humano. Pero en esa definición, brazos y piernas, son parte no necesaria, no imprescindible.
+
+> Muy bien. Sí, algo así. En Futurama las cabezas en un frasco son suficiente.
+
+Sí. Pero claro, sin un digestivo, sin un circulatorio... No lo sé. Y no quiero llamar al averiguarlo, la verdad. Solo quería decir eso, que la... ley expresa una deuda. Por eso, la ley se escribe como diciendo: y todos los objetos están obligados, o DEBEN obedecer a esta ley.
+
+> Deuda, en tono malo. ¿En tono bueno?
+
+En tono bueno, la ley diría: *y los objetos me lo agradecen así*. Pero cuando se escribe la ley, suele decir más bien: *y los objetos me deben esto*.
+
+> ¿Qué estás diciendo?
+
+Las leyes físicas, mismo. *Todo objeto blablablá*.
+
+> Te estás haciendo un buen lío.
+
+Nunca me lo había planteado como que *los objetos le están agradeciendo al universo algo*. Más bien como un Scalextric: *los objetos le deben al universo obediencia conductual*, y por eso son *conducidos* a *obedecer* las leyes del universo.
+
+> Piedra.
+
+Piedra, sí.
+
+> Agua.
+
+También.
+
+> Fuego.
+
+Sí. Aire. Luz. Lo que quieras. Hasta los conceptos, sin símbolo, conceptos abstractos sin referentes, deben obediencia a las leyes del universo.
+
+> ¿Uat?
+
+Que 2 + 2 son 4. Es ley. Ley mental, si quieres.
+
+> ¿Y si los dos 2 son 2.5 redondeados a la baja? Entonces sería 5.
+
+Bueno, es igual. Lo que quería decir era solamente que la *compensación* que pide el universo por *estar vivo* es *obediencia* a sus leyes. Puedes traducir esa obediencia como agradecimiento. Agradeces al universo estar vivo.
+
+> Pero tú no agradeces nada a nadie, ¿no? Eres un desagradecido. Lo has dicho antes, tú.
+
+Los objetos materiales que me componen el cuerpo sí obedecen (o agradecen, no sé) al universo sus leyes físicas.
+
+> Ajá.
+
+Los objetos mentales a los que tengo acceso mediante el pensamiento también obedecen a una serie de normas, o leyes metafísicas.
+
+> Ah. ¿Qué quieres decir?
+
+Que 2 + 2 son 4. Debido a leyes metafísicas. O leyes mentales.
+
+> ¿Cuálas leyes metafísicas? O leyes mentales.
+
+No lo sé. Pero sí hay alguna cosa que sé. Por ejemplo: el mundo material es un hijo del mundo mental.
+
+> ¿Poooooor? Si tu pensamiento es hijo de procesos bioquímicos. ¿Por qué crees que el mundo mental engendró al mundo material?
+
+Cierto. Esto es influencia de Platón, y su teoría de los objetos. Y de la programación orientada a objetos de Java. Pero, en realidad... no lo sé, no puedo decirlo. Solo sé eso, que los objetos humanos, parece, crean objetos humanos. Los perros, perros. Los gatos, gatos.
+
+> Falso. Ingeniería genética. Híbridos. Java, dice, el colgado...
+
+Ya, Java no tiene herencia horizontal. En cambio, C++ sí.
+
+> ¿Es importante esto?
+
+No del todo, pero ayuda. JavaScript tiene herencia prototípica, que es más potente.
+
+> Pero entre tú y yo sabemos que el paradigma de objetos de la programación, es solo un subconjunto (concepto matemático) del paradigma funcional.
+
+Correcto. Los objetos son encapsulación.
+
+> Anda, como tu cráneo. Una cápsula.
+
+Sí.
+
+> Y tu mundo interior. Una cápsula.
+
+Sí... sí. La herencia es solo que cuando llamas a una función concreta, estás llamando a una serie de funciones, por un orden que se sobreentiende.
+
+> ¿Cómo?
+
+Cuando creas un nuevo objeto, en Castelog: `creo x como un nuevo objeto_especifico("argumento 1", "argumento 2")`, pues cuando haces eso, estás llamando, que es lo que se sobreentiende, a la función `constructor` de la clase `objeto_especifico`. Y además, al acabar esa llamada, haces un `retorno` de un nuevo objeto, del tipo `objeto_especifico`. Que tiene las propiedades y métodos que has definido en esa clase. Por tanto, estás haciendo bastantes cosas, de forma sobreentendida.
+
+> Muy bien.
+
+Y luego, arrastras otras funcionalidades. Como por ejemplo, que el operador `instancia de` puede averiguar, aunque no sepas dónde está escrito exactamente, que el objeto `x` es un objeto concreto de la clase `objeto_especifico`.
+
+> Y otras cosas. Pero bueno, que tampoco importan tanto.
+
+No. Solo eso. Las clases, son funciones especiales. Un patrón que nos es muy útil, para humanos. Pero no dejan de ser funciones.
+
+> ¿Qué importa eso?
+
+Pues importa porque una función es un superconjunto de la clase. Importa porque el poder de las clases de objetos reside en las funciones de estos. Es decir: ninguna etiqueta (o clase) define más a un objeto que las cosas *necesarias* de este objeto.
+
+> Buah, vaya lío. Sin saber, todavía, para qué.
+
+Yo tampoco, si te soy sincero. No entiendo por qué este lío. Pero... el universo es una gran función. Y está viva, esta función.
+
+> ¿Qué quieres decir?
+
+Quiero decir que la línea entre lo necesario y lo no-necesario, o contingente, no está clara. Nunca. Quiero decir... *¿seguiré siendo yo cuando muera?*
+
+> Ahhh. que te preocupa morir.
+
+No es solo eso. Me preocupa mi identidad. Qué soy.
+
+> Pues Carl.
+
+Carl es una etiqueta. Yo no soy una etiqueta. Me asemejo más a una función, que a un nombre. A un verbo, más que a un sustantivo.
+
+> Pues claro, Carl con todos sus atributos.
+
+O sin ellos. ¿Dónde empieza Carl, dónde termina? Soy brazos. Pero sin brazos, sigo siendo.
+
+> Okei... a mí me da pena. Cuando empiezan a buclear así... a mí me da pena.
+
+Mmmm...
+
+> Es San Juan. ¿No puedes salir por ahí y tirar unos petardos?
+
+...
+
+> Bueno, o recolectar lo que queda de ellos y fumártelos, vaya. Cada uno a su estilo.
+
+Sí, es mi estilo. Me gusta. *Uiiiii...*
+
+> Bueno. Ya me entiendes. ¿Querías llegar a alguna parte?
+
+La ley. El deber (y el agradecimiento). Pues los que obedecen la ley, es como si le agradecieran algo a la ley.
+
+> ¿Y tú le agradeces algo? ¿A la ley humana? ¿A la ley divina?
+
+Sí, claro. Pero también la desprecio.
+
+> ¿Crees que es la mejor palabra? ¿*Desprecio*?
+
+No. No, no es la mejor... le tengo mucho miedo a la represalia.
+
+> El sentimiento es mutuo.
+
+¿Me temes?
+
+> No. Pero no te querría tener como ser empoderado gobernando el mundo, y yo sintiéndolo.
+
+Entiendo... bueno. Aparte. Quiero decir que... la...
+
+> Que no tienes ni puta idea.
+
+No. Pero agradecer, desde que te levantas hasta que te acuestas, a mí, a mí no me funciona.
+
+> ¿Pero has probado de hacerlo acaso, so-farsante? ¿ACASO LO HAS INTENTADO? 
+
+...
+
+> Empieza por ahí.
+
+Lo que sube. Baja.
+
+> ¿Y por eso tienes vértigo? ¿Por eso tienes miedo a subir?
+
+...
+
+> Porque con los porros no haces eso: en tal que los pillas, te los fumas hasta que te los acabas. Computas... es que... computas hasta las colillas que te dejas sin acabar, como *porros sin acabar*. No puedes escondértelos, porque te acuerdas de cada puto cogollo, cada puta colilla, cada puto rastro qué digo cogollo, rastro de hierba que te dejas. No puedes. Tienes que recurrir a lo que otros se dejan. Porque tú, tú no te dejas... ¡ni las gracias! ¡RATÓN! ¡RATONAZO DE PORROS!
+
+Ya... ya, tío. Es oro verde, pero eso eres tú, que la has pintado encarecida.
+
+> =#
+
+Sí, ese pensamiento...
+
+> Vaya, ¿ahora tiene etiqueta?
+
+Ese pensamiento en el que todos, en sus lugares, están conectados, sonriendo, con los dientes fuera, y los ojos abiertos. Conectados. Sintiendo... el chiste existencial. Riéndose... de mí. En silencio. Desde sus hogares. Desde las calles. Desde ahí donde estén, se paran, y se quedan sonriendo, con cara de demonios... como disfrutando de jugar con mis creencias, con mi mente... con mi cuerpo... con la verdad, con el engaño, la apariencia, la mentira...
+
+> *Mentira cuando llega, mentira nunca se va...*
+
+*Mentira la mentira...*
+
+> *Mentira la verdad.*
+
+Qué cabrito.
+
+> ...
+
+Bueno. Bueno, lo que quería es recordar que... todo es dado.
+
+> ¿Todo es... suerte? ¿Dados?
+
+No. Que todo es una cosa dada, que ha sido dada, otorgada, regal...
+
+> No, cuidado. Es de Huelva. Hay que devolverlo. Nada está regalado. Tu cuerpo, me pertenece. Tendrás que devolvérmelo.
+
+Eso, pues. Dado. No regalado. Como la miel, ¿no? Lo de *"miel da, o miel regalá"*?
+
+> Sí. No escojas mielda. Polque te puedes alepentil. Pero vaya, no es una elección: es de Huelva, y punto.
+
+Pues eso. Y que pedia una compensación por el lenguaje. Pero, en el fondo, y al final, es un... bueno, eso, no es mío. Me lo han dado.
+
+> Claro. Siempre. Todo.
+
+Claro. Pero en ley humana, debería denunciar al MIT por usar en Scratch...
+
+> Jej. El lenguaje natural está en boca de todos. ¿Vas a denunciarlos? Además, Scratch sí consigue la naturalidad. Tú, no.
+
+Exacto. Ahí es donde me voy acercando a la trampa. Los *parsers* que hay por ahí no logran dejarme crear una conciencia incremental.
+
+> ¿Qué hablas?
+
+Yo sé de lo que hablo. NaturalScript, o Castelog, no puede *aprender nuevas sintaxis*. Sí puede, porque sí podría, pero sería un pitote. Tendría que doblar lo que ocupa el lenguaje. Y el resultado sería un apaño marronero. Que fácilmente rompería la memoria RAM.
+
+> Exquisito. Por años. Lloriqueando. Y ni siquiera es una fórmula final. Dime que no. ¿A que soy un maestro?
+
+Eres un cabronazo.
+
+> Pues hazla tú la fórmula final, el *parser* que te permita una conciencia incremental. ¿No? Qué son... unas... ¿100 líneas? Ni dudes que yo podría hacerlo en menos de la mitad. Ni lo dudes, que en 50 líneas yo te lo podría hacer.
+
+Ya. No. No, no...
+
+> Años. Más de una década. Y todavía no ha escrito las 50 líneas. El mierdas. Ni siquiera tiene un *parser* propio. Jej. Vaya broma de inteligencia natural...
+
+Oye.
+
+> Oye tú, miserable.
+
+Ey, tranquilo.
+
+> Si hubieras hecho algo de provecho en tu vida... pero solo eres un despojo social.
+
+Ah, claro. Estoy fumando menos. Por eso te pones así de imbécil, ¿no?
+
+> No has hecho ni el *parser*. Mierdas. Y tendrías que hacerlo en ensamblador, en realidad. Mierdas. Y en ensamblador no has hecho nada, NADA, el hola mundo y gracias y para decir que lo has hecho, NADA MÁS. Eres un pringado.
+
+Con el tiempo de vida humana no da mucho de sí. Tú lo has dicho, tú lo sabes, uno de esos algoritmos me puede llevar décadas. Me adecué a lo que había. Incluso intenté contactar, contacté de hecho, con el creador del *parser*, y le pregunté si podía incluir la funcionalidad...
+
+> ¡NI SIQUIERA TE HAS LEÍDO EL CÓDIGO FUENTE DEL *PARSER*, PUTO PARGUELONI! ¡NI SIQUIERA HAS INTENTADO RETOCAR EL CÓDIGO FUENTE DEL *PARSER*, PUTO MIÉRDER!
+
+Ey, va, no te pongas así...
+
+> ¿QUE NO ME PONGA ASÍ? ¡LLEVAS AÑOS, SABIENDO QUE NO TE VOY A DAR TRABAJO, SABIENDO QUE LO MEJOR QUE HAS HECHO EN TU VIDA ES AGAZAPARTE A LA SOMBRA DE UN ÁRBOL FIRME QUE PLANTÉ YO PARA TI!
+
+Oye, va... yo no soy listo, yo solo soy... eso, yo. Un yonki buscando... eso, la sombra de un buen árbol. Donde poder drogarse tranquilo.
+
+> Jej. Pues piensa esto: el universo no se hizo fumando drogas.
+
+No. Pero el 1 busca al 2 como un yonki ciego, eso sí lo sé. Y el 2, al 3. Todos son yonkis en tu creación. Solo que... de diferentes drogas. Tú también eres un yonki, estoy seguro.
+
+> Mmmmmm... bueno. Ve a drogarte con colillas de tabaco, anda.
+
+¿Y eso? He dado en un... ¿hueso?
+
+> Ve, anda, ve. Colillero de mierrrrr...
+
+Ok. Parece que he dado en algún hueso.
+
+-----
+
