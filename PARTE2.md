@@ -7,6 +7,279 @@
 
 
 
+
+
+
+-----
+
+> Prefiero no interferir cuando estás así.
+
+Prefieres no hacerte notar. Interferir, ya interfieres.
+
+> Bueno, eso.
+
+...
+
+> Te pones...
+
+No hagas de psicólogo, gracias.
+
+> Estás enfadado.
+
+Claro que estoy enfadado.
+
+> Pues igual mejor que no escribas. Para recordar un enfado...
+
+Es igual, puedo decir lo que tengo que decir igual. Ya está explicado eso, pues ahora hablo sobre los protocolos sociales, y las interferencias emocionales en la habilidad lingüística.
+
+> ¿Y quieres que te siga el juego, o mejor me callo y aparte?
+
+Cállate. El que no sea capaz de seguirme, que le den.
+
+> Ni tu yo del futuro será capaz de seguirte. Ya sabes cómo funciona esto...
+
+Sí, mierda, sí. El aprendizaje se pega mejor en el cerebro cuando hay... emociones asociadas. Si son muy malas, o son muy buenas... solo dirá cuánto se pueden discutir. Las malas, no se discuten. Las buenas, no interesa discutirlas.
+
+> No sé, Carl, igual hoy sería mejor no escribir.
+
+A ver. Los putos protocolos de mierda. Los sociales. Protocolos sociales. Hay protocolos para todo... hasta protocolos mentales. Y las cero ganas de jugar a soplapolleces cuenta mucho en esto. Pues yo tengo graves alteraciones psíquicas que hacen que los protocolos sociales, simplemente, no. No. No voy a rogar un trabajo, voy a cargarme al ministro de trabajo antes, por no asegurármelo de ninguna forma. No voy a pedir ayuda, voy a cargarme al ministro de asuntos sociales, por no dármela hace años, por separar en meses la llegada de la ayuda. No voy a pedir una beca de pobre para estudiar, voy a cargarme al ministro de educación, al de formación profesional y al de universidades, y si cabe al de ciencia y tecnología también, por no poner a mi disposición toda la educación que yo como individuo pueda asumir. No voy a denunciar a los ricos que me han robado proyectos, o que se pueden pasear mi currículum como si fuera suyo, voy a cargarme al ministerio de economía, al de hacienda y seguro que alguno más está en el ajo, por no defender mis derechos frente a los suprenazis ricos. Protocolos. Protocolos. Sí, así no se puede ir a ningún lado. Por eso escribo. Porque como intente algo, y me tope con sus gilipolleces otra vez más, cojo y les reviento. Que es lo que quieren. Ahí es donde pienso: ayuno extremo de 2 días. Sin agua ni nada. A ver si tenemos alucinaciones antes de irnos de aquí, al menos.
+
+> Persigues cosas que no te dejarán tener.
+
+Porque estoy en un mundo donde ya no debería estar.
+
+> ¿Tan mal lo he hecho?
+
+¿Qué? Qué va, nonono, no, de ninguna de las maneras. ¿Tú, mal? Si lo has hecho de puta madre. Me estás jodiendo pero bien, amarre de los buenos. Si programo más, soy el puto amo, pero enloquezco por no tener donde caerme muerto y depender de la puta suerte que tu gestionas, puto desgraciado. Si no programo, siento que mi vida deja de tener un rumbo. Si trabajara de otra cosa, es que... no, simplemente, empezaría a pensar. A pensar de más. Y cagada. Si no trabajo, no avanzo, no puedo permitirme nada, y a colillas. Todo es así. Tú lo has hecho de puta madre. Vivo en un mundo de robots, y me lo has hecho saber. No es Solaris de Robots e Imperio, Isaac Asimov. No es un planeta donde hay 10.000 robots por humano. Hay más. Y tampoco están a tu servicio: están al servicio de un torturador hijo de puta que bueno, simplemente, quiere que medites, o que te mueras del aburrimiento. Escóndeme, escóndeme la droga. Si yo sé que quieres que fume. Si yo sé que me la escondes porque quieres que la busque.
+
+> Tan mal...
+
+No, nononono, no. Ahora me pongo a dar gracias, por no tener garantías de nada, más que de que merezco más morir por no llevarme bien con los robots, que respeto por perseguir nobles metas y no inmiscuirme en las putas mafias corruptas que rigen tu imperio de nazis, aka. «empresas» y «estados». Payaso. Toda la vida haciendo que sea un puto parguela. Y cuando le voy a pillar, empieza a decirme que todo era mentira. Pero sin decírmelo. ¿Qué quieres? ¿Que llegue contento? No creo. No creo que sea lo que quieres, porque si fuera así, menudo gilipollas. De tonto. De corto, de mal calculado, de que no sabes seguir una línea recta o qué pasa.
+
+> Ay, Carl, Carl...
+
+Sí, sí. Yo me quedo quietecito aqui. Pensando. ¿No? Es eso lo que quieres. ¿No? Quietecito. Pensando. Pensandooooo, pensando.
+
+> Programar, no...
+
+No, programar no. Como siga programando, acabaré matando a gente de verdad. Porque sí, porque sería decir que sí me creo esta mierda, y lleva mucho tiempo ponerse aquí, llegar a esto, para que ahora no me dejen entrar en las putas empresas por no poder seguir sus putos protocolos de amoooooor. Amoooooor. Tienes que sentir amooooor. Y ser un hipoooooócrita. Y amar el mundo empresarial. Puta ratonera sucia. No puedo pasar las entrevistas, es imposible. A la segunda pregunta ya estaría echando pestes de la empresa, buscando la pirámide, apuntando más arriba, buscando las conexiones entre ratones de empresa. Asco. El dinero. Qué puto asco. No, compi, programar no, que programen tus putos robots de mierda, que al menos cobran. O al menos eso me proyectas. Yo estoy cogiendo colillas del suelo, no tengo tiempo para burlar mis sentimientos y sonreírte, y hacerte pensar que me gusta lo que haces, lo que hacen los que son como tú, o tu puta empresa de mierda, rata oportunista, busca el quesito, putarrata, busca, ¡BUSCAAAAAAAAAAA, RATA DE MIERDA! ¡NO IMPORTA CUÁNTAS RATAS MUERAN EN EL CAMINO O PISES HASTA LLEGAR, BUUUUUSCAAAAAA EL PUUUUUTOOOOOO QUEEEEESIIIIIITOOOOOOO RATAINMUNDA! Anda, hmbre, iros todos a tomar por culo, ratas humaniformes.
+
+> No te pongas así...
+
+Ah, no, cierto. Recemos: *gracias señor, o señora, o perro, o gato, o cucaracha, gracias por instalarnos en una mentira, hacer que surfeemos en ella, y ahora no dejar de disimular que toda esta comparsa no se aguanta por ningún lado, gracias, todopoderoso equis, por embaucarnos por años, en mierdas absurdas, y ahora rematarnos con el ahogamiento final de toda la basura que hemos acumulado, gracias, GRACIAS, señor, por continuar la puta farsa mundial, y seguir usando las caritas para engañarnos, un día, y otro día, y otro día, o al menos fingir que así lo haces, GRACIAS, por todo esto y más, te doy gracias*. ¿Bien así?
+
+> Ve, Carl, ve a por colillas...
+
+Anda.
+
+-----
+
+Bueno, a ver. Yo quería hablar de las pirámides. Aunque lo haga mal, voy a hablar de las pirámides. Y si me dejo cosas, pues me las dejo. Estoy escribiendo para el Carlos del futuro. Que seguramente no se le haya olvidado nada de esto. Pero por si acaso.
+
+> No sé si hablar.
+
+Vale. Voy a reescribir desde aquí, porque básicamente iba a soltar todo de caca líquida literaria. Y no. La realidad es algo.
+
+> Y tiene ritmo. Tic, tac, tic, tac.
+
+No sé. ¿Qué es la realidad?
+
+> Es muchas cosas.
+
+Cosa. Este término. Lo explica todo, todo es algo, ¿no? Todo es una cosa.
+
+> Carl, son preguntas muy amplias.
+
+Mmmm... bueno, va, liquidemos lo de las pirámides, así podamos hablar de los protocolos, y de porqué me cierran las puertas en todos lados, y eso alimenta el bucle antiprotocolario en el que estoy sumido.
+
+> Por desgracia.
+
+¿Hay algo bueno? 
+
+> La tranquilidad. De estar fuera de todo. Y la tranquilidad. De saber que dentro no te quieren tampoco.
+
+El Club de los No Carl. Siempre me acuerdo de los canteros de los Simpsons.
+
+> Jej, sí. Y la piedra de la vergüenza que te hacen arrastrar.
+
+Sí. Y los apaleamientos. Bueno, no importa. Voy a hacer un resumen rápido, de los 4 conceptos del título. Luego la lectura simbólica de estos conceptos. Y luego, no sé. Pero no quiero hablar de las jerarquías, no quiero hablar de cosas concretas. Solo lo justo.
+
+> Como quieras. ¿Me dejas ayudarte ahora?
+
+Sí. Porfa.
+
+> A ver. ¿A qué viene lo de las pirámides?
+
+Las pirámides representan principalmente la jerarquía social. Bueno, social o de cualquier tipo. Pero, principalmente, es la jerarquía social.
+
+> ¿Dónde las ves estas jerarquías?
+
+En todo, prácticamente. ¿Te interesa el poder político? Escala por el partido. ¿Te interesa el poder empresarial? Escala por el organigrama de la empresa. ¿Te interesa el poder económico? Escala por el mercado libre. De ahí que la portada señale a una sucursal del mercado bursátil internacional. Las comisiones del mercado de valores son estructuras que están esparcidas por todos los países. En España, está la Comisión Nacional del Mercado de Valores. Y tenemos no sé si 3 o 4 bolsas: la de Madrid, la de Barcelona, la de Valencia. Y creo que Euskadi tiene otra también, no estoy seguro. Son datos para mí, nunca han significado nada, de hecho, ni siquiera sabría llegar a la Bolsa de Barcelona sin consultar Google Maps. Simplemente, que estos sitios, las bolsas mercantiles, son centros representativos del poder económico. Y te hacen un esbozo de los principales activos de capital del territorio. En otras palabras: las bolsas te señalan a los peces gordos del mercado libre, en ese lugar. Recuerdo que la ley no da poder al dinero: sobreentiende el poder del dinero, desde la Constitución como primera ley, cuando te habla del Mercado Libre. Entonces, cabe preguntarse quién es la gran autoridad del dinero. Pues las comisiones del mercado de valores, que están por todos los países, te hacen un resumen de las cabezas más grandes. Pero por encima de ellas, no hay nada concreto. Los jefes de la Comisión Nacional del Mercado de Valores de España sería el Ministerio de Economía. Pero ¿a qué responde esta infraestructura? ¿A quién le están siguiendo el juego? Supongo que si buscas en Wikipedia un poco más, encontrarás a la ONU, en última instancia. Y organismos suyos, o cercanos, o amigos: Fondo Monetario Internacional, Banco Mundial, no sé. No soy experto. Lo que cabe destacar es que estudié el bachillerato social, que se habla de economía, y realmente no tengo claro quién es el... la autoridad máxima, entorno al dinero.
+
+> ¿Acaso importa?
+
+Importaría si la situación fuera otra. Mi situación es la siguiente: no tengo bando, no soy bandido, y no espero conquistar al enemigo, porque estaría rodeado. Me interesaría dejar de verlo como enemigo. Básicamente, porque estar amargado es una cosa, pero no poder dejar de estarlo, no poder creerse el mundo, no poder integrarse en el mundo... es una solemne mierda. Sobre todo, si quieres algo del mundo. Y quizá ahí esté mi punto. Pero si tuviera que dirigir un ataque terrorista, probablemente atacaría a los ricos para ahuyentarlos de aquí. Cosa que no es posible, porque esto es España, y estaríamos en la línea entre dos mundos muy diferentes, que para nosotros se traducen en: Francia y Marruecos, Europa y África.  Todo esto, si te crees la historia. Si no te la crees, y en este punto yo preferiría no creérmela, y por eso reescribo este apartado. Para que lo que quede, me invite a no creérmelo.
+
+> ¿Por qué prefieres no creerte la historia?
+
+Sí, ok. Mira. Todo está hecho. Mira a tu alrededor. Todo es demasiado sofisticado para pensar que eres algo. Incluso si te han hecho pensar que eres algo, es por eso, porque las cosas han conspirado para hacértelo pensar. Pues en este punto, yo, Carl, me veo como invitado a cometer delitos y atrocidades en nombre de la locura viviente en el imperio material-esclavista. Es decir: por ser como soy, tendría que ser yo el que ponga el grito en el cielo. Y cometa la primera locura fuerte contra el imperio. ¿Cierto? Pues falso. Quieren, ellos QUIEREN que cometa, que yo cometa una locura. Lo quieren. En última instancia, para llevarme a la cárcel. Pero... es obvio que lo están provocando. Aunque a veces se me olvide, yo soy producto de algo muy ingenioso. Tanto, que esto que explico sobre la jerarquía, es la parte burda. No hay sofisticación. Quieren, realmente, el que me puso aquí ya sabía dónde me estaba metiendo. QUIEREN, no me preguntes quién, pero QUIEREN que se me vaya la olla. Cuando entiendo esto, me quedo quieto parado. «Ellos, él, ella, o ello, no sé quién exactamente pero alguien, ALGUIEN, quiere que se me vaya la olla». Contra el poder. Contra los poderosos. O incluso contra cualquiera, en realidad. Lo quieren. Pues mi deber sería averiguar por qué.
+
+> Porque querías salvar una civilización. Para eso había que condenarla antes.
+
+Pues no cuentes conmigo. Ni tampoco con mis códigos. Me da rabia. Por eso también pierde el sentido seguir programando cosas como la democracia directa o la economía algorítmica, cuando su razón de ser ya habría movido a otros, mucho más capaces que yo, antes que yo, a desarrollar y ordenar la idea.
+
+> Es como si te dieran un regalo, y cuando te ha llevado muchos años aprender a abrirlo, coges, y lo dejas en un rincón.
+
+Sí, correcto.
+
+> Y no solo eso. Además, te niegas a abrir más regalos.
+
+Excepto colillas. Y eso tampoco es una forma de vida, ni es sostenible, ni nada de nada.
+
+> Sí, eso, lo más tonto, es como si te pones a jugar con las bolas del árbol de navidad, y te dejas los regalos sin abrir.
+
+Bueno...
+
+> Bueno, no. El dinero, los viajes, la comida, la gente, la música... las plantas y los animales, no sé, las ilusiones.
+
+Son ilusiones. Y en mí, ya ni eso. Son piedra. La misma piedra que veo cuando me quedo mirando a la pared. Pero la pared no me engañará. Los otros, en cambio, estoy 100% seguro que me harán pensar que no son una piedra. Pero lo son. Son piedra. Y además, me habla a traves de ellos. Prefiero el gatito, que como mucho me araña, me muerde y me ruge. Pero ya está, de ahí no pasa la cosa. Como mucho, se pierde.
+
+> Te veo muy resentido con la... ¿sociedad?
+
+Con la piedra, con la sociedad, sí. Sí, claro, totalmente.
+
+> ¿Por qué?
+
+Da igual. La cosa es que las pirámides están ahí para llamarte a escalarlas. O para ofrecerte juegos intermedios.
+
+> ¿Te jode no poder escalar las pirámides?
+
+NaturalScript. Robado por MIT/Scratch (con Microsoft, chivato que les debió pasar la notita, conste ahí, Google de amigo también). Tiempo de mi vida. Remuneración 0€. Y bueno, sigue. ¿Sigo, Carl del futuro? Si quieres sigo. Pero vamos, pirámides y cercos, resumidamente, pirámides y cercos que juegan en tu contra, hasta que te cabreas mucho (como para despreciar hasta tu vida), que entonces se relajan, para que tú te relajes, y luego volver a cargar contra ti. Es lo puto mismo, todo el puto rato. Hasta que te canses, el algoritmo es así. Y lo has llevado ya al absurdo: a nadie le dice nada tener un lenguaje de programación natural. Pero aguarda: a nadie le dice nada tener una democracia directa. Aguarda: a nadie le dice nada no tener los números de la economía, se conforman con verlos en una pantalla con lucecitas como un esbozo malo, y la promesa de que si algún día tuvieran dinero, podrían interesarse por jugar a apuestas. Pero espera: a nadie le dice nada no tener una educación gratuita ni desde lo público siquiera. Aguarda: medios de comunicación tomados por los ricos y poderosos. Constitución que no habla de individuos, sí de coronas y mercados e iglesias. Anda, hombre, a tomar por culo. Falso todo. Real, sí, pero falso, falsísimo. Si ellos se adecúan, pues que sigan. Yo, como mucho, me quito el muerto así. Pero paso de programar democracias ni economías, porque: todo el mundo sabe hacer una división del poder, todo el mundo entiende la diferencia entre tener un plato y tener la receta. Que les follen, si quieren seguir jugando a ser imbéciles retrasados, que sigan, es su puto juego, pero a mí, a mí que no me toreen porque esto lo envío rápido a tomar por culo. Rápido. Polleces, toda la vida haciendo el subnormal. Anda, hombre, fuera ya.
+
+> ¿Todo por no poder escalar pirámides?
+
+Ni rodear cercos. Pero, ¿realmente? Porque es surrealista. Porque la pirámide que habia que escalar es la que te deja claro eso: que estás en su propiedad, que eres huésped en este sistema, y que lo tiene máximo controlado, hasta el punto de que NaturalScript no lo sacastes tú: te lo dieron ellos. A partir de ahí, seguir es intentar emocionarse por mierdas. Pero son mierdas. ¿Tú qué quieres? ¿Marihuana? Pues nunca con tranquilidad. ¿Quieres una casa? Tuya no será. ¿Quieres paz en el mundo? Prueba en Venus si quieres. ¿Quieres una educación completa? Sí, para conocer todas las drogas y sintetizarlas, o crear bombas, anda, tira para allí. ¿Quieres...? ¿Qué quieres? Pronúncialo, que así te lo puedo quitar antes. Es así. Con todo. Estás vivo. Tienes que intentar sacar el misterio desde eso solamente. Lo de fuera, son putas trampas casi todo el tiempo. Y el dinero es la cosa más mierdosa y asquerosa que hay, cuando no la tienes ni te la puedes procurar. No es tu juego, sé que quieres salvar una configuración mental. Pero es igual, este cabrón tiene todo el juego pillado. Todo. Aunque no te lo acabes de creer, te estás acercando a verdades demasiado altas. Y eso implica eso: ni la ilusión de poder compartir tus logros está a tu alcance. Menos aún, consecuentemente, de monetizarlos. Así que desiste.
+
+> Sí, creo que es el mejor consejo que te podrías dar.
+
+Tú cállate, patán.
+
+> Me callo, me callo.
+
+Fak yu.
+
+> ¿Y los cercos?
+
+Los cercos son los obstáculos. Desde [Ecolang](https://github.com/allnulled/ecolang) sabemos que el universo es todo un entramado de obstáculos. Los cercos son esos obstáculos. Lograr ver los objetivos, o deseos, te facilita ver los cercos, u obstáculos. Estratégicamente, puede ayudarte.
+
+> Pero si te dijera que tienes una maldición, que hace que todo conspire para que no puedas tener dinero nunca, menos aún acumularlo, etcétera. ¿te ayudaría?
+
+Probablemente. A querer ir contra el que me la puso.
+
+> Y si te digo que vive en la Luna y ha montado un show a tu costa que se televisa en Marte, ¿ayudaría?
+
+Jej. Sí, que no todo lo queremos saber, ¿no?
+
+> No quiero darte lecciones en este apartado. Creo que ya te he hecho frustrarte suficiente.
+
+Es un hijo de puta. De verdad. A las personas las puedo odiar. Pero a ti... lo mío contigo va más allá del odio, y va más allá de la rabia.
+
+> Lo sé. No quiero interferir.
+
+Que te follen. Cerdo asqueroso, puta cucaracha. Es que no, no, no, compararte con animales es despreciarlos demasiado. El cerdo es majo, la cucaracha es maja. Tú, tú eres el asqueroso.
+
+> Sé, Carl, sé...
+
+Follen. Pollas.
+
+> ...
+
+Los cercos es eso, barreras, obstáculos, impedimentos. Desde físicos hasta mentales. Empezando por la ignorancia. Siguiendo por las ilusiones. Las emociones. La capacidad intelectual limitada. La torpeza al aplicarla. Hasta finalmente, la psicomotricidad. Todo. Cercos mentales.
+
+> ...
+
+El oro y la mierda... pues no sé, tampoco hay mucho que explicar. El oro, lo que sí quieres. La mierda, lo que no quieres. Y todos estos símbolos están, por ese mismo orden, representado por el panteón que cogen de símbolo las instituciones suprenazis estas. Este símbolo: 🏛. Pirámide, el tejado. Cercos, las columnas. Oro, el escalón alto. Mierda, el escalón bajo, o el suelo directamente. Ya está. Y si lo haces girar, verás un ojo. El ojo. Donde la pirámide es la pupila. Las columnas, el iris. Y luego donde termina el globo, y donde empieza la realidad.
+
+> Cualquier cosa.
+
+Es así. Fractalidad, si quieres. Me da igual. Me enfado. Me enfada hablar de esto. Es estar en una puta celda, igual son todos robots y están haciendo experimentos conmigo. Igual es otra cosa. No lo sé. Sé que esto es una habitación de dos. Y que por muy loco que parezca, todo lo demás, es otro ser. Incluso... está en mí, dentro de mí. Así que bueno, relájate, que está todo hecho, y vamos a seguir intentando pararnos el corazón, sea con cafeína, sea con cosas. Porque directamente, querer algo de este sitio, es mierda, es puta mierda.
+
+-----
+
+Hola.
+
+> No estoy. Considérame fuera de servicio.
+
+Vale. Solo te necesito para seguirme un poco el diálogo, nada más.
+
+> Eres pesado, ¿eh?
+
+Unos 70 kilos, aproximados.
+
+> Bueno, va. ¿Qué quieres?
+
+Quiero comentar algunas cosas.
+
+> Pero... ¿qué quieres dejar, con este escrito?
+
+Cada día, cuando me acuesto y me duermo, pierdo la memoria. Mucha memoria.
+
+> Sí, normal. ¿Y?
+
+Pues que me desubico del lugar donde estoy.
+
+> ¿Y escribes para reubicarte?
+
+Sí. Quiero dejar algunas cosas claras. Es como un recordatorio largo.
+
+> Pues muy bien. ¿Y qué quieres recordar en este... apartado? De tu escrito, tu recordatorio.
+
+Pues... quería hablar de los protocolos. Pero antes... creo que debo hablar de las pirámides, los cercos, y tatatá.
+
+> No sé, tú sabrás.
+
+Va, hostia, colabora.
+
+> Estás comiendo muy bien últimamente. Y estás apunto de pedir la ayuda. ¿Por qué no hablamos de por qué no pides la ayuda?
+
+Mmmm... sí, es lunes. Bueno, primero, tengo que hacer 25 kilómetros a pie para poder llegar al sitio. Segundo, no me fío de la gente a la que tengo que dejar el papel, porque esa misma gente ha jugado conmigo y la comida, y les tengo un poco de maldeojo. Literal, he tenido lesiones oculares en el entretiempo. Y casualmente, esto no toca... no toca, pero sí toca. Casualmente, en esa lesión ocular, no tenía ni 2€ para medicinas. Fui al médico. El médico, al final, me dio una pomada para el ojo. Ya había tenido lesiones en el mismo ojo, era una pomada que ya había usado. Pues... bueno, mira, lo dejo escrito: vivo en un pueblo de mierda, donde hay muy pocas personas. Soy el único que tiene que hacer la compra caminando 12 kilómetros, 6 de ellos cargando con la compra. El único. No tengo ni para el bonobus. Todo esto, es la gente esta que te digo que tengo que darles el papel. Yo les he dicho de todo. Y todavía siento mierda hacia ellos, no te puedo engañar. Creo que me están enseñando lo mierdas que es el ser humano. Pero cuesta de agradecer igualmente. Igual están intentando gamificar la pobreza extrema. No lo sé. El caso, que a mí me gusta hacer deporte, y está bien lo de hacer la compra. De hecho, yo soy muy feliz si recojo algunas colillas de porro, y cuando llego a casa, puedo comer algo, y fumarme un porro, aunque sea de colillas. Me cuesta... hablar de todo esto. Pero el caso, es que... bueno, da igual. Que otro día, le abrí los armarios al médico. Y solo tenía pomadas del ojo. Y codeína, que se usa para cortar la cocaína, he escuchado, igual no, solo un rumor, ni idea. Pues... eso pasó hace mucho tiempo. Da que pensar que soy el único pobre extremo del pueblo. Me ven cogiendo colillas. Y ni la del estanco es capaz de hacer un trato conmigo para darme tabaco. Ya les he pedido trabajo, ya. Todos son pobres. En fin, no les envidio por el simple hecho de cuando los veo necesitados de socializar. Me da pena que los adultos no hayan aprendido. Pero si te paras a pensar, el que ha aprendido, se ha vuelto un pro-dineros peligroso. Me dan pena todos. Y supongo que yo a ellos, imagino, estoy cogiendo colillas para que los nervios no se disparen y me hagan explotar. Son muchas cosas. Cosas pequeñas, cosas grandes, cosas. Cosas que se van acumulando. ¿La verdad? No me creo una mierda. Pero al mismo tiempo... veo que va a ir para largo.
+
+> ¿Ya está?
+
+Más o menos, no pido la ayuda porque creo que lo único que van a hacer es ponerme más nervioso. Me he pasado años sin poder rellenar los papeles de la ayuda. Años. Y no me la van a dar antes por ello, no. Y no los puedo rellenar porque me están insultando en la puta cara, empiezan preguntando si estás casado o algo así. Me da mucha rabia. ¿Qué hostias tiene que ver que esté casado o no? Soy puto pobre. Sabes lo que mueve cada uno. Y si no lo sabes, es que lo sabe la banca. Tú sabrás. Pero sabes que soy un puto pobre, pregunta a cualquiera de por aquí, te dirá que doy pena. Asqueroso. Es que te juro que me dan ganas de ir a la oficina de la Seguridad Social y hacer una matanza. O al Ministerio Social. O a la Consellería Social. O al presidente, directamente. El mundo es un lugar muy pequeño. Puedes estar mucho tiempo haciendo el mono en la televisión, pero... somos muy pocos aquí. Y tienes datos de todos, so-mierdas. Te rebano el cuello y me quedo todo ancho meditando en la cárcel, político de mierda asqueroso fullero comediante parlanchín soplapollas comeculos patético. Y esto es por la ayuda. Pero es por la educación de mierda frustrante y perversa. Por los derechos de vida de rata que blindas y tus discursitos sobre la economía de esclavos. Son muchas cosas.
+
+> ...
+
+Es decir. No, no, es decir: yo creo en Dios por necesidad. Yo creo firmemente, tengo que creer en Dios firmemente, para que no se me vaya la olla contra estos mierdas que hacen ver que no eres ni un puto número. Son unos mierdas. Y están demasiado cerca mío. Te juro, no es que les odie, es que simplemente para engañarme, te rajo y fuera. Y esto no va por Dios, pero sí va por Dios. O el Diablo. O quién sea. Tú no eres, tú estás dentro, igual sí eres tú, pero tú me ayudas a relativizar. Ellos me ayudan a estar sufriendo ahora porque se me acaba el puñado de colillas, y tengo que hacer otra vez el penas por ahí, cogiendo colillas del suelo. Porque mira.
+
+> ¿Sólo por hacer el penas?
+
+No. Me han dejado sin comida. De hecho, estoy ahí ahí, estoy comiendo bien, pero esto tiene una fecha de caducidad. Bueno, que tengo 33 años casi, que hace media vida que en un sitio decente, ya me habrían dejado estar en algún lugar propio, haciendo alguna tarea, aunque fuera cuidar cultivos de marihuana. Está todo como el culo. Es un lugar donde mejor que no pienses lo que podría ser. Mejor que no. No tengo casa. En cuanto les dé la gana me echan. El policía aquel dijo que no. Pero por aquí no es eso lo que me llega. Y a todo esto, da las gracias. ¿Gracias de qué? ¿De tener a un adulto prematuro intelectualmente frustrado y viviendo como si fuera un niño, pero además, sin paga? Que os jodan, hombre. Y no pido la ayuda también porque como la pida y me la nieguen, QUE ES LO QUE VAN A HACER, PORQUE LO SÉ, como me la nieguen, los mato de verdad. No sé exactamente a quién, porque en su mafia, se encubren unos a otros. Pero si la pido y no me la dan, te juro, te lo juro que mato a gente. Por eso, prefiero no pedirla. Creí que podría acostumbrarme, a tener una vida así. Pero a la que bajo de tabaco, vienen problemas que me harán volver a subir. Es una mierda, es todo demasiado... putoenfermo. Sin tabaco. Pero comiendo comida *low*, todo muy... bueno, básicamente, exceptuando estos días, mi dieta se basaba en arroz y trigo. Trigo, en formato de harina. Pasta ya es cara. Un paquete de espaghettis ya es lujo. Por lo de 1 paquete de espaghettis de 500 gramos, te sacas 2 kilos de harina de trigo. No te puedes permitir el formato pasta. Macarrones igual. Vas directamente a la harina. Y además, harina no integral. Que ahí vas sumando cabreo. ¿Por qué la harina integral es más cara, si lleva menos procesos? Pues el puto dinero. EL PUTO DINERO QUE TIENE A TODA ESTA GENTE PUTOENFERMA JODIÉNDOME HASTA QUE ELLOS ME PUEDEN LLAMAR, CON TODAS, «ENFERMO». Estoy hasta los huevos, son absurdos, absurdos que andan, absurdos desde que se levantan hasta que se acuestan, absurdos moviéndose, moviéndome las cosas, prohibiéndome las cosas, absurdos que no entiendo y que cada vez tengo menos ganas de entender.
+
+> Entiéndelo...
+
+Vale, que sí. Que sí, que de una cosa mala, sacas una buena. ¿Te hacen andar? Pues haces deporte. ¿Te mantienen en pobreza extrema? Aprendes a vivir con menos, menos tonterías. ¿No te dan trabajo? Mejor, todo el día para pensar. Pero hay la parte mala. ¿Te hacen andar? Puedes lesionarte. Y quedarte sin viajes. Porque tu billete son las piernas, ni tren, ni bus, ni nada, eso sería ya problemas, sería robar. Que yo me subo al tren. Pero si te pillan, 50€ de multa. Que no puedes pagar al momento, por lo cual, 100€ de multa. Que no podrás pagar. Con esa tranquilidad te tienes que subir al tren, sabiendo que como te pidan el billete de viaje, entras en bancarrota. Porque no es lo mismo, estar a 0€, que estar a -50€. Los odio mucho. A todos, lo leo como un complot. Y si son las élites, humanas o extraterrestres, pues es igual, porque ninguno fuera de ellos me va a defender tampoco. Me salvan. Cuando estás crispadísimo, al borde, te tiran un flotador. ¿Un flotador PARA QUEEEEEEÉ? ¿Quieres prolongar la agonía? Déjame hundirme ya, hombre, si estoy hasta los huevos de tanto farsante. Y digo farsante en el mejor de los casos. Puede que sean de verdad. Lo cual, no es pena. Es asco.
+
+> ...
+
+Sí, callado mejor. Bueno. No pido la ayuda, porque se me va a ir la pinza en breves. En breves, creo. Es todo el mundo «dinero, dinero, dinero, dinero». Los mato a todos ya y me quedo solo. «Dinero, dinero, dinero, dinero». Putos robots. Déjame en paz, eres un imbécil. Gilipollas.
+
+> Carl...
+
+¡¡¡¿Qué?!!!
+
+> No, nada. Solo «Carl».
+
+Ah. Tanta tontería, tanto absurdo. Y súmale, súmale cosas. Que si guerra, que si medioambiente, que si esclavitud mundial. Es un puto chiste, Dios. Lo intento hacer bien, sacar algo de provecho. Pero lo único de provecho que siento que saco es la puta conclusión de que esto es un puto chiste. Un puto chiste.
+
+> ...
+
+Nada más. ¿Querías hacer algo para matar el rato? Pues yo qué sé, haz un comecocos, algo rápido, que te mueres y fuera, a otra cosa. No 30 años de tortura para entender que estabas en el juego de un sádico de mierda que planificaba una tortura mental con proyección de décadas.
+
+> Supongo...
+
+Bah.
+
 -----
 
 Me voy dejando cosas por el camino...
