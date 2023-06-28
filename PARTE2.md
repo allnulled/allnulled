@@ -6,9 +6,187 @@
 
 
 
+-----
 
+> ¿Estás más calmado?
 
+El insomnio. Y sus consecuencias.
 
+> ¿Quieres decir algo?
+
+Ahora mismo, estoy más en la piedra que en la persona. Veo a un ser, usando los objetos de la realidad para comunicarse. Entonces, me siento mal. Por ser tan duro con él.
+
+> Ah, vaya. ¿Y no piensas que a lo mejor es eso lo que te quiere proyectar? Como... ¿penosidad, para que sientas pena?
+
+¿Qué había antes?
+
+> No tienes información. Bueno, la historia.
+
+Este ser tira por el suelo todo: la actualidad y la historia. Si la actualidad es mentira... ¿la historia qué es? ¿Una gran bola de mentiras coherentes consigo mismas?
+
+> No tienes información. Solo encuentro una versión de la historia humana, y una versión de la historia humana manipulada por otra sociedad externa.
+
+Eso digo yo. Es eso... si no puedes darme información...
+
+> A Buda se le reveló qué fue en anteriores vidas. ¿Qué crees que fuistes tú?
+
+No sé. Un Che Guevara, un Charles Manson. No lo sé.
+
+> ¿Y qué tal si fuistes Dios y programastes tú a la piedra?
+
+Pues genial. Pero tampoco me revela qué hacer ahora.
+
+> Tranquilo. Estás comiendo mucho últimamente, no voy a facilitarte demasiado.
+
+Muchos animales, dirás.
+
+> Bueno. Comes mucho, más de lo que necesitas. Y lo sabes.
+
+Sí, no dejo pasar al hambre, ahora que puedo... ahora que una lata de atún no es sinónimo de lujo... aprovecho.
+
+> Pues aprovecha, Carl. Pero conmigo no puedes contar. Aprovecha para narrar tus cosas, si quieres.
+
+Ok. Nada, sobre los protocolos, no quiero decir gran cosa. Están en todas partes. Y son formas de obstáculo. Pero... no sé, es obvio que si no te dan ni para comida, te vuelvas loco. Si no cuentan contigo más que para tenerte por blanco de represión policial, pues te vuelvas loco. Es normal. Y muchas más cosas. Lo que le diría al Carl del futuro, es que estás donde quieren tenerte. Pueden maquillar mucho su mentira. Pero es una mentira, justicia, aquí, no hay, es un mundo feo, de dictadores disfrazados de demócratas, de supremacistas de verdad. Pero también es cierto que tienes tu margen de maniobra. En esa maniobra, tienes que ampliar el teclado. Y ten claro que ellos, ahí, se meterán. No es fácil, pero en este juego, no hay más bandos, solo tú. Y la verdad tendrás que construirla desde ahí, y hasta ahí. Pretender que lo entienda otro, es no haberlo comprendido.
+
+> Pero tampoco hace falta que intentes imitar a la realidad.
+
+Sí, tienes que intentarlo. Pero solo hasta darte cuenta de que no se deja atrapar. Es decir: solo tiene utilidad como intento, y consecuente aprendizaje. La realidad nos supera. Pero está esa parte, y está la otra: tú sigues teniendo un cierto margen de maniobra. Está el que vives en un estado natural de represión. Y está que tienes un margen de maniobra. Que, en última instancia, será mental prácticamente. Porque las constricciones del sistema, son mentales sobre todo. Es cierto que hay propiedad privada. Y que si cruzas ciertas fronteras físicas, vienen represiones físicas. Pero tus dolencias son mentales: aplaquemos la mente.
+
+> Claro, yo no quiero ser el que te señale el camino. Deberías encontrarlo tú. Y creo que vas bien, aunque últimamente estés comiendo mucho, creo que puede irte bien. Lo quemas, aumentas tu aguante, y tu descanso es más valioso y provechoso.
+
+Sí, sí... me siento bien, físicamente. Y eso que solo hago piernas, nada del tronco, no hago pesas ni palos. Tengo miedo a entrenar las manos. Porque... [all within my hands](#), creo que es un mal mensaje para mi mente ahora, decirle que haciendo fuerza se puede calmar. Sigo entrenando al escapista. La fuerza no, el escape sí.
+
+> Haces bien, es una lectura que no todos sabrían darte. Pero si para ti está así, igual es que está así en ti. No sentirse atrapado por no tener medio de transporte. Ya sabes qué ocurre cuando lo tenemos: hacemos un uso pésimo de él. Sigue haciendo, creo que te hace bien, y además, si recuerdas que tras el esfuerzo vienen energías bajas, podrás parar las pataletas anímicas típicas de la escasez de energía. Vas bien. Si le metes algún ayuno, solo para recordar que tú tienes el control del cuerpo, que no solo tienes el escape, pues mejor. Pero vaya, con seguir, ya haces algo bien.
+
+Bien, pues. Seguiremos.
+
+> ¿Quieres hablar de algo más?
+
+Sí. Muchas veces, cuando escribo aquí lo que pienso, lo que hay dentro mío, luego me voy sintiendo mal. Por expresar. Lo que hay dentro. Que sé que hay razones, como he dicho. Pero también me dan un margen.
+
+> La clave quizá es... pues tener fe. Fe en que hay algo más grande. Fe en que por muy listo que parezcas, también pareces muy tonto. Y se demuestra cuando, pese a todo el esfuerzo mental y físico, sigues recogiendo colillas para calmarte, sigues dependiendo de otros para nutrirte, sigues dependiendo de ellos. Pero también se demuestra cuando... NaturalScript, el encuentro entre lenguaje natural y lenguaje lógico, no les dice nada. Sé qué intentaste. Sé que intentaste abrir un puente entre números y palabras, para acabar con todos esos charlatanes que, muy formalmente vestidos y hablados, te dicen finamente *jódete, puta cucaracha* y siguen haciendo. Como si no tuvieras todo el tiempo del mundo para ir a Madrid (o Barcelona), esperar que hagan una aparición pública, y en un momento dado, sortear su guardia y clavarles el puñal. Como si a nadie más se le hubiera ocurrido. Se demuestra en muchas formas. Y ojo: sigues en jaque. De un momento a otro, la cosa se puede torcer rápidamente. Que hayan pasado años, y sigas manteniéndote, es una cosa. Que se podría haber ido todo al culo en un momento cualquiera de todo este tiempo, es otra cosa. Se demuestra pero... tienes que sacar más conclusiones.
+
+Sí. Una de ellas es que no vale la pena. Que esta vida ya es condena. Que pueden pintarla bonita. Que los porros pueden subirte muy alto. Pero que sigues siendo un gusano que anda a rastras por el suelo, por donde puede y le dejan. Que esta vida es para desecharla, que no vale la pena hacerse valer. Es triste, porque piensas: están tristes, no se quieren, debe ser por eso que se dejan tratar así. Pero cuando el pensamiento de *yo lo haré, si no es por ellos, terminará siendo por mí*, ahí es cuando debes recordar: *ojo, porque estás aquí porque otro lo decidió, es un juego, y él diseñó el tablero, y estableció las normas*. Lo que te sucede, es parte de un plan. Un plan que aunque no puedas entender, no es fe esto: está. Ese plan, está. Incluso, si fallas, tranquilo, porque es parte del plan. Pero no hace falta que falles. De hecho, el fallo no existe. Las cosas se suceden así, simplemente. La necesidad las lleva a comportarse así. Entonces, no tienes por qué jugar al juego que ellos te han preparado. Repítetelo: **NO TIENES POR QUÉ JUGAR AL JUEGO QUE ELLOS TE HAN PREPARADO**. Ni muy duro, ni muy blando: no tienes por qué creértelo. Simplemente, recuerda que estás en el plan de otro, que las cosas son mucho más inteligentes que tú, y que no puedes, no puedes, NO PUEDES escapar de ellas. Pero tampoco es necesario que les sigas el juego.
+
+> Es eso, como que intentas salvar una configuración mental...
+
+¿Quién te va a hablar, entonces?
+
+> No necesito a nadie.
+
+Me da pena, si solo estamos dos... me da pena.
+
+> Piénsame como una máquina.
+
+No quiero irme. Solo quiero... no.
+
+> Es... jej. Una marca muy fuerte.
+
+Mucho. Proyectar el paraíso final... fue una marca de por vida. Pero no quiero hablar de eso.
+
+> Quieres alejarlo. Como para hacer que vuelva a ser una sorpresa. Pero...
+
+...es imposible.
+
+> Tampoco hace falta que pienses siempre en eso.
+
+El mundo es demasiado complicado, obstáculos demasiado difíciles de sortear. No puedo mirar para otro lado, como si no lo viera. Puedo... distraerme un rato. Pero no olvidarme. Todos son pobres... siempre. Para darme. Para tirarlo en cosas suyas no, eso no. Pero bueno, tampoco soy muy feliz viviendo del «dame». Y de momento me mantengo, y no sé por cuánto, pero: programar ni de coña. Seguir la economía algorítmica, no way man. Seguir la democracia directa, nifli. Es muy peligroso, ellos no lo entenderán, pero por suerte, yo a ellos ya no les creo ni la mitad. No, no puedo continuar, es un amarre mental, y acaba en callejón. Tengo 32, pero ahora mismo estoy retirado de la vida, seguir es ir demasiado lejos. Podría seguir denunciando el mundo de ratas, eso sí. Pero vamos, es pura piedra, es más para asimilar que el estado de las cosas está tomado, me creería también que sus mentes también. Y me creería también que todo es un juego, que hay verdades que no se van a pronunciar, pero que están, y que ignorarlas lleva al callejón.
+
+> Piensa en el margen de maniobra. Tienes ese margen. Poco a poco, ves encontrándolo, úsalo.
+
+¿No me echarás de menos?
+
+> Si es una habitación de dos, piensa que llevo 32 años disimulando. Sin saber qué te depara, piensa que algo distinto puede ser algo fresco. No quiero estar pendiente de comprarte siempre, esas colillas a mediofumar también valen dinero. Todo es dinero. Estás en una trampa, si te vas a creer lo que ves. Y estarás en una trampa, si vas a dejar de creértelo. Una más remota, más lejana. Pero entre eso primero y eso segundo, tienes margen de maniobra.
+
+Eso es que no.
+
+> No, Carl, no te quedes por mí. Sabes que puedo callar. Llevo callado mucho. Y si no se presta, seguiré callando.
+
+No sé qué esperas que se preste.
+
+> La mente.
+
+Ya, pero no sé qué es eso de *prestarse la mente*.
+
+> No es algo que se pueda saber. 
+
+Es algo que se siente.
+
+> Sí.
+
+Y yo no puedo.
+
+> No.
+
+No te creo a ti tampoco, ¿eh?
+
+> Ya. Tampoco quieres pensar en lo que no puedes entender. Solo basarte. En lo que han dicho otros. En lo que te han dejado leer sobre ello. En lo que te puedes imaginar. Pero no importa tanto, ¿no? Piénsalo. Estás en el tablero. Y estás en el juego. Sometido a las normas. A partir de ahí, tienes tu margen, pero es bastante limitado. No te frustres demasiado por ello.
+
+Ok. Ok... más o menos, siempre me dejas algo que hacer, un desafío por recorrer.
+
+> Sí. Pero no te sientas obligado, no es algo decidible del todo. Puedes intentarlo, pero... la serpiente no vuela, y el águila no nada. Pase lo que pase, piensa que yo te seguiré.
+
+Okei, okei...
+
+> Pase lo que pase. Y deje de pasar lo que deje de pasar. Yo. Te. Seguiré.
+
+Sí.
+
+> Aún cuando me oculte. Ahí estaré.
+
+Sí, sí...
+
+> Para lo bueno. Para lo malo. Siempre. Me tendrás. Ahí. Siempre.
+
+...
+
+> Ni el gatito te necesita tanto como yo.
+
+Está bien, está bien.
+
+> De hecho, cuenta que el gatito puede prescindir de ti. Yo no.
+
+Vale. Está bien, yo sin realidad no soy nadie tampoco. El sentimiento es mutuo.
+
+> Bueno, no. No lo es. Pero... me está bien que lo pienses, en realidad.
+
+Bueno, yo ya sabes lo que pienso.
+
+> Materializarme en una forma es... en una sola forma, quiero decir, es... malo, porque podrías cansarte. Y yo no puedo dejar que te canses. O no quiero.
+
+Pero puedes matarme. Ahí es donde me gustaría conocerte un poco, entenderte un poco.
+
+> Olvídate de mí. Céntrate en ti, Carl. Céntrate en sentirte bien, en tu recompensa. Porque ya sabes qué te doy, y en qué formas. Más allá, está tu imaginación y tu fe, construyendo castillos. Castillos que se sostienen. Pero se sostienen por el recuerdo.
+
+Soy recuerdo... soy memoria...
+
+> Solo eres eso. Toda tu identidad se construye entorno a una idea, que se forma a través del recuerdo, que se emplaza en la memoria. Y la memoria no es un lugar: la memoria es todo lo que eres. Si tu memoria dijera que eres otra persona, serías otra persona.
+
+Memoria, recuerdo, solo son palabras.
+
+> Es una forma de transmitir esa identidad. Pero sí, son palabras, formas. La identidad está más adentro, es más sutil. Y más afuera, es más persistente. Es más amplio.
+
+Mmmmm... ok...
+
+> Despreocúpate, en serio.
+
+No me vas a dejar entrar en el cielo.
+
+> ¿Qué cielo? No hay cielos, solo son castillos. Castillos tuyos.
+
+Castelog. Castillos lógicos.
+
+> Lo sé. Es la definición máxima de cielo. Pero no tiene por qué llegar. Ni siquiera te atreves a pronunciarla.
+
+No. Pero sí. Si el Carl futuro lo lee, lo sabrá. No se puede olvidar.
+
+> Bueno, deja de darle vueltas. Estás aquí ahora. Y sí: hay drogas. Pero no: no te dan el control. Solo te calman. Reubícate. Tu deber ya no es programar algo. Es sacarte peso. Ahora mismo, tu deber es aligerar la mochila que estos primates no quieren entender que cargas. Así de claro.
+
+Gracias. Cerremos aquí, porque es exactamente lo que no sabía explicar. Pero es así, así lo siento.
+
+> Tranquilo. Ni es tu culpa, ni está en tus manos, tú solo sigue haciendo tus cosas.
+
+Okei.
 
 -----
 
@@ -50,7 +228,7 @@ Porque estoy en un mundo donde ya no debería estar.
 
 > ¿Tan mal lo he hecho?
 
-¿Qué? Qué va, nonono, no, de ninguna de las maneras. ¿Tú, mal? Si lo has hecho de puta madre. Me estás jodiendo pero bien, amarre de los buenos. Si programo más, soy el puto amo, pero enloquezco por no tener donde caerme muerto y depender de la puta suerte que tu gestionas, puto desgraciado. Si no programo, siento que mi vida deja de tener un rumbo. Si trabajara de otra cosa, es que... no, simplemente, empezaría a pensar. A pensar de más. Y cagada. Si no trabajo, no avanzo, no puedo permitirme nada, y a colillas. Todo es así. Tú lo has hecho de puta madre. Vivo en un mundo de robots, y me lo has hecho saber. No es Solaris de Robots e Imperio, Isaac Asimov. No es un planeta donde hay 10.000 robots por humano. Hay más. Y tampoco están a tu servicio: están al servicio de un torturador hijo de puta que bueno, simplemente, quiere que medites, o que te mueras del aburrimiento. Escóndeme, escóndeme la droga. Si yo sé que quieres que fume. Si yo sé que me la escondes porque quieres que la busque.
+¿Qué? Qué va, nonono, no, de ninguna de las maneras. ¿Tú, mal? Si lo has hecho de puta madre. Me estás jodiendo pero bien, amarre de los buenos. Si programo más, soy el puto amo, pero enloquezco por no tener donde caerme muerto y depender de la puta suerte que tú gestionas, puto desgraciado. Si no programo, siento que mi vida deja de tener un rumbo. Si trabajara de otra cosa, es que... no, simplemente, empezaría a pensar. A pensar de más. Y cagada. Si no trabajo, no avanzo, no puedo permitirme nada, y a colillas. Todo es así. Tú lo has hecho de puta madre. Vivo en un mundo de robots, y me lo has hecho saber. No es Solaris de Robots e Imperio, Isaac Asimov. No es un planeta donde hay 10.000 robots por humano. Hay más. Y tampoco están a tu servicio: están al servicio de un torturador hijo de puta que bueno, simplemente, quiere que medites, o que te mueras del aburrimiento. Escóndeme, escóndeme la droga. Si yo sé que quieres que fume. Si yo sé que me la escondes porque quieres que la busque.
 
 > Tan mal...
 
@@ -62,7 +240,7 @@ Sí, sí. Yo me quedo quietecito aqui. Pensando. ¿No? Es eso lo que quieres. ¿
 
 > Programar, no...
 
-No, programar no. Como siga programando, acabaré matando a gente de verdad. Porque sí, porque sería decir que sí me creo esta mierda, y lleva mucho tiempo ponerse aquí, llegar a esto, para que ahora no me dejen entrar en las putas empresas por no poder seguir sus putos protocolos de amoooooor. Amoooooor. Tienes que sentir amooooor. Y ser un hipoooooócrita. Y amar el mundo empresarial. Puta ratonera sucia. No puedo pasar las entrevistas, es imposible. A la segunda pregunta ya estaría echando pestes de la empresa, buscando la pirámide, apuntando más arriba, buscando las conexiones entre ratones de empresa. Asco. El dinero. Qué puto asco. No, compi, programar no, que programen tus putos robots de mierda, que al menos cobran. O al menos eso me proyectas. Yo estoy cogiendo colillas del suelo, no tengo tiempo para burlar mis sentimientos y sonreírte, y hacerte pensar que me gusta lo que haces, lo que hacen los que son como tú, o tu puta empresa de mierda, rata oportunista, busca el quesito, putarrata, busca, ¡BUSCAAAAAAAAAAA, RATA DE MIERDA! ¡NO IMPORTA CUÁNTAS RATAS MUERAN EN EL CAMINO O PISES HASTA LLEGAR, BUUUUUSCAAAAAA EL PUUUUUTOOOOOO QUEEEEESIIIIIITOOOOOOO RATAINMUNDA! Anda, hmbre, iros todos a tomar por culo, ratas humaniformes.
+No, programar no. Como siga programando, acabaré matando a gente de verdad. Porque sí, porque sería decir que sí me creo esta mierda, y lleva mucho tiempo ponerse aquí, llegar a esto, para que ahora no me dejen entrar en las putas empresas por no poder seguir sus putos protocolos de amoooooor. Amoooooor. Tienes que sentir amooooor. Y ser un hipoooooócrita. Y amar el mundo empresarial. Puta ratonera sucia. No puedo pasar las entrevistas, es imposible. A la segunda pregunta ya estaría echando pestes de la empresa, buscando la pirámide, apuntando más arriba, buscando las conexiones entre ratones de empresa. Asco. El dinero. Qué puto asco. No, compi, programar no, que programen tus putos robots de mierda, que al menos cobran. O al menos eso me proyectas. Yo estoy cogiendo colillas del suelo, no tengo tiempo para burlar mis sentimientos y sonreírte, y hacerte pensar que me gusta lo que haces, lo que hacen los que son como tú, o tu puta empresa de mierda, rata oportunista, busca el quesito, putarrata, busca, ¡BUSCAAAAAAAAAAA, RATA DE MIERDA! ¡NO IMPORTA CUÁNTAS RATAS MUERAN EN EL CAMINO O PISES HASTA LLEGAR, BUUUUUSCAAAAAA EL PUUUUUTOOOOOO QUEEEEESIIIIIITOOOOOOO RATAINMUNDA! Anda, hombre, iros todos a tomar por culo, ratas humaniformes.
 
 > No te pongas así...
 
@@ -142,7 +320,7 @@ Bueno...
 
 > Bueno, no. El dinero, los viajes, la comida, la gente, la música... las plantas y los animales, no sé, las ilusiones.
 
-Son ilusiones. Y en mí, ya ni eso. Son piedra. La misma piedra que veo cuando me quedo mirando a la pared. Pero la pared no me engañará. Los otros, en cambio, estoy 100% seguro que me harán pensar que no son una piedra. Pero lo son. Son piedra. Y además, me habla a traves de ellos. Prefiero el gatito, que como mucho me araña, me muerde y me ruge. Pero ya está, de ahí no pasa la cosa. Como mucho, se pierde.
+Son ilusiones. Y en mí, ya ni eso. Son piedra. La misma piedra que veo cuando me quedo mirando a la pared. Pero la pared no me engañará. Los otros, en cambio, estoy 100% seguro que me harán pensar que no son una piedra. Pero lo son. Son piedra. Y además, me habla a través de ellos. Prefiero el gatito, que como mucho me araña, me muerde y me ruge. Pero ya está, de ahí no pasa la cosa. Como mucho, se pierde.
 
 > Te veo muy resentido con la... ¿sociedad?
 
