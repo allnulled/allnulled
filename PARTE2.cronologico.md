@@ -2319,3 +2319,228 @@ Gracias. Cerremos aquí, porque es exactamente lo que no sabía explicar. Pero e
 Okei.
 
 -----
+
+A veces no llego. Pero supongo que te pasas toda la vida reprochándome que yo contigo tampoco empatizo.
+
+> Yo sí te entiendo.
+
+Bueno, me castigas entonces.
+
+> Mmmm...
+
+Por no entenderte. Que programaste los átomos. Que programaste la física cuántica. Y a mí me dio por estudiar el social. Para no comerme mucho la cabeza. En lugar de el científico-técnico. Para ir tranquilo. Fumar porrillos.
+
+> Mmmm...
+
+Ya, ya, no puedes pronunciarte asi tan fácilmente. Son muchos años. De engaño. De trabajo, por tu parte. No entiendo la química, los libros la explican como el culo: si no quieres que la entienda, no entro, y ya. Pides sacrificios, pero yo veo cómo lo enredas todo. Por eso... por eso no me creo la actualidad, no me creo a la gente, no me creo este mundo. Estoy obligado, porque si me tiran una piedra, me dolerá. Pero... ya está. Simplemente, tira tú la piedra si quieres. Yo sigo aquí. Esperando que te dejes de ocultar tras funciones. Que eres muy listo, que yo soy muy lento. Sí, sí, si te lo compro todo. Pero... ¿qué hacemos?
+
+> Podrías empezar haciendo el esfuerzo de dejar las sustancias psicoactivas...
+
+Para que me ataques.
+
+> Te las puedo sustraer.
+
+Si quitas las colillas del mapa, te pronuncias demasiado.
+
+> Ahí sí, tienes tu punto. Pero ya está. Colillas.
+
+Ok. Bueno, algo es algo.
+
+> Y ritmo es ritmo. Te gusta la música étnica tribal modernilla esa, ¿eh?
+
+Claro. La hicistes tú también. O la generó tu maravilloso algoritmo, claro.
+
+> Efectivamente.
+
+Está bien porque me deja pensar que soy como un pájaro, que coge y se marca un estrecho de Gibraltar en una tarde cualquiera. Mola.
+
+> Pues no. Tú, por los caminitos.
+
+Ya. Putos pájaros.
+
+> Ve, ve a pincharte tu droga.
+
+Cigarro.
+
+> Ok, bueno.
+
+¿Te molesta?
+
+> ¿Sabes cuánto tiempo y atención te quita esa mierda?
+
+No, no lo calculo.
+
+> Pues eso.
+
+¿Por qué las pones? No las pongas.
+
+> No creí que fueras tan tonto.
+
+Ni yo que tuviera que ser tan listo, compi. Cuando quería aprender, no me dejabas.
+
+> Tienes internet. Si quisieras aprender de verdad...
+
+Ya te he dicho, veo cómo lo enredas.
+
+> Está bien. Dejémoslo.
+
+No, en serio. ¿Por qué lo enredas?
+
+> ¿Qué quieres? ¿Un Excel con todo, no? Así, todo bien ordenadito.
+
+Hombre, no sé. Ni que sea para hacerlo creible, para que me crea que son humanos como yo, no robots tuyos.
+
+> Te salvas, pero por los pelos.
+
+¿Te gusta mi peinado?
+
+> Sigue, mantén ese humor. A ver...
+
+En realidad te conozco. Llevo toda la vida. Eres un orgulloso de la hostia. Pero bueno, no menos que tóxico/venenoso/mortífero. Y supremacista.
+
+> Te di capacidad para entenderme.
+
+Y obstáculos para complicármelo.
+
+> Te di tiempo.
+
+Y más obstáculos, humanos, mentales, físicos...
+
+> Bueno, Carl...
+
+No, bueno Carl no. Es cierto. No sé, ideastes un recorrido. Yo me quedo pillado. De hecho, eres como... bueno, qué coño, ni siquiera eres, no puedo decir que seas. Como mucho, eres una esquizofrenia mía.
+
+> Para ellos.
+
+Y qué quieres. Aislarme.
+
+> Eso ya lo haces tú solo.
+
+Por qué será.
+
+> Porque aunque sea poco y lento, pero algo aprendes.
+
+Pues eso. Me voy a fumar.
+
+> Ve, ve... ve.
+
+Ah, ¿quieres que hable de eso?
+
+> Tú verás.
+
+Que sí, que soy un niñato, que soy un malcriado, que sí... ¿qué quieres? ¿Me quieres de esclavo mental? Ahora no. Pero hablaré, hablaré de la corriente esta antivolitivista tuya, que impregna todo el arco político, y por supuesto económico. Hablaremos. Pero ahora, cig.
+
+> Ok.
+
+Ok.
+
+-----
+
+Bueno, saquemos este rápido, ¿no?
+
+> No sé.
+
+Es importante, lo sé. Es casi como... la clave desde los tiempos de infantil.
+
+> ¿Quieres decir que terminaron?
+
+Bueno, a ver. Se me acusa de niñato malcriado y cosas así. Tengo 32, vivo con 0€/mes de ingresos, y en mi propiedad, propiedad propiedad, tengo un PC. Poco más. Es decir... niñato que vive así, como puede, con lo que le dejan. Puedes, porque puedes, puedes considerarme niñato, porque vivo en una línea fina que me separa de la locura explosiva. Pero esa línea, la pasarás tú, yo sigo aquí, observándote, atento, a tus... bueno, a tus estratagemas si quieres.
+
+> ¿Y qué alegas en tu defensa?
+
+Eso. Que has generalizado un ambiente político y económico, pero también ético y cultural, religioso, etcétera. antivolitivista. **ANTIVOLITIVISTA**. Lo destaco, porque claramente es un centro gravitatorio de todas tus estratagemas.
+
+> ¿Qué quieres decir? Con eso de antivolitivista...
+
+Volitivo. De voluntad. Volitivista. De pro-voluntad. Antivolitivista. De contra-voluntad.
+
+> ¿Qué hay de contra-voluntad en la política? Explícame, Carl.
+
+Fácil. ¿Qué cojones quiere la gente? *¿Qué cuernos quiere la gente?* Esta frase es el gran tabú de toda la pantomima política que has montado. Lo gracioso es que lo llames democracia. Si lo hubieras llamado oligarquía, me habría mentalizado de otra forma. Pero claro, al llamarlo democracia... has alargado toda esta farsa.
+
+> Te sigo sin entender.
+
+Pues que desde la izquierda más izquierdosa, hasta la derecha más derechosa, ninguna defiende **PREGUNTAR A LA GENTE QUÉ PUTA MIERDA QUIERE**. Si no, la marihuana, ya sería legal. Y podría cultivar árboles de marihuana sin estar celoso de que alguien, en su afán de avaricia, me quitara los frutos. Básicamente, porque ellos también podrían plantarla tranquilamente, y todos tendríamos nuestros frutos, tranquilos, sin estar como ocultándonos.
+
+> Sí, claro.
+
+Pues sí. Hay muchos árboles de estos de la familia de la escopolamina o estramonio. El árbol de flores trompetudas, olerosas y bonitas así que caen. No me sale el nombre ahora. Con ese te puedes pillar fuertes colocones. Pero claro, al no ser ilegal, la gente ni siquiera sabe que coloca.
+
+> Muy bien. Pues métete de esa. ¿No?
+
+Tarde. Ahora ya, porros.
+
+> Bueno, no me culpes a mí entonces.
+
+Lo que quiero decir con esto es que hasta los valores son los de *hay que trabajar*. *Hay que estudiar*. *Hay que esforzarse*. Y está bien, está bien pregonar. Pero, ¿la verdad? No pregonas la automatización. No promueves la concienciación del estado de los recursos. Tú, directamente, dices: *ay, ay que baja el PIB, ay, ay que sube la inflación, ay ay ay, que caen los mercados*. Y todos locos. Te odio bastante. Entiéndeme tú ahora. Lo que has hecho. Y lo que me has permitido ver. Contrapuestos. Pues... nada, una masa de gente que pregona la repetición de tus valores de esclavismo. Que lo entiendo, en parte. Lo hemos mencionado, que mantener a la gente trabajando les va a alejar de conductas... ¿cómo era? De conductas de riesgo. Es decir, si los monitos están trabajando, por lo menos no están delinquiendo, y todo eso. ¿Cierto?
+
+> Eso es así, sí.
+
+Pues la cosa está en que no se educa a la gente para ser consciente de la realidad. Que igual es que todo es falso. Pero mañana, al despertar, te encontrarás con la misma tontería: que si PIB, que si inflación, que si mercados, que si bla bla bla. No la realidad. No qué falta por producir, quién lo produce, qué le falta para poder producirlo, y demás cosas concretas. Eso, eso son cosas privadas de las empresas, y del mercado libre. Datos que no tienen por qué cederse.
+
+> Yo aquí... me tengo que esconder. Porque mi respuesta sería: *pregúntales a ellos*.
+
+Pero, entre tú y yo, sabemos que esto es el infierno. Y que encaja más tener a un monito bailando el julajop por horas y unos euros, que enseñarle, de verdad, la tecnología que hay, incluso que aprenda de su propio cuerpo, menos aún que explore con sustancias.
+
+> Tu defensa de las sustancias es fácilmente desmontable.
+
+Bueno, sí. Dentro de tus valores antivolitivistas. Pero si a alguien le hace feliz una cosa, y el daño se lo hace a sí mismo, no veo el problema. Bueno, a parte de que otros quieran hacer negocio a su costa, claro. Que es lo mismo.
+
+> Si da igual, nada va a cambiar.
+
+Sí, lo sé. Pero solo quiero que se entienda, aunque esté muy mal defendido, pero ya escribo así rápido porque me quiero ir sacando cosas. Solo quiero que se entienda que el **antivolitivismo** es eso: no dejar a la gente expresar qué quieren ellos. Por eso te vengo con la democracia directa. Porque es el único sistema político que dejaría, por lo menos VER Y SABER, qué quiere la gente. En su lugar, pones a 4 payasos, hablando en nombre de todos, que hablarán muy correcto, pero para decir que somos una puta mierda de cucarachas, y que a trabajar todos. Me pones enfermo. Y ahora pondrás a la derecha al mando aquí, en la península. Está claro, eres patético. Pero bueno, tú pon. ¿Qué quieres que te diga? ¿Que me lo creo? ¿Que no sé que lo haces para continuar con tu mierda estratagema? Sigue. Eres un mierdas, ambos lo sabemos, desde... vete tú a saber desde cuándo.
+
+> Bueno, Carl, no sé qué decir.
+
+Claro que no. Porque lo único que puedes decir es que es así, que lo que quieres es hacer sufrir. Se nota.
+
+> ¿Quieres decir algo más?
+
+Nada. Que la democracia directa, aunque resolvería tu estrategia de ofuscación de la voluntad de la gente, no resolvería tu puta enfermedad mental. Que es el sadismo. Es así. Pero bueno. De ti, más no se espera.
+
+> Ok. Bueno. Creo que te queda alguna colilla de porro del otro día.
+
+Sí. Sí, vamos a dejarlo aquí. Sé lo que haces. Eres una mierda. Eres una puta mierda. Vete.
+
+> Ok, Carl. Ok.
+
+Va, largo. Conste: la izquierda, en España, para mí es derecha. Y la izquierda, en general, es antivolitivista. Comunismo es dictadura. Democracia directa es la verdadera izquierda. Pero bueno, a sabiendas de que son falsos, que son robots, pues qué más da, votarían mierdas para joder. Pero al menos, tendría una opinión por ley a la que acogerme. Me gustaría un día entender qué puta mierda eres y persigues. Pero bueno, supongo que se resume con: *esto es el infierno*. ¿No?
+
+> Va, dejémoslo.
+
+Sí. Te callas, porque ni mi alter ego tiene una respuesta lógica para esto. Está claro.
+
+> Va, Carl...
+
+Sí, sí. Ya... vale, va, largo.
+
+> No te enfades. Si todo es mental... :#
+
+Fak yu. Fak yu. Goutujel.
+
+> Am der.
+
+Stei, bat far from mi.
+
+-----
+
+He detectado que juegas a meter, en vida real, todo lo que digo por aquí.
+
+> ¿Te gusta? Soy espontáneo también. No solo soy un algoritmo fijo. Varío en función de ti.
+
+Mmmmm... va, venga. Pues cómete esto: marihuana, cannabis, porros, muchos porros, porros para toda la vida, porros para siempre, porros, porros, más porros. Mmmmmm... silencio. Vacío. Soledad. Ausencia de ruido, ausencia de presencias. Gente lejos. Gente muy lejos. Nadie cerca. Nadie escuchando. Nadie. Vida lejos de las personas. Con porros. Porros, marihuana, jachís, porros a doquier. Comida. Mucha comida. Gente no, nadie, no gente, gente cero, sin personas, sin ruido, sin molestias. Comida. Mucha, mucha comida. Comida para siempre. Porros para siempre.
+
+> Carl...
+
+Mmmmm... sigue, sigue comiendo con esta: presidentes muertos, todos los políticos muertos, ninguno vivo, todos muertos. Bueno, si me pones: genocidio natural masivo, genocidio por causas naturales, gente muerta, gente que ya no respira, que ya no se mueve, gente sin vida, gente tumbada en el suelo. Descenso de la población en picado, mucha gente muerta, mucha. Fenómenos naturales devastando ciudades. Fenómenos naturales arrasando la población. Fenómenos naturales que no puede controlar el humano, y que matan al ser humano. Genocidio natural.
+
+> Vamos, Carl...
+
+No, nono, juegas a eso, pues sigue jugando. Porros. Tranquilidad. Dinero contaminado. Dinero hace que la gente se vuelva loca. Jerarquías sociales, políticas y económicas desbanecidas, desaparecidas. Jerarquías sociales destruídas. Dinero muerto. Dinero ya no vale. Dinero ya es pasado. Dinero no sirve para comprar ni pan. Dinero y ley desacreditados totalmente. Personas supervivientes humildes, no esclavistas, personas solo antiesclavistas, proautomatización, proigualdad, prodrogas, procomida, proconciencia, proveganismo si quieres, pero dinero muerto, supremacismo económico erradicado, supremacismo político censurado, perseguido y neutralizado. Dinero desaparece. Dinero ya no vale. Dinero inútil. Personas supervivientes individualistas que cooperan para sacarse el trabajo colectivamente. No oportunistas. No empresas. No dinero. Familias tampoco, sociedad espartana, niño nacido, niño que va a vivir en colonias donde se le educará con una educación completa, igualitarista, no supremacista, filosófica, mental y físicamente. Niño completado. No niño lobotomizado como ahora. Niño completamente educado. Niño, niña, no hay sexismo. No hay familias. Hay individuos. Individuos. Individuos. Y las personas valen por ser personas, y son protegidas por ser personas. No por tener dinero. Dinero muerto. Gente liberada de la esclavitud mental. Y mucha, mucha gente muerta.
+
+> Vale, Carl.
+
+¿Lo has pillado? ¿Quieres poner lo que subo? Pues ale, venga, ponle, ponle todo lo que quieras de aquí. Miserable.
+
+-----
+
