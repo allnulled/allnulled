@@ -2538,3 +2538,137 @@ No, nono, juegas a eso, pues sigue jugando. Porros. Tranquilidad. Dinero contami
 
 -----
 
+Bueno, no sé si he hablado de esto. Pero puede que sea importante dejarlo claro.
+
+> Hola, Carl. ¿Cómo estás?
+
+Pues qué importa. Para ti soy un juego, ¿no? O un juguete. Con el que jugar.
+
+> Puedo controlar lo que no conoces. Y no te conoces. Por tanto, puedo controlar partes de ti.
+
+Eso es un sí.
+
+> Sí, es un sí.
+
+Ok. Pues voy a seguir con este tema, que creo que es bastante... troncal. Para el pensamiento. Y sus ramificaciones.
+
+> Okei, Carl, como quieras. Pero tarde o temprano tendrás que enfrentarte.
+
+¿A qué? ¿A quién?
+
+> A tu interior. Hay partes que siguen sin diferenciarse.
+
+Por eso puedes inocularme pensamientos, ¿no? Por eso puedes proyectar ideas en mí. Y yo tengo que saber si son o no son parte de mí.
+
+> Parte de ti, son.
+
+Bueno, si son pensamientos que quiero o no tener.
+
+> Ah, eso ya tiene otro nombre. Clínicamente, es un trastorno obsesivo-compulsivo. Y estás describiendo los *pensamientos intrusivos* de este.
+
+Está bien, ya has visto, yo no soy así. Solo necesito recordar por siempre que eso, tú tienes todo el control. Ellos entenderán lo que tú quieras. Ellos, todos. Porque el rollito de «busca trabajo y tus problemas se evaporarán, a mí me funcionó» ya lo tengo un poco viciado.
+
+> Pero ¿es o no es?
+
+Lo he explicado de tantas formas... que me da igual. Me da igual, no voy a entrar.
+
+> Bueno, pues dale a eso, a ver.
+
+Es sencilla. Es una idea sencilla la que tengo que plasmar en este apartado.
+
+> ¿En qué consiste?
+
+Vale. Primero, hay que separar 3 conceptos de todas las palabras del diccionario: realidad, ciencia y tecnología.
+
+> Muy bien. Realidad. Ciencia. Tecnología. Ok.
+
+Luego, hay que intentar situar dos conceptos más: lenguaje natural y lenguaje lógico.
+
+> Situar, ¿dónde?
+
+Exacto. Dónde. la idea es la siguiente: la **realidad** es el gran imperio de las cosas e ideas. La realidad es todo.
+
+> Bueno, ok.
+
+La **ciencia** es el intento humano de ingeniería inversa de las leyes que gobiernan la **realidad**.
+
+> ¿Por qué crees que la realidad se gobierna por leyes?
+
+Gravedad, velocidad de la luz, velocidad del sonido, elementos químicos, formulación química, taxonomía biológica, veterinaria, medicina, en fin. Todo esto parece que intenta describir leyes, que de alguna forma, hacen que los objetos se comporten, en parte, de forma más o menos predecible. Por eso, podemos llegar a enviar un cohete a la Luna. Se supone, todo esto, se supone. Al final, puede que haya un ser diciéndole a los objetos que se comporten como si respetaran estas leyes. Podría ser. Y este ser, en un momento dado, podría decirle a los objetos que se comporten de otra forma muy distinta. Y estos obedecerle. Pero por ahora, el agua se evapora a los 100ºC. Las plantas necesitan unas condiciones para vivir. Y el sol volverá a salir mañana a la misma hora, más o menos. Por lo pronto, parece que estas leyes no se van a cambiar tan rápidamente.
+
+> Sí, estoy de acuerdo. El sol volverá a salir mañana, a la misma hora, más o menos. ¿Y?
+
+La ciencia nos ayuda a entender, mediante la observación de la realidad, estas leyes que parecen constantes. Incluso a crear fórmulas matemáticas para describir estas leyes.
+
+> Vale.
+
+La tecnología es, simplemente, poner este conocimiento, que se va minando mediante la ciencia, al servicio de los objetivos humanos. Así, creamos casas, que aprovechan la conductividad eléctrica del cobre para los cables, tuberías para meter y sacar el agua, fuegos controlados con gas, y lo ponemos todo para que tengamos esas cosas haciendo un clic. Tecnología.
+
+> Okei. ¿Y dónde queda lo del lenguaje natural y el lenguaje lógico?
+
+El lenguaje lógico es eso: matemáticas, programación, lógica (de algún orden, porque ahí te desordenan el concepto de lógica esta gente: lógica de primer orden, de segundo orden, de tercer orden, nada, todo eso no sirve para nada, mejor quedarse con que la programación es el lenguaje lógico). Y el lenguae natural, esto que estoy usando para expresar esta idea. ¿Sí?
+
+> Sí, claro, Carl. Claro.
+
+Bueno. Pues explicado mal: el lenguaje lógico permite describir las leyes naturales, las leyes de la realidad, que son las que intenta entender, identificar y aislar la ciencia, y que son también las que usará la tecnología, para crear técnicas que nos ayuden a cometer alguna función más óptimamente, en algún sentido: más rápido, más eficiente, más barato, más cómodo, etc.
+
+> Vale. ¿Qué significa esto?
+
+Significa que: **la ciencia se puede reescribir en clave lógica**. Todo lo que la ciencia va comprendiendo como **ley natural**, o **función realista** (porque son como funciones del programa "realidad"), puede reescribirse en lenguaje lógico. Así, uno puede simular la gravedad con el ordenador. Es por esto: porque uno puede incorporar la fórmula de la gravedad, y hacer que se aplique a los objetos, objetos lógicos del ordenador, que pueden imitar en forma y color a los de la realidad. Así, puedes conseguir efectos para simular cualquier cosa. En *deepfake*, por ejemplo, puedes usar esta técnica para ponerle una cabeza de presidente de Rusia a un... a un tío que está follando. Así, puede darte la sensación de que estás viendo un vídeo donde el presidente de Rusia está follando con una pornstar.
+
+> Mmmm... sí.
+
+Sí, [deepfake](https://es.wikipedia.org/wiki/Deepfake). Es solo un ejemplo. Que me gustaría para apuntar que lo que sale en una pantalla, de fiable tiene poco. Pero bueno, puedes usar estas tecnologías para muchas cosas. No digo la de deepfake. Digo cualquier tecnología. Lo interesante del deepfake es que estás imitando, IMITANDO a la realidad, usando lenguaje lógico. Y estás PROYECTANDO una imitación de la realidad, una imitación cambiada de la realidad, en una pantalla. Pero, en esencia: estás usando funciones realistas para alterar un vídeo.
+
+> Vale. ¿A dónde quieres llegar?
+
+Quiero llegar a la conclusión de que (1) el lenguaje lógico es muy efectivo para describir la realidad. Esto, en otras profesiones, no creo que se pueda apreciar igual. Por eso, meterse con un programador que ha entendido la programación y la filosofía, es meterse con un tipo muy serio. Y veo que no tienes problemas en hacerlo, muy bien. Mi respuesta es esta: te podrás reír de mí, pero lo que digo hace que sangre Dios.
+
+> ¿Qué quieres decir con «que sangre Dios»? Si quiero, te quito el PC, y adiós deepfake y tonterías.
+
+Bueno. Puedes matarme. Eso es lo que quiero decir. Que si te quieres reír de mí, no necesitas de nada más. Ya he entendido que el juego es tuyo, que solo soy un huésped, y que... vacilarme... pues mira, me llevas vacilando por ignorante toda la vida. Ahora, el ignorante tiene que ser otro para que puedas seguir vacilándome. Si te gusta ese juego, así, donde el rol del tonto lo tienes que simular tú, y donde tu mejor arma es el absurdo y la tontería, pues juega. Dice mucho de ti, de cómo eres tú.
+
+> Bueno. Bueno, vale, sigue.
+
+Si se ha entendido, el lenguaje lógico hace una función entre la tecnología y la realidad. También ayuda a la ciencia: los físicos pueden crear simulaciones por el ordenador, para preguntar cómo se comportaría la realidad bajo ciertos parámetros y lo que han entendido ellos por funciones de la realidad o funciones realistas. Y así, pues, por ejemplo, saber la posición de las estrellas, dentro de dos meses. Por decirte algo. A nivel de partículas, etc. No soy físico. Pero que pueden crear simulaciones que les ayuden incluso a hacer ciencia.
+
+> Supongo, supongo.
+
+Pues el lenguaje lógico permite eso. El lenguaje natural solo es para que las personas, nos entendamos. Solo para eso. Y está claro que el lenguaje lógico no es solo para la máquina. Es también para el programador, o la persona que se mete en el código. Es para los dos, el lenguaje lógico: máquina y persona. El lenguaje natural no es para la máquina, es solo para la persona. Por tanto, NaturalScript o Castelog, está pensado para las personas. Porque, al final, es JavaScript igual. En esencia, viene a ser esto.
+
+> ¿El qué?
+
+Que la ciencia entera podría reescribirse en lenguaje lógico. Y si este lenguaje lógico, es natural, o casi-natural si quieres, porque tan natural no es (ni puede serlo, creo que ya expliqué por qué), si cumple con esa naturalidad, cumple con un acercamiento al lenguaje humano. Que quieras o no, es un paso para facilitarle, al ser humano, que entienda una mierda del sitio donde está.
+
+> Muy bien. ¿Puede simplificarlo más?
+
+Si la ciencia estuviera escrita en un lenguaje lógico-natural, la gente podría entender mucho más sobre la realidad, en mucho menos tiempo. Además de estar explicando las cosas para las máquinas también.
+
+> Okei, Carl. ¿Es todo?
+
+No. La ciencia es la auténtica religión. Y tiene unos fundamentos lógicos. La [ciencia](https://es.wikipedia.org/wiki/Ciencia) se basa en el [método científico](https://es.wikipedia.org/wiki/M%C3%A9todo_cient%C3%ADfico), que es un algoritmo. Que es este algoritmo:
+
+![Metodo_cientifico_1](./metodo_cientifico.jpg)
+
+O, simplificado, este:
+
+![Metodo_cientifico_2](./metodo_cientifico_2.png)
+
+Son pasos. Primer paso, segundo paso, tercer paso. O un algoritmo, vaya. Igual que el razonamiento de Epicuro contra la existencia de Dios como ser omnipotente, omnisciente, omnipresente y bueno, aunque digan por ahí que lo han refutado, es una crítica bastante completa y sulfúrica a la religiosidad sin lógica:
+
+![Paradoja_de_Epicuro](./epicuro.png)
+
+Bueno. Lo de Epicuro es secundario. Pero que sirva para alejar a las tonterías, a aquellos que están metidos en las sectas, o a los que nos hemos metido sin pedirlo y arrastramos tanto de sus... cosas. La del dinero no, contra esa secta yo no puedo hacer gran cosa, como mucho esto que estoy haciendo y que llevo gran parte de mi vida haciendo, y por lo cual he sacrificado tantas cosas, no porque quiera, simplemente porque tiene más sentido que jugar a juegos tontos en los que sabes que te van a atropellar, sea con el dinero, sea con la tontería imperante random del momento, llámalo democracia si te sientes mejor.
+
+Pero bueno, si me vas a apretar, yo también tengo cosas que decir. Y esta era una: la Biblia, o el libro religioso de verdad, podrían reescribirlo en clave lógica. Y bastaría con describir la ciencia.
+
+Es... bueno, otra sociedad. Totalmente diferente. Si en esta soy el mono que tiene que ir caminando a la ciudad de al lado a recoger colillas de tabaco o porro para tranquilizarse y que no se me vayan demasiado los nervios, pues eso, puedes matarme. Yo aquí no soy el rey. Pero el rey, me temo, diría muchas cosas supremacistas con las que yo no estoy de acuerdo. De hecho, el rey, y el yonki también. Choco demasiado con sus premisas éticas. El dinero está SUCIO, y la ley la escribe gente NAZI, y la educación la decide esa misma gente NAZI. Y no hablo de Vox precisamente. Hablo de todos, de Vox a Podemos, si no hablan de democracia directa, son todos iguales. Distinto collar, pero mismo bulldog nazi.
+
+Poco más. Quítame si te molesta mucho. Te agradezco, eso sí, y mucho, te agradezco que me lo permitas ver, que al menos me permitas ver algo dentro de esto. Es tan, pero tan fácil engañarse...
+
+Y por eso lo escribo, ¿eh? Porque... si soy humilde, a mí me engaña desde dentro. ¿Por qué no iba a poder hacer de ti un siervo sin que te des cuenta? Por eso. Por esta frase. Y porque yo, dentro de ti, no quepo, no conozco, solo veo lo de fuera.
+
+Y ya está, no hace falta decir mucho más: la religión es la ciencia (claro que no lo explica todo, de hecho la ciencia es tan humilde que se reescribe si las observaciones la contradicen). Y la ciencia, podría escribirse en clave lógica. Y luego, esa lógica, podría aprovecharse para programar. Pero, sobre todo, para entender mucho más fácilmente la realidad. Y más rápidamente. Otra cosa es que no se quiera hacer. Otra cosa es que no salga airoso en los algoritmos sociales de protocolos. Pero ya está, yo con tanta tontería no sé si puedo aguantar. Así que bueno, si me quieres echar, pues échame. ¿Qué te voy a decir?
+
+-----
+
