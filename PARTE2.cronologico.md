@@ -2678,3 +2678,57 @@ Y ya está, no hace falta decir mucho más: la religión es la ciencia (claro qu
 
 -----
 
+Y dado que no sé qué va a pasar, voy a seguir matizando.
+
+> Hola, Carl. ¿Ya no me quieres? :(
+
+Bueno, a ver. Una cosa es la ciencia, que la podemos ascender a religión sin problemas lógicos, pero otra cosa es la comunidad científica.
+
+> Ah, qué cosa. ¿Y cuál es la diferencia?
+
+La ciencia, y sobre todo su método científico, aunque un poco cutremente explicado en el apartado anterior, son independientes de la comunidad. Es decir: uno puede poner en práctica el método científico para averiguar cosas en su vida. No hace falta más que entender el método científico:
+  1. **Observar.** Se mide el comportamiento de los objetos.
+  2. **Preguntar.** Se asume una duda para ver si se puede resolver.
+  3. **Responder.** Se intenta formular una respuesta que explique todas las observaciones, o las máximas posibles al menos. Aquí se construyen las teorías científicas.
+  4. **Comprobar**. Se juega con los objetos para volver a ver cómo se comportan. Se le pregunta a los objetos. Y se prevee una respuesta de estos. Y en la prueba, se espera esa respuesta para dar por buena esa teoría científica. Si la respuesta es satisfactoria, se confirma la teoría científica en cuestión. Si no, habría que replantearla, completarla, o desecharla. O asumirla como respuesta temporal incompleta.
+  5. **Formalizar**. Se escribe la teoría científica que explica los hechos observados en la realidad. O se memoriza, da lo mismo. El caso es que esa teoría toma una forma, y se acepta como teoría válida.
+
+Vale. Pues este ejercicio, que es el método científico, lo puede uno poner a funcionar en su vida.
+
+Yo, por ejemplo, envié más de 4.000 currículums en 1 solo día en la plataforma de empleo más concurrida de España: Infojobs, subempresa de Adevinta, con sede en Suecia. Para mí, una extensión del Ministerio de Trabajo. Con sede en Suecia. Y más de 10.000 currículums en 2 días. Por ahí tengo las imágenes, en este mismo repositorio. Por ejemplo, aunque creo que ya la he puesto, pero bueno:
+
+Por un lado vengo viendo esto desde que tengo 20 años, y tengo 32:
+
+![que_quieres](que-quieres.png)
+
+Pero por el otro, solo recibo negativas:
+
+![Se_entiende_o_no](Se_entiende_o_no.png)
+
+Hasta que finalmente, alguien, decide que soy persona non grata en la plataforma de empleo número 1 del país, con sede en Suecia, para que no se salpique a nadie, porque irritar, irrita y mucho:
+
+![a_quien_me_quejo_alba_maria](a-quien-me-quejo-alba-maria.png)
+
+Y me banean. Y así ya no cabe la duda de si podría o no haber aplicado a más ofertas de empleo: no, no podía. No tengo teléfono móvil, así que no puedo hacerme otra cuenta de Gmail, así que no puedo entrar en Infojobs. Lógicamente.
+
+Pero bueno, eso no quita de que puedan molestarme en la realidad, con la escusa de que no tengo dinero.
+
+Todo esto, para mí, es ciencia. Estoy haciendo ciencia en mi vida. Y la estoy usando para saber qué cojones quiere de mí la puta realidad de mierda. Y por lo visto, que busque empleo, por lo menos por las vías que más efecto tienen, no. Cuando vienen los polis y enfermeros, me dicen que busque empleo, tal. Sí. Sí, pero tú no has estudiado un campo que te suda la polla y te es completamente inhóspito y remoto, para encontrar empleo. Tú has estudiado lo que te ha dado la gana. Y te ha salido bien la jugada. Porque eres guapo, porque eres listo, porque eres disciplinado. Pues yo, he girado toda mi vida entorno a una cosa que me sudaba la polla, solo para no quedarme sin empleo. Y ahora me banean de la plataforma número 1 de empleo en España, con sede en Suecia. Que a ti te haya funcionado, pues vale, pues muy bien. Pero a mí, como puedes comprobar, no. Y este documento que estás leyendo, es mi currículum. Yo plasmo lo que soy en este documento. Y me sirve, principalmente, para decir que tú eres un oportunista, y te está saliendo bien el lío legal. Pero yo, si intento ser un oportunista, me chutan. Y me chutan. Y me chutan. Y me chutan. Gracias, presidente, y amigos del ministerio de trabajo, con Infojobs como plataforma de empleo número 1 en España, con sede en Suecia. Pero es que la paga te la dan, si eso, SI ESO, PORQUE TE LA PUEDEN RECHAZAR, y a mí me la rechazarán los muy cerdos porque sí, ~~porque yo he enviado cartas de amenaza de muerte al President honorable de Catalunya, al igual que a los ministros de educación y de universidades, entre otros. Cartas oficiales. De amenaza de muerte. Porque sí, porque me puedes vacilar, pero si me estas ahogando, perdóname, pero cojo y voy a por ti. Ahora, tres pasos adelante, me doy cuenta de que haz lo que te salga del huevo, esclavista estafador torturador de mierda empoderado. La vida en tu territorio no vale una puta mierda, es solo estar en un estado de suspense continuado.~~ Bueno, eso, que a mí, la paga esa, no me la van a dar. Y si me tengo que esperar 2 meses, para que me la nieguen, pues bueno, igual me paso por tus lugares y te remato. Porque muerto ya estás, eres un puto cadáver que finge tener algo dentro. Pero no creo. Es así. Tú me matas, yo te puedo matar también, ojo. Puestos en la selva, por lo menos no te pongas la corona.
+
+Bueno, pues esto lo decía porque uno puede fiarse de los papers científicos que hay por ahí. Los [DOI o Identificador de Objeto Digital](https://es.wikipedia.org/wiki/Identificador_de_objeto_digital) son el formato que toman los *papers científicos*. Péipers científicos. Nada, una forma de llamarlos. Se suelen escribir en inglés porque son para toda la comunidad científica del mundo. Aunque no es necesario, y no siempre es así. Pero ellos contienen lo que la comunidad científica ha averiguado sobre todas estas cosas: biología, medicina, neurología, psiquitaría, farmacología, química, informática... todo. Hasta hay papers científicos de filosofía.
+
+> ¿Qué quieres decir con esto, Carl?
+
+Solo que son papeles. Pueden ser fiables, y creo que cabe confiar bastante en ellos. Pero pueden tener errores, tanto de la persona, como del experimento. Es decir: una cosa es la ciencia, y otra cosa es lo que la comunidad científica ha dejado escrito. No suele ser una gran lección el decir: no te fíes de la ciencia. Pero cabe recalcar que solo son eso, [PDFs](https://es.wikipedia.org/wiki/PDF). PDFs que dicen cosas. Escritos, típicamente, con [LaTeX](https://es.wikipedia.org/wiki/LaTeX), que permite notación matemática avanzada, y asegura unos estilos más o menos estándar. Pero que tú puedes escribir un documento con esos mismos estilos... pues aquí, por ejemplo: [https://www.hostmath.com/](https://www.hostmath.com/). Y si ese link no va, solo tienes que buscar: *latex online editor math*. Y algo saldrá.
+
+> ¿Algo más?
+
+Bueno, que para encontrar estos documentos, viene muy bien [Google Scholar](https://scholar.google.com/). Desde aquí, puedes encontrar documentos DOI que pueden ser públicos o privados. Si son privados, tienes que pagar para verlo completo. Ahí es donde usas [Sci-hub](https://es.wikipedia.org/wiki/Sci-Hub), que puede cambiar de página web por lo cual tendrás que buscarlo desde Google. Pero desde ahí, pones el DOI (que es un texto alfanumérico) y Sci-hub probablemente te dé el acceso al documento, sin pagar.
+
+> Muchas gracias, Carl.
+
+Que igual te aburres porque todo es mentira. ¿A mí qué me explicas, colega? A mí qué me cuentas. Yo lo digo. Porque si lo que quieres es jugar a engañar, pues bueno, esta es mi respuesta. Ya te lo he explicado.
+
+-----
+
+
