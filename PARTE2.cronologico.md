@@ -25,7 +25,7 @@
  1. [Cercos, caminos y pepitas de oro](#cercos,-caminos-y-pepitas-de-oro)
  1. [Antivolitivismo como método de cerco](#antivolitivismo-como-método-de-cerco)
  1. [Si tú eres Dios, hazme este improbabilísimo](#si-tú-eres-dios,-hazme-este-improbabilísimo)
- 1. [Ciencia: la materia cercando la mente, y viceversa](#ciencia:-la-materia-cercando-la-mente,-y-viceversa)
+ 1. [Ciencia: la materia cercando la mente, y viceversa](#ciencia-la-materia-cercando-la-mente,-y-viceversa)
  1. [Más ciencia](#más-ciencia)
  1. [Aclaraciones varias (1)](#aclaraciones-varias-(1))
 
