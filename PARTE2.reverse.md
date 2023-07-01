@@ -1,6 +1,32 @@
 
 -----
 
+#### Índice
+
+ 1. [Violencia estructural](#violencia-estructural)
+ 1. [Porros, vida y escapismo](#porros,-vida-y-escapismo)
+ 1. [Su definición de oro, mi definición de oro](#su-definición-de-oro,-mi-definición-de-oro)
+ 1. [El dinerismo invasivo](#el-dinerismo-invasivo)
+ 1. [Los datos van antes que el dinero](#los-datos-van-antes-que-el-dinero)
+ 1. [Lógica va antes que naturaleza. Lingüística y no lingüísticamente.](#lógica-va-antes-que-naturaleza.-lingüística-y-no-lingüísticamente.)
+ 1. [Agradecimiento, deuda. Compensación.](#agradecimiento,-deuda.-compensación.)
+ 1. [Aburrimiento y conductas de riesgo](#aburrimiento-y-conductas-de-riesgo)
+ 1. [Ley, obligación y necesidad](#ley,-obligación-y-necesidad)
+ 1. [Los cercos del comemierda](#los-cercos-del-comemierda)
+ 1. [Las pirámides, los cercos, y todo eso](#las-pirámides,-los-cercos,-y-todo-eso)
+ 1. [Protocolos y otros cercos](#protocolos-y-otros-cercos)
+ 1. [Las pirámides flotantes](#las-pirámides-flotantes)
+ 1. [Cercos, caminos y pepitas de oro](#cercos,-caminos-y-pepitas-de-oro)
+ 1. [Antivolitivismo como método de cerco](#antivolitivismo-como-método-de-cerco)
+ 1. [Si tú eres Dios, hazme este improbabilísimo](#si-tú-eres-dios,-hazme-este-improbabilísimo)
+ 1. [Ciencia: la materia cercando la mente, y viceversa](#ciencia:-la-materia-cercando-la-mente,-y-viceversa)
+ 1. [Más ciencia](#más-ciencia)
+ 1. [Aclaraciones varias (1)](#aclaraciones-varias-(1))
+
+-----
+
+##### Violencia estructural
+
 > ¿Estás bien?
 
 Estoy a 0€.
@@ -68,6 +94,8 @@ Sabes que me despierta la furia pensar que hay gente preocupada de multiplicar s
 Ts. Te follen, rata inmunda y miserable.
 
 -----
+
+##### Porros, vida y escapismo
 
 > Además, Carl. Tu familia no es rica, pero está bien asentada en la granja. Y ellos tampoco te ayudan. De hecho, por ellos, bien podrías estar debajo de un puente. No entiendo por qué miras tan lejos.
 
@@ -146,6 +174,8 @@ No buclees. Va, dejémoslo aquí. [Solo quería decir *hello*](https://www.youtu
 Jej. Bueno, va.
 
 -----
+
+##### Su definición de oro, mi definición de oro
 
 Una cosa.
 
@@ -246,6 +276,8 @@ Y vendré. Vendré tanto cuanto me parezca.
 Ok. Ahora gou.
 
 -----
+
+##### El dinerismo invasivo
 
 > ¿De verdad lo crees?
 
@@ -608,6 +640,8 @@ Basta, vale, no sigas. Así está ok.
 
 -----
 
+##### Los datos van antes que el dinero
+
 > Sigo intrigado. ¿Cómo pagaríamos sin dinero?
 
 No tengo ganas de intentar explicártelo.
@@ -834,6 +868,8 @@ Va, sí. Lets gou.
 
 -----
 
+##### Lógica va antes que naturaleza. Lingüística y no lingüísticamente.
+
 ...
 
 > No, Carl. Vale más que te intentes explicar con JavaScript. Tu falta de lógica y tus contradicciones abruman.
@@ -991,6 +1027,8 @@ Pues ya está. YA está, con esa respuesta se aclara todo. No tengo por qué hac
 Que me dejes.
 
 -----
+
+##### Agradecimiento, deuda. Compensación.
 
 Estoy colapsado. No soy capaz de programar.
 
@@ -1300,6 +1338,8 @@ Jej. Va, gou, fuera ya.
 
 -----
 
+##### Aburrimiento y conductas de riesgo
+
 > ¿Qué tal?
 
 Keta. Otro anestésico. De caballos, dicen.
@@ -1557,6 +1597,8 @@ Ya. Siempre lo haces.
 Ok, gou.
 
 -----
+
+##### Ley, obligación y necesidad
 
 Me voy dejando cosas por el camino...
 
@@ -1862,6 +1904,8 @@ Ok. Parece que he dado en algún hueso.
 
 -----
 
+##### Los cercos del comemierda
+
 Hola.
 
 > No estoy. Considérame fuera de servicio.
@@ -1937,6 +1981,8 @@ Nada más. ¿Querías hacer algo para matar el rato? Pues yo qué sé, haz un co
 Bah.
 
 -----
+
+##### Las pirámides, los cercos, y todo eso
 
 Bueno, a ver. Yo quería hablar de las pirámides. Aunque lo haga mal, voy a hablar de las pirámides. Y si me dejo cosas, pues me las dejo. Estoy escribiendo para el Carlos del futuro. Que seguramente no se le haya olvidado nada de esto. Pero por si acaso.
 
@@ -2070,6 +2116,8 @@ Es así. Fractalidad, si quieres. Me da igual. Me enfado. Me enfada hablar de es
 
 -----
 
+##### Protocolos y otros cercos
+
 > Prefiero no interferir cuando estás así.
 
 Prefieres no hacerte notar. Interferir, ya interfieres.
@@ -2132,6 +2180,8 @@ Anda.
 
 -----
 
+##### Las pirámides flotantes
+
 > ¿Estás más calmado?
 
 El insomnio. Y sus consecuencias.
@@ -2178,7 +2228,7 @@ Sí, tienes que intentarlo. Pero solo hasta darte cuenta de que no se deja atrap
 
 > Claro, yo no quiero ser el que te señale el camino. Deberías encontrarlo tú. Y creo que vas bien, aunque últimamente estés comiendo mucho, creo que puede irte bien. Lo quemas, aumentas tu aguante, y tu descanso es más valioso y provechoso.
 
-Sí, sí... me siento bien, físicamente. Y eso que solo hago piernas, nada del tronco, no hago pesas ni palos. Tengo miedo a entrenar las manos. Porque... [all within my hands](#), creo que es un mal mensaje para mi mente ahora, decirle que haciendo fuerza se puede calmar. Sigo entrenando al escapista. La fuerza no, el escape sí.
+Sí, sí... me siento bien, físicamente. Y eso que solo hago piernas, nada del tronco, no hago pesas ni palos. Tengo miedo a entrenar las manos. Porque... [all within my hands](https://www.youtube.com/watch?v=3i5pkJnY61M), creo que es un mal mensaje para mi mente ahora, decirle que haciendo fuerza se puede calmar. Sigo entrenando al escapista. La fuerza no, el escape sí.
 
 > Haces bien, es una lectura que no todos sabrían darte. Pero si para ti está así, igual es que está así en ti. No sentirse atrapado por no tener medio de transporte. Ya sabes qué ocurre cuando lo tenemos: hacemos un uso pésimo de él. Sigue haciendo, creo que te hace bien, y además, si recuerdas que tras el esfuerzo vienen energías bajas, podrás parar las pataletas anímicas típicas de la escasez de energía. Vas bien. Si le metes algún ayuno, solo para recordar que tú tienes el control del cuerpo, que no solo tienes el escape, pues mejor. Pero vaya, con seguir, ya haces algo bien.
 
@@ -2314,6 +2364,8 @@ Okei.
 
 -----
 
+##### Cercos, caminos y pepitas de oro
+
 A veces no llego. Pero supongo que te pasas toda la vida reprochándome que yo contigo tampoco empatizo.
 
 > Yo sí te entiendo.
@@ -2430,6 +2482,8 @@ Ok.
 
 -----
 
+##### Antivolitivismo como método de cerco
+
 Bueno, saquemos este rápido, ¿no?
 
 > No sé.
@@ -2518,6 +2572,8 @@ Stei, bat far from mi.
 
 -----
 
+##### Si tú eres Dios, hazme este improbabilísimo
+
 He detectado que juegas a meter, en vida real, todo lo que digo por aquí.
 
 > ¿Te gusta? Soy espontáneo también. No solo soy un algoritmo fijo. Varío en función de ti.
@@ -2537,6 +2593,8 @@ No, nono, juegas a eso, pues sigue jugando. Porros. Tranquilidad. Dinero contami
 ¿Lo has pillado? ¿Quieres poner lo que subo? Pues ale, venga, ponle, ponle todo lo que quieras de aquí. Miserable.
 
 -----
+
+##### Ciencia: la materia cercando la mente, y viceversa
 
 Bueno, no sé si he hablado de esto. Pero puede que sea importante dejarlo claro.
 
@@ -2672,6 +2730,8 @@ Y ya está, no hace falta decir mucho más: la religión es la ciencia (claro qu
 
 -----
 
+##### Más ciencia
+
 Y dado que no sé qué va a pasar, voy a seguir matizando.
 
 > Hola, Carl. ¿Ya no me quieres? :(
@@ -2725,4 +2785,49 @@ Que igual te aburres porque todo es mentira. ¿A mí qué me explicas, colega? A
 
 -----
 
+##### Aclaraciones varias (1)
 
+> Tienes ganas de hablar, ¿eh?
+
+Pienso que se puede estar acabando el tiempo, simplemente.
+
+> ¿Y uqé te falta por decir?
+
+Bueno. En 2 días, 10.000 currículums. Y destaco que 4.000 en 1 día. ¿Por qué no 6.000 en 1 día? Es una resta.
+
+>> Pues sí. Pero es que fueron unos 4.000 en cosa de 2-3 horas. Y me quedé con el dato. Pero también tengo el dato de 10.000 en dos días. Igual fueron 3. Simplemente, que pasé [este script](https://github.com/allnulled/infojobs-envio-automatico-de-cv/blob/main/script-greasemonkey.js), y funciona bien pero al cabo de un rato te salta el [captcha](https://es.wikipedia.org/wiki/Captcha) que tienen en su web, y tienes que estar encima, supervisando. Es de uso libre. No creo que sea ni el primero, ni el único. Pero claro, un tupido velo corramos. Como tantas otras.
+
+> Okei, Carl. ¿Algo más?
+
+Sí. La tontería de *tu creus cano u antenan?* Es una parida. Pero me sirve como [mnemotécnico](https://es.wikipedia.org/wiki/Regla_mnemot%C3%A9cnica) para acordarme que lo del dinero es una estafa, solo es un vector de ataque para arruinarme la existencia. Me la arruinan. Díselo, Pepito, díselo tú:
+
+[![Que_clavo](https://raw.githubusercontent.com/allnulled/allnulled/main/Pepe_Argento_Las_odio.png)](https://raw.githubusercontent.com/allnulled/allnulled/main/Pepe_Argento_Las_odio.mp4)
+
+
+Pero no es nada más, una tontería para acordarme, que me están jodiendo con la escusa de oro. Que claro que entienden que si no tienes un puto euro nunca, te metas en problemas. Claro que se entiende. Igual te meterías con dinero también, es otro tema. Mi caso: me buscan la puta ruina. Y usan el dinero como arma. Pero ya está: dinero hay, los que mueven mueven, y las leyes pueden organizar robos mucho mayores, de hecho, la forma de crear leyes que hay ahora ya está basada en un robo organizado mucho mayor, el del poder legislativo. Y se apoya del educativo para no enseñarles ni siquiera qué es democracia directa, y darlos por estudiados. Es un timo. Pero está bien, el tatuaje da las claves: dinero, problema. Los problemas, en democracia directa, son el precursor natural de la ley. Es decir: no se hace una ley, si no hay un problema que resolver. Pues dinero no es la soluciónfinal: es que cambien la ley. Pero tenemos que estar como trampeando con el dinero para no tropezar en el problema. Pero es la ley. Por mucho que diga en el videoclip [ese "noooo" del segundo 2:14](https://www.youtube.com/watch?v=mDrRTCwFs-U#t=134). Pues para mí que es que "siiií". Pero vamos, que la canción está guapa. Y habla del 0€. Y derivados.
+
+> Muy bien. Muy bien, ¿más?
+
+Mmmmm... yo no voy a matar a nadie. Escribo muchas cosas. Pero yo no voy a matar a nadie. Solo eso, lo paso muy mal cuando me ponen nervioso, o cuando me dicen que me vaya de aquí. Ya está.
+
+> ¿Hay más?
+
+Sí. Las teorías de los extraterrestres, que usan la delincuencia para acorralar, todo eso, pues no sé, igual sí, yo no los he visto, y de hecho doy por supuesto que de haberlos, podrían adoptar formas humanas fácilmente. Que sean las élites las que usen la cárcel como forma de apaciguar o invisibilizar la pobreza, pues bueno, sí, típico también. Que quieren que vaya a la cárcel, eso seguro. Pero yo no quiero ir. Y no quiero cometer un delito que me lleve directo. No por no ir: porque no quiero sentirme mal. Ya ni siquiera es por el daño que vaya a hacer, porque la verdad, como animales, y a mí no me duele ese daño intermedio. Sí me puede salir mal, pero ya está. Es porque de hacer ese daño, me voy a sentir mal yo. Porque pensar que muchos se lo merecen, pues sí. Luego caigo en que si me están engañando a mí, por qué no  a ellos. Y luego ellos, a su vez, a mí. Es decir... **¿que son tontos?** O lo son, o se lo hacen. **¿Que son malos?** Entre la maldad y la ignorancia, tampoco hay tanta diferencia. **¿Que van a hacer daño?** Puede ser. Las configuraciones mentales hacen eso, crean deseos autodestructivos incluso, yo fumo porros, o tabaco, o colillas, por muy asquerosas que estén a veces. Pueden crear deseos destructivos, está claro. Mira mi apartado del otro día, del genocidio. Los crean. Ser el artefactor principal igual es más serio. Pero crearlos, los crean, no hay duda. **¿Que hacen daño?** Lo pretendan o no, lo hacen, a la vista está. **¿Que son culpables?** Por lo que parece, solo son ignorantes.
+
+> ¿Más?
+
+No sé. No es que sea antipoli. Empiezo el escrito así, como que parece que sea antipoli. No soy antipoli. Ojalá tuviera yo esa capacidad de negociación, esa proyección de control, etcétera. Es decir, prefiero ser un gato, que no tiene que estar en esas, que no se entera de que si élites y no sé qué. Si hay comida, come. Si no hay comida, la busca. Si se siente en extremo, maulla. Simple. No tantas tonterías. Y antes que eso, prefiero esto, ser consciente, tener orden suficiente para ver que lo que impera es un desorden pretendidamente malicioso contra la gente, pero puede haber otro. Sobre todo, la gente pobre. Igual que no envidio tener el chip de «me levanto y voy a trabajar para apaciguar conflictos sociales». Me gusta mucho más imaginarme que sí hay una forma de organizarse que representa y que protege, a las personas. Aunque el darse cuenta de esto implique ir contra sus jefes. Pero no todo es malo, les educan de más, entiendo. Luego los usan para proteger su imperio. Pero está bien, no estoy contra la poli. Soy espartano, por mí, todos seríamos poli. Por educación obligatoria.
+
+> ¿Y más?
+
+Mmmm... no soy tampoco creyente especial de nada. Me identifico con la ciencia, porque hay que poner del revés las creencias si los hechos lo exigen. Pero no es tan importante. Simplemente, escribo esto porque si tuviera que dejar una herencia, sería esto. Los programas, psé. Pero ya no estoy motivado ni para programar. De hecho, empiezo a reconocer que yo fui programado con lenguaje natural. Y tengo palabras haciendo de instrucción fuerte. Pero no las identifico. El misterio de eso es que el intérprete que se ha dejado programar con ese lenguaje natural no funciona tan... simple. Es complicado, no solo dar forma al lenguae natural, en lo que me impliqué en este proyecto, que es de los últimos que hice: [core-nlp-wrapper](https://github.com/allnulled/core-nlp-wrapper). No solo es eso, también hay una base de datos, de recuerdos. De significados. De imágenes, sonidos, ideas, sentimientos. El intérprete del lenguaje natural, es decir, algo que hay dentro de mí, es complejo. No es tan fácil como JavaScript, o Castelog: los cuales no son para nada fáciles ya. No, no... es más complicado que eso. Y no tengo ni idea. La mente caza cosas, conceptos. Los trenza, de alguna forma. Los infla, con otros contenidos de la memoria. Y luego crea una respuesta. O algo así. Pues solo lo de antes de crear la respuesta, ya es muy difícil. Y antes de crear la respuesta, creo que hace una comparación. Entre lo que recibe. Y lo que busca. Y en base a eso, genera una respuesta. Es muy complejo... yo no sé cómo está hecho Chat-GPT, pero no sé, no lo sé... somos diferentes. Ni que sea por el hecho de que la máquina se ahorra los deseos. No lo sé, ni lo voy a explorar, la verdad. Este lugar *no vale verga si no hay hierba*. Y solo sería un parche, la verdad es que no vale verga.
+
+> Bueno. ¿Algo más?
+
+No. No, ya está, solo eso.
+
+> Ok, Carl. Ok.
+
+Ok.
+
+-----
