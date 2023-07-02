@@ -1,9 +1,6 @@
 ![Portada](./Imperio-1.png)
 
 
-[(Cronológicamente)](./PARTE1.cronologico.md) | [(Descarga)](./PARTE1.web.pdf) | [(Actualmente)](https://github.com/allnulled/democracia-2.0/commits/main)
-
-
 
 
 -----
