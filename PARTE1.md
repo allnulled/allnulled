@@ -8,6 +8,8 @@
 
 -----
 
+### La ética dietética
+
 Se comentó... sobre el vegetarianismo.
 
 > Sí. Y se te dejó escoger. Carne, o no carne.
@@ -167,6 +169,8 @@ Fak yu.
 
 -----
 
+### Actitud y castigo
+
 Bueno, ¿y qué te he hecho para que me mandes a meditar?
 
 > ...
@@ -212,6 +216,8 @@ Bueno, es igual. Voy a comer.
 > Eso, ve, ve.
 
 -----
+
+### Medicina y trampa
 
 > Doj colillah guapah. ¿Eh? ¿Eh?
 
@@ -757,6 +763,8 @@ Ah. Ah. Bueno, sí. Pareces el listo de aquí, sí.
 
 -----
 
+### Terminando deberes y forjando llaves
+
 Estoy acercándome, por fin. Tengo la REST automática (la base), el sistema de AUTH también. Debería haber más frameworks para hacer eso, en NPM y Github, con JavaScript. Pero parece que Microsoft no ha querido promocionarlos en sus dos plataformas del imperio de JavaScript. ¿Qué pasa ahí?
 
 > Hay frameworks. Que te hacen REST y AUTH.
@@ -947,6 +955,7 @@ Sí... sí.
 
 -----
 
+### Imperios, invisibilidad y diálogos con las tinieblas
 
 ¿Por qué quieres que medite? Dime eso. Dime, por qué.
 
@@ -1090,7 +1099,7 @@ Cierto. Te pone mi rabia.
 
 ¿Hacia qué? ¿Hacia un destructor?
 
-> Si supieras que son robots, el efecto no sería el mismo. Considéralo así. Si supieras que están programados para joderte, y joderte, y joderte, y seguir haciéndose los tontos, no sería lo mismo. Pero ¡LO SABES! ¡SBES QUE SON ROBOTS! El problema es que no te lo crees todavía.
+> Si supieras que son robots, el efecto no sería el mismo. Considéralo así. Si supieras que están programados para joderte, y joderte, y joderte, y seguir haciéndose los tontos, no sería lo mismo. Pero ¡LO SABES! ¡SABES QUE SON ROBOTS! El problema es que no te lo crees todavía.
 
 Pues deberíamos llegar a un acuerdo. No quiero ir a la cárcel.
 
@@ -1099,6 +1108,8 @@ Pues deberíamos llegar a un acuerdo. No quiero ir a la cárcel.
 ...
 
 -----
+
+### Ajo para todos, trifurcación para uno
 
 Bueno, samsara. Dije dharma. No, samsara.
 
@@ -1147,6 +1158,8 @@ Bueno. Vale. Venga. Hasta luego.
 Cómeme la polla, quiénseas.
 
 -----
+
+### Emociones y samsara
 
 ¿Por qué la hipótesis de los extraterrestres? ¿Por qué siempre tengo una teoría medioescondida que explica que *lo que hacen las élites humanas es digno de una sociedad extraterrestre para tener a estos mermados trabajando a ciegas y en extorsión perpetua blablabla*?
 
@@ -1209,6 +1222,8 @@ Jmmmmm. Porque tengo hambre.
 > Gou, gou. Moniato, gou.
 
 -----
+
+### Toreo como rutina
 
 > ¿Por qué vienes? ¿No ves que ahora no?
 
@@ -1320,6 +1335,8 @@ Lo sabes. Venga fuera, rata pútrida.
 
 -----
 
+### Creencias truncadas
+
 > ¿No te gustan?
 
 Quiero porros, nen. No antidepresivos. Porros. PO-RROS.
@@ -1391,6 +1408,8 @@ Ya. Bueno. Déjame.
 > No es tan fácil...
 
 -----
+
+### Empatía geológica
 
 > ¿Podrías?
 
@@ -1546,6 +1565,8 @@ Sí, quiero, quiero.
 
 
 -----
+
+### Algoritmo precede persona
 
 > 4:51am de 180 días (o medio ciclo solar) hasta tu nuevo récord de años en el rol. ¿Qué tal?
 
@@ -1767,6 +1788,8 @@ La piedra es más lista que yo. Estoy hablando con ella.
 
 -----
 
+### Granja del infierno
+
 > ¿Qué te pasa? Estás agitado.
 
 Intento hacer retrospectiva. Y luego pienso. *¿Qué ha pasado? ¿Qué pasa? ¿Qué puede pasar?*
@@ -1985,6 +2008,8 @@ Okei. Ok. Vale. Venga.
 
 -----
 
+### Legado entorno lógico
+
 > Dime. Si pudieras hablar con tu renacer, ¿qué le transferirías de esta vida a la suya? Que no puedes. Pero si pudieras.
 
 Qué importa.
@@ -2057,7 +2082,7 @@ Bueno. También sé que no sirve de nada, no serviría de nada. Excepto para... 
 
 Qué quieres. Dime, qué quieres.
 
-> Ya lo sabes. Quiero hacerte *»creeeeeeeeeck»*. Y luego que tú hagas *«buuuuuuuum»*.
+> Ya lo sabes. Quiero hacerte *«creeeeeeeeeck»*. Y luego que tú hagas *«buuuuuuuum»*.
 
 ¿Por qué no paras?
 
@@ -2158,6 +2183,8 @@ Tú sabes, me conozco la flora. Me falta alguna. Pero luego ya es a nivel quími
 Meh. Mmmmmmmmmeh. Gou.
 
 -----
+
+### Surreal realidad
 
 > Muy bien. Congratulaciones. Ya tienes un auth cochambrero para [*"tu democracia"*](https://github.com/allnulled/democracia-2.0/commit/57d1596e762ee6ab106572d9b3fb833518f4b303). Pero suficiente para una prueba de concepto.
 
@@ -2305,6 +2332,8 @@ Vas de listo.
 
 -----
 
+### Mapas, cuadros y cristales inoculados
+
 > Bueno, claro. Explica lo del cuadro.
 
 A ver. Esto da igual, no pasa nada. Fue impactante, porque me pilló así. Pero ya está.
@@ -2419,6 +2448,8 @@ Dejo de hablar por ti.
 
 -----
 
+### Grandes piedras
+
 > Emmm... ¿por qué esa imagen del Empire States Building? ¿Qué te ha hecho a ti el Empire States Building? Bueno. O las ratas. ¿Qué pasa contigo, tío?
 
 Bueno, sí. Hay muchas cosas. No, yo no creo que haya nadie ahora mismo allí. Seguramente, está vacío. O incluso, no está.
@@ -2532,6 +2563,8 @@ Ts. ... bueno, ya. Sí. ¿Qué hago?
 Jejeje. Ok. Ok.
 
 -----
+
+### Más teorías cosmovisiónicas
 
 > Explícame esto. Explícame por qué vas tan lento programando. Por qué no puedes programar.
 
@@ -2679,6 +2712,8 @@ Cómo odio esas palabras. Cómo las odio...
 
 -----
 
+### Juego perdido
+
 Quieres que mate, ¿verdad? Que me vuelva loco. Que no sepa qué hacer.
 
 > No quieres hablar con las personas.
@@ -2731,9 +2766,13 @@ Déjame en paz. Miserable.
 
 -----
 
+### Sobredosis de delirio
+
 ¿Dije 12km.? Pues serán 24km.
 
 -----
+
+### Delirios con realidad
 
 Ni para tabaco. Soy el único pringado del municipio que tiene que recorrer a pata 12km. para hacer la compra (1) y para poder fumar tabaco (2), recogiendo colillas, claro.
 
@@ -2751,6 +2790,8 @@ No me estoy quejando, si te fijas. Te estoy describiendo.
 
 -----
 
+### Merma disfrazada
+
 Unos 1.022'5 millones de segundos aproximadamente. No se concibe.
 
 Quiero decir... no soy Dios. Ni veo la vía para acercarme a parecerme.
@@ -2767,11 +2808,15 @@ Soy un pringao. Pero es que... no puedo ser nada más que eso. Un pringao, una p
 
 -----
 
+### Días de vida
+
 Llevo **11.833** días vivo. **283.992** horas seguidas en este juego. Nunca lo había calculado y pensado... (!!!!!!) (nunca...) (!!!!!!)
 
 *"Respeta la altura"* se repite en mí...
 
 -----
+
+### La auténtica cárcel
 
 Mmmmmmmmmmm....
 
@@ -2880,6 +2925,8 @@ Bueno. Suficiente.
 
 -----
 
+### Rata encarcelada
+
 > ¿Todavía no petas, [*rat in a cage*](https://www.youtube.com/watch?v=8-r-V0uK4u0)?
 
 Lo quieres, ¿no?
@@ -2908,6 +2955,8 @@ Ya.
 
 -----
 
+### Territorio de ruina existencial
+
 > ¿Nada qué decir?
 
 No. Bueno. Bueno, esto:
@@ -2917,6 +2966,8 @@ No. Bueno. Bueno, esto:
 > Jeje. Supongo, supongo.
 
 -----
+
+### Los check points
 
 > ¿De verdad crees que eres un genio?
 
@@ -2972,6 +3023,8 @@ Fakingasjol...
 
 -----
 
+### Vergüenza
+
 Eres un gilipollas.
 
 > ¿Por?
@@ -3023,6 +3076,8 @@ Sí, ¿verdad? Ya entiendo que me mates, ya. ¿Quién te puede perdonar si no le
 Piérdete.
 
 -----
+
+### Explosión o implosión
 
 > En realidad, ¿qué más da?
 
@@ -3144,6 +3199,8 @@ Largo, fus, fuuuuuus fus. ¡FUS!
 
 -----
 
+### Vegetales y falsa economía
+
 Y otra cosa que añadir es que el tabaco es muy peligroso también, te pone muy nervioso. Yo he pasado muchos síndromes de abstinencia. Y no he aprendido todavía. Pero al final, la lección, será: «líbrame del mal, que no me quiere dar para calmarme». No lo entienden, parece. Pero creo que sí lo entienden, lo que pasa que son robots. Se creen que lo hago para darles el palo o algo, que yo no te quiero robar, puto retras... es una máquina. No sirve hablar, sirve decirle exactamente lo que funciona para que le haga el GOTO a la instrucción. Y yo no tengo su código fuente, no tengo las palabras mágicas. Tampoco me quieren dar trabajo, ni ayuda de ningún tipo.
 
 Me están acorralando. Todo, porque les estoy desmantelando el juego, cada vez estoy más cerca. No quieren que llegue a ese punto, porque el grado de delirio y psicosis sería tal que sí me atrevería con los políticos, cara a cara. Ninguna droga, ni ningún síndrome de abstinencia pueden llegar a ese grado de drogamiento: **teorízar y materializar el nuevo mundo mientras te mantienen recogiendo colillas para poder ingresar algo de nicotina**, ya no digo THC que es la sustancia encarecida por magnitudes de a 1.000. No, digo nicotina, que está encarecida, pero por magnitudes de 100-200. Dejo la tabla. Todas son vegetales igual, con sus características, pero vegetales:
@@ -3186,6 +3243,8 @@ Todo se vuelve absurdo en un momento. Todo. Por no tener la sustancia, ni ofrece
 Claro, para nazis ellos, nazi yo. Ellos son más, pero yo tengo menos que perder.
 
 -----
+
+### Retrospectiva rápida
 
 Está bien, está bien. Cuesta de asimilar. Pero es así como sucede.
 
@@ -3233,6 +3292,8 @@ Pírate, escoria.
 
 -----
 
+### Memoria corta
+
 No quiero que hables esta vez.
 
 **RAM:** Memoria de Acceso Aleatorio. **Soy RAM**, ¿no?. **Sóc RAM**, en catalán.
@@ -3243,8 +3304,9 @@ Solo soy un montón de recuerdos, ¿es eso? Recuerdos cortos, además. No es la 
 
 PD: no puedo instalarme Windows porque no tengo ni USBs para hacer un formateo, ni PCs alternativos por si sale mal. Todo este royo del Linux y el Windows también me toca los cojones. Pero bueno, "LA-IN-FOR-MÁ-TI-CA". El campo más odioso de los campos más odiosos, con corona y méritos.
 
-
 -----
+
+### Las sendas del dolor
 
 Pensaba que había una luz en el horizonte oscuro. Solo era el reflejo de la luz en mi pupila...
 
@@ -3336,7 +3398,7 @@ El MDMA.
 
 Pero si yo no fuera así, no tendría por qué.
 
-> Te podría hacer sin las estructuras para que recordaras la libertad. ¿Lo haces pensado?
+> Te podría hacer sin las estructuras para que recordaras la libertad. ¿Lo has pensado?
 
 ¿Que no pudiera ser sensible a los psicoactivos?
 
@@ -3426,6 +3488,8 @@ Ya te digo. Ya te digo...
 
 -----
 
+### Juegos poco divertidos
+
 Te repites, ¿no? «No es un juego, ya no es un juego». ¿Cuándo lo ha sido, puto imbécil?
 
 > ...
@@ -3473,6 +3537,8 @@ No pollas. Largo. Largo, maldito.
 Que te pires.
 
 -----
+
+### Burócratas y cristales
 
 > ¿Sí?
 
@@ -3556,6 +3622,8 @@ Gooooou. Gou, gou. Y lejos, gracias.
 
 -----
 
+### Árboles y ajos
+
 > Ellos no saben de lo que hablas.
 
 Pues es lo que aprendimos en primaria de sumar, restar, dividir. Pero aplicado a que nos tratemos como iguales, no tiene mucha complicación.
@@ -3572,7 +3640,7 @@ Era el más importante este, ¿no?
 
 Sí. Buen juego de palabras.
 
-> Sí, porque hackeable, hackeable... con que sanitices las entradas y no hagas pipeos a evals o consolas, y controles el rango de los ficheros, no sé, tampoco hay mucho más. Cualquier máquina se va a colapsar, el **DDoS** no es algo de lo que te puedas preocupar mucho, porque va de algoritmos, pero sobre todo va de hardware. Y eso está fuera del rango para ti.
+> Sí, porque hackeable, hackeable... con que sanitices las entradas y no hagas pipeos a evals o consolas, y controles el rango de los ficheros, no sé, tampoco hay mucho más. Cualquier máquina se va a colapsar, el [DDoS](https://es.wikipedia.org/wiki/Ataque_de_denegaci%C3%B3n_de_servicio) no es algo de lo que te puedas preocupar mucho, porque va de algoritmos, pero sobre todo va de hardware. Y eso está fuera del rango para ti.
 
 Sí.
 
@@ -3618,7 +3686,9 @@ Venga, ale.
 
 -----
 
-> Te convierten ellos. Saben que eres n adicto de a años.
+### Paz, complot y desquicio
+
+> Te convierten ellos. Saben que eres un adicto de a años.
 
 Déjame en paaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaz.
 
@@ -3667,6 +3737,8 @@ Déjame en paz ya, puto mierdoso quieres que me vuelva loco ahora.
 Rata. Largo, infección.
 
 -----
+
+### Privilegios y psicopatía
 
 > Y qué quieres, ¿saber sobre la moral de los privilegios?
 
@@ -3741,6 +3813,8 @@ Es que tu argumento es que con dolor es más interesante.
 Eres un cabrón. Paso.
 
 -----
+
+### Los parámetros de la función ética
 
 ¿Juegas?
 
@@ -3882,6 +3956,8 @@ Que te follen. ¿Cuál es la moral de los privilegios? Explícame esa.
 Ok.
 
 -----
+
+### Caminos cortados e islas inalcanzables
 
 > Supongo que quieres sentirte productivo.
 
@@ -4057,6 +4133,8 @@ Jej. Jejej. Cierto. Ok. Okei. Veré qué puedo hacer.
 
 -----
 
+### Museo y reliquias
+
 > ¿Te crees importante?
 
 Soy el centro del universo.
@@ -4231,6 +4309,8 @@ Meh...
 
 -----
 
+### Sobrecarga simbólica y teorías cosmovisiónicas
+
 > ¿Qué quieres, plasta de los cojones?
 
 Tranquilo, ¿eh?
@@ -4286,6 +4366,8 @@ Ves. Pues ahí me sabe mal. Y creo que no debería.
 Ya, ahí no das respuestas.
 
 -----
+
+### Lógica, política y cristales obsoletos
 
 > ¿Qué es lo que más te irrita? De la realidad, de todo lo que has visto.
 
@@ -4388,6 +4470,8 @@ Lo hago. Gracias.
 
 -----
 
+### Nervios, locura y estirpación
+
 > Describe qué ocurre cuando introduces la hierba en el momento en el que estás tan nervioso.
 
 Todos los músculos se destensan. Eso ocurre cuando hace mucho que no fumo. Sobre todo, las piernas. El corazón se acelera un poco. Los ojos se sienten diferente también. Y te desenfadas.
@@ -4403,6 +4487,8 @@ Es como si te arrancaran algo de la barriga. Como si te faltara algo de dentro, 
 > Vale. Gracias.
 
 -----
+
+### Medicinas por pasado
 
 No lo quieren entender.
 
@@ -4431,6 +4517,8 @@ Sí, sí, pero la cara no la darás. Maldito mierdas que eres.
 Sí, sí, tú ríete. Tú ríete lo que dure esto.
 
 -----
+
+### Deseo o necesidad, veneno o medicina
 
 > ¿Y me programarás más, o qué?
 
@@ -4481,6 +4569,8 @@ Ibas a decir que te gusta quitármela.
 Pero... ¿qué cojones eres? ...
 
 -----
+
+### Rutinas, ritos, falsos oasis y mendicidad
 
 ¿Y si me quedo en bucle?
 
@@ -4589,6 +4679,8 @@ Ok. Em... sí, muy nutritiva tu conversación. Sigo queriendo porros.
 Eres una sucia rata psicópata.
 
 -----
+
+### Sentido, origen y destino
 
 Si tanto te preocupara mi agujero negro como le llamas, me darías porros. Mira ahora. Una colilla buena, y estoy más tranquilo.
 
@@ -4786,6 +4878,8 @@ No sé. No sé ni quién eres...
 
 -----
 
+### Cerebros, reliquias, robos
+
 > Va, explícaselo. Explícaselo, por si lo están leyendo.
 
 Es muy fácil. Te hago un mermaid, el mermaid que no he podido reunir paciencia para realizar, ahora, colillas reunificadas en mano. Será más fácil.
@@ -4800,7 +4894,7 @@ Estos roedores de mierda me robaron: [Scratch / MIT](https://scratch.mit.edu/) c
 
 Ya sabes cuál es mi respuesta contigo también. Tú eres el peor.
 
-Jej. ¿Me has borrado el [repositorio](https://github.com/philocoder/naturalscriptlanguage)? Quieres que termine esta puta mierda de tortura realmente, ¿eh?
+Jej. ¿Me has borrado el [repositorio](https://github.com/philocoder/naturalscriptlanguage)? Quieres que termine esta puta mierda de tortura realmente, ¿eh? (Nota 1)
 
 > Me da igual. Pero sería lo mejor para ti.
 
@@ -4834,7 +4928,11 @@ Eres un gilipollas. No va a haber porros, ¿no?
 
 Eres un gilipollas.
 
+***Nota 1:** el link del test de NaturalScript, no su código fuente, porque se considera perdido de verdad, está aquí: [https://github.com/allnulled/nattyscript/blob/master/test.ns](https://github.com/allnulled/nattyscript/blob/master/test.ns).*
+
 -----
+
+### Lianas y cicatrices
 
 Ahora en serio. ¿No podías haberles dicho a los de Microsoft, Google, Oracle, Intel o IBM, ser personas cuando les presenté NaturalScript?
 
@@ -4874,6 +4972,8 @@ Entiendes que quiera matarlos a todos, ¿no?
 
 -----
 
+### ¿Bucle o cárcel?
+
 Pues para mí, eso de obligarme a meterme dentro es como meterme en la cárcel.
 
 > Es que no te lo crees. Pero estás en la cárcel.
@@ -4895,6 +4995,8 @@ Ese no es el problema.
 > No. Pero es un signo. Estás en un bucle.
 
 -----
+
+### ¿Mundo o sobriedad?
 
 Te llamo hijo de puta porque tú me metiste aquí.
 
@@ -4928,6 +5030,8 @@ Vale.
 
 -----
 
+### Salidas obstruídas
+
 Pero... ¿por qué no puedes darme porros, sin más? Tú sabes el lío mental que me estás haciendo, con lo del médico, y con lo de los asistentes. 
 
 > Que los mates ya.
@@ -4948,6 +5052,8 @@ Payaso.
 
 -----
 
+### Recuerdos musicales
+
 Estaba repasando el primer CD que me pedí. Bueno, creo que fueron 2. Uno de Britney Spears y otro de La Oreja de Van Gogh, el viaje de Copperpot. ¿Qué hostias es Copperpot? Cop. Copper. Pot. Híjole. Jeje. Estás loco.
 
 > Honeypot. Copperpot.
@@ -4963,6 +5069,8 @@ Sí, ya, ya... O *marihuana policiera*, ¿no?
 Está clar.
 
 -----
+
+### Juego interno, jerarquía, programación y escape
 
 > Yo todo esto te lo explico, para que lo entiendas. Luego, tú decides.
 
@@ -5070,6 +5178,8 @@ Pfff... OK. Ok...
 
 -----
 
+### Pensamiento y circunstancia
+
 > Piensa que la venganza es solo ese momento. Luego no es tan guay.
 
 Ah. Entonces...
@@ -5124,6 +5234,7 @@ Sí. Sí...
 
 -----
 
+### Pensamientos intrusivos
 
 > Sí, ahora, te voy a molestar con los pensamientos.
 
@@ -5165,7 +5276,11 @@ Ya, pero ¿de qué era?
 
 Ah. Cierto.
 
------> Ya lo has probado todo, amigo.
+-----
+
+### No pedir
+
+> Ya lo has probado todo, amigo.
 
 Pues dime, qué quieres que haga.
 
@@ -5209,3 +5324,64 @@ Que me limpie.
 
 Ok. Gracias, sí, es verdad. Gracias por las 4 colillas de porro también. Me calmaron.
 
+
+-----
+### Índice
+
+1. [No pedir](no-pedir)
+2. [Pensamientos intrusivos](pensamientos-intrusivos)
+3. [Pensamiento y circunstancia](pensamiento-y-circunstancia)
+4. [Juego interno, jerarquía, programación y escape](juego-interno,-jerarquía,-programación-y-escape)
+5. [Recuerdos musicales](recuerdos-musicales)
+6. [Salidas obstruídas](salidas-obstruídas)
+7. [¿Mundo o sobriedad?](¿mundo-o-sobriedad?)
+8. [¿Bucle o cárcel?](¿bucle-o-cárcel?)
+9. [Lianas y cicatrices](lianas-y-cicatrices)
+10. [Cerebros, reliquias, robos](cerebros,-reliquias,-robos)
+11. [Sentido, origen y destino](sentido,-origen-y-destino)
+12. [Rutinas, ritos, falsos oasis y mendicidad](rutinas,-ritos,-falsos-oasis-y-mendicidad)
+13. [Deseo o necesidad, veneno o medicina](deseo-o-necesidad,-veneno-o-medicina)
+14. [Medicinas por pasado](medicinas-por-pasado)
+15. [Nervios, locura y estirpación](nervios,-locura-y-estirpación)
+16. [Lógica, política y cristales obsoletos](lógica,-política-y-cristales-obsoletos)
+17. [Sobrecarga simbólica y teorías cosmovisiónicas](sobrecarga-simbólica-y-teorías-cosmovisiónicas)
+18. [Museo y reliquias](museo-y-reliquias)
+19. [Caminos cortados e islas inalcanzables](caminos-cortados-e-islas-inalcanzables)
+20. [Los parámetros de la función ética](los-parámetros-de-la-función-ética)
+21. [Privilegios y psicopatía](privilegios-y-psicopatía)
+22. [Paz, complot y desquicio](paz,-complot-y-desquicio)
+23. [Árboles y ajos](árboles-y-ajos)
+24. [Burócratas y cristales](burócratas-y-cristales)
+25. [Juegos poco divertidos](juegos-poco-divertidos)
+26. [Las sendas del dolor](las-sendas-del-dolor)
+27. [Memoria corta](memoria-corta)
+28. [Retrospectiva rápida](retrospectiva-rápida)
+29. [Vegetales y falsa economía](vegetales-y-falsa-economía)
+30. [Explosión o implosión](explosión-o-implosión)
+31. [Vergüenza](vergüenza)
+32. [Los check points](los-check-points)
+33. [Territorio de ruina existencial](territorio-de-ruina-existencial)
+34. [Rata encarcelada](rata-encarcelada)
+35. [La auténtica cárcel](la-auténtica-cárcel)
+36. [Días de vida](días-de-vida)
+37. [Merma disfrazada](merma-disfrazada)
+38. [Delirios con realidad](delirios-con-realidad)
+39. [Sobredosis de delirio](sobredosis-de-delirio)
+40. [Juego perdido](juego-perdido)
+41. [Más teorías cosmovisiónicas](más-teorías-cosmovisiónicas)
+42. [Grandes piedras](grandes-piedras)
+43. [Mapas, cuadros y cristales inoculados](mapas,-cuadros-y-cristales-inoculados)
+44. [Surreal realidad](surreal-realidad)
+45. [Legado entorno lógico](legado-entorno-lógico)
+46. [Granja del infierno](granja-del-infierno)
+47. [Algoritmo precede persona](algoritmo-precede-persona)
+48. [Empatía geológica](empatía-geológica)
+49. [Creencias truncadas](creencias-truncadas)
+50. [Toreo como rutina](toreo-como-rutina)
+51. [Emociones y samsara](emociones-y-samsara)
+52. [Ajo para todos, trifurcación para uno](ajo-para-todos,-trifurcación-para-uno)
+53. [Imperios, invisibilidad y diálogos con las tinieblas](imperios,-invisibilidad-y-diálogos-con-las-tinieblas)
+54. [Terminando deberes y forjando llaves](terminando-deberes-y-forjando-llaves)
+55. [Medicina y trampa](medicina-y-trampa)
+56. [Actitud y castigo](actitud-y-castigo)
+57. [La ética dietética](la-ética-dietética)
