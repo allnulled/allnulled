@@ -14,4 +14,4 @@ wkhtmltopdf PARTE2.web.html --encoding 'utf-8' PARTE2.web.pdf
 
 # El README principal:
 
-cp PARTE2.md README.md
+cp PARTE2.cronologico.md README.PARTE2.md

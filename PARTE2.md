@@ -7,7 +7,7 @@
 
 -----
 
-##### Aclaraciones varias (1)
+### Aclaraciones varias (1)
 
 > Tienes ganas de hablar, ¿eh?
 
@@ -54,7 +54,7 @@ Ok.
 
 -----
 
-##### Más ciencia
+### Más ciencia
 
 Y dado que no sé qué va a pasar, voy a seguir matizando.
 
@@ -109,7 +109,7 @@ Que igual te aburres porque todo es mentira. ¿A mí qué me explicas, colega? A
 
 -----
 
-##### Ciencia: la materia cercando la mente, y viceversa
+### Ciencia: la materia cercando la mente, y viceversa
 
 Bueno, no sé si he hablado de esto. Pero puede que sea importante dejarlo claro.
 
@@ -245,7 +245,7 @@ Y ya está, no hace falta decir mucho más: la religión es la ciencia (claro qu
 
 -----
 
-##### Si tú eres Dios, hazme este improbabilísimo
+### Si tú eres Dios, hazme este improbabilísimo
 
 He detectado que juegas a meter, en vida real, todo lo que digo por aquí.
 
@@ -267,7 +267,7 @@ No, nono, juegas a eso, pues sigue jugando. Porros. Tranquilidad. Dinero contami
 
 -----
 
-##### Antivolitivismo como método de cerco
+### Antivolitivismo como método de cerco
 
 Bueno, saquemos este rápido, ¿no?
 
@@ -357,7 +357,7 @@ Stei, bat far from mi.
 
 -----
 
-##### Cercos, caminos y pepitas de oro
+### Cercos, caminos y pepitas de oro
 
 A veces no llego. Pero supongo que te pasas toda la vida reprochándome que yo contigo tampoco empatizo.
 
@@ -475,7 +475,7 @@ Ok.
 
 -----
 
-##### Las pirámides flotantes
+### Las pirámides flotantes
 
 > ¿Estás más calmado?
 
@@ -659,7 +659,7 @@ Okei.
 
 -----
 
-##### Protocolos y otros cercos
+### Protocolos y otros cercos
 
 > Prefiero no interferir cuando estás así.
 
@@ -723,7 +723,7 @@ Anda.
 
 -----
 
-##### Las pirámides, los cercos, y todo eso
+### Las pirámides, los cercos, y todo eso
 
 Bueno, a ver. Yo quería hablar de las pirámides. Aunque lo haga mal, voy a hablar de las pirámides. Y si me dejo cosas, pues me las dejo. Estoy escribiendo para el Carlos del futuro. Que seguramente no se le haya olvidado nada de esto. Pero por si acaso.
 
@@ -857,7 +857,7 @@ Es así. Fractalidad, si quieres. Me da igual. Me enfado. Me enfada hablar de es
 
 -----
 
-##### Los cercos del comemierda
+### Los cercos del comemierda
 
 Hola.
 
@@ -935,7 +935,7 @@ Bah.
 
 -----
 
-##### Ley, obligación y necesidad
+### Ley, obligación y necesidad
 
 Me voy dejando cosas por el camino...
 
@@ -1241,7 +1241,7 @@ Ok. Parece que he dado en algún hueso.
 
 -----
 
-##### Aburrimiento y conductas de riesgo
+### Aburrimiento y conductas de riesgo
 
 > ¿Qué tal?
 
@@ -1501,7 +1501,7 @@ Ok, gou.
 
 -----
 
-##### Agradecimiento, deuda. Compensación.
+### Agradecimiento, deuda. Compensación.
 
 Estoy colapsado. No soy capaz de programar.
 
@@ -1811,7 +1811,7 @@ Jej. Va, gou, fuera ya.
 
 -----
 
-##### Lógica va antes que naturaleza. Lingüística y no lingüísticamente.
+### Lógica va antes que naturaleza. Lingüística y no lingüísticamente.
 
 ...
 
@@ -1971,7 +1971,7 @@ Que me dejes.
 
 -----
 
-##### Los datos van antes que el dinero
+### Los datos van antes que el dinero
 
 > Sigo intrigado. ¿Cómo pagaríamos sin dinero?
 
@@ -2199,7 +2199,7 @@ Va, sí. Lets gou.
 
 -----
 
-##### El dinerismo invasivo
+### El dinerismo invasivo
 
 > ¿De verdad lo crees?
 
@@ -2562,7 +2562,7 @@ Basta, vale, no sigas. Así está ok.
 
 -----
 
-##### Su definición de oro, mi definición de oro
+### Su definición de oro, mi definición de oro
 
 Una cosa.
 
@@ -2664,7 +2664,7 @@ Ok. Ahora gou.
 
 -----
 
-##### Porros, vida y escapismo
+### Porros, vida y escapismo
 
 > Además, Carl. Tu familia no es rica, pero está bien asentada en la granja. Y ellos tampoco te ayudan. De hecho, por ellos, bien podrías estar debajo de un puente. No entiendo por qué miras tan lejos.
 
@@ -2744,7 +2744,7 @@ Jej. Bueno, va.
 
 -----
 
-##### Violencia estructural
+### Violencia estructural
 
 > ¿Estás bien?
 
@@ -2814,7 +2814,7 @@ Ts. Te follen, rata inmunda y miserable.
 
 -----
 
-#### Índice
+### Índice
 
  1. [Violencia estructural](#violencia-estructural)
  1. [Porros, vida y escapismo](#porros,-vida-y-escapismo)

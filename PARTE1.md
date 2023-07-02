@@ -139,7 +139,7 @@ Por eso estoy en una cárcel.
 
 > Por eso no sales de ella. Sienta como si revivieses, ¿eh?
 
-Creo que el consumo de carne debería ir a la par de una vida digna, no un zulo 4x4. Pero, precisamente, los animales que viven en esas granjas, son los que los pobres consumen. En cambio, los ricos, que maltratan a los pobres, consumen el cerdo de bellota, que ha tenido una bonita vida. No sé cuándo los matan, no sé cuánta vida les privan de tener. Sé, sé que el cabrito está muy bueno. Eso sí lo sé.
+Creo que el consumo de carne debería ir a la par de una vida digna, no un zulo 2x2. Pero, precisamente, los animales que viven en esas granjas, son los que los pobres consumen. En cambio, los ricos, que maltratan a los pobres, consumen el cerdo de bellota, que ha tenido una bonita vida. No sé cuándo los matan, no sé cuánta vida les privan de tener. Sé, sé que el cabrito está muy bueno. Eso sí lo sé.
 
 > ...
 
