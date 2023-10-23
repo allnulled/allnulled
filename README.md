@@ -35,6 +35,7 @@ Algunos de los repositorios más destacables de mi perfil de Github son:
 
 - [restero](https://github.com/allnulled/restero): es una herramienta y API que permite desplegar aplicaciones REST en base a 1 solo fichero SQL e implementar la lógica de negocio mediante decoradores en forma de comentarios SQL, usando [HQL](https://github.com/allnulled/hyper-query-language), un lenguaje desarrollado por mí también.
 - [castelog](https://github.com/allnulled/castelog): es un lenguaje de programación basado en el idioma castellano que transpila código JavaScript.
+- [castelog-editor](https://github.com/allnulled/castelog-editor): editor en línea para Castelog. Es preferible usar la extensión de VSCode, por eso.
 - [shellver](https://github.com/allnulled/shellver): es un servidor que permite ejecutar JavaScript (Node.js) en remoto vía peticiones HTTP.
 - [javadoc](https://github.com/allnulled/javadoc): es una herramienta para generar documentación en formato JSON y HTML basada en comentarios tipo javadoc.
 - [recolector-web](https://github.com/allnulled/recolector-web): es un servidor para hacer scraps rápidos.
