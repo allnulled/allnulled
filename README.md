@@ -40,7 +40,6 @@ Algunos de los repositorios más destacables de mi perfil de Github son:
 - [javadoc](https://github.com/allnulled/javadoc): es una herramienta para generar documentación en formato JSON y HTML basada en comentarios tipo javadoc.
 - [recolector-web](https://github.com/allnulled/recolector-web): es un servidor para hacer scraps rápidos.
 - [simplest-db](https://github.com/allnulled/simplest-db): es una pequeña API de bases de datos síncrona de JavaScript que funciona igual tanto en Node.js como en navegadores.
-- [mind-and-body-control](https://allnulled.github.io/mind-and-body-control/): es una aplicación para llevar agenda/calendario, alimentación y otros temas.
 - [mysql-schema](https://github.com/allnulled/mysql-schema): es una herramienta para extraer el esquema de datos de una base de datos SQL.
 - [cleesy](https://github.com/allnulled/cleesy): es una API para crear herramientas de línea de comandos basándose en ficheros.
 - [skemator](https://github.com/allnulled/skemator): es una herramienta para crear diagramas tipo mermaid con un lenguaje un poco más rápido de picar.
@@ -48,7 +47,23 @@ Algunos de los repositorios más destacables de mi perfil de Github son:
 - [contratos](https://github.com/allnulled/contratos): es un lenguaje y editor para diseñar interfaces de programación (clases, funciones, etc.).
 - [nodelive](https://github.com/allnulled/nodelive): es una API para inyectar código asíncronamente en mitad de cualquier programa basado en Node.js.
 
+Estos son algunos front-ends escritos en Vue.js:
+
+- [constructor de novelas de castelog (versión online)](https://allnulled.github.io/constructor-de-novelas-de-castelog/#/).
+- [mind-and-body-control](https://allnulled.github.io/mind-and-body-control/): es una aplicación para llevar agenda/calendario, alimentación y otros temas.
+- [core-nlp-by-http](https://github.com/allnulled/core-nlp-by-http): es una aplicación que hace análisis gramatical en inglés. Necesita que inicies un servidor con Node.js y NPM.
+- [homactógrafo 3d para castelog](https://allnulled.github.io/constructor-de-homactogramas-3d-de-castelog/paloman-11/index.1.html#/): el homactógrafo 3d permite que escribas escenas para gráficos 3D basándose en BabylonJS y Castelog.
+- [homactógrado 2d para castelog](https://allnulled.github.io/constructor-de-homactogramas-de-castelog/#/): el homactógrado 2d permite que escribas escenas para gráficos 2D basándose en el Canvas API y Castelog.
+- [shellver gui](https://github.com/allnulled/shellver): el shellver GUI permite que ejecutes JavaScript de Node.js desde un front basado en el navegador. Necesitas iniciar un servidor para Node.js y NPM.
+- [funcos](https://allnulled.github.io/funcos/#/): el FuncOS permite que explores objetos JavaScript en vivo y fácilmente.
+- [consrtuctor de apps de castelog](https://allnulled.github.io/constructor-de-apps-de-castelog/#/): permite desarrollar componentes web basados en Castelog (Vue.js).
+- [restero](https://github.com/allnulled/restero): este CMS también proporciona un front (login y backoffice) base para desarrollar tu propia aplicación cliente-servidor. Necesitas iniciar un servidor para Node.js y NPM.
+- [tiempometria](https://allnulled.github.io/tiempometria/index.html#/tareas): web app para organizarse el tiempo, con la ventaja de que puedes mover todas las tareas adelante en el tiempo de forma masiva.
+- [react-cv](https://allnulled.github.io/react-cv/#/): mi CV en ReactJS.
+- [mind-and-body-control](https://allnulled.github.io/mind-and-body-control/): web app para el control del cuerpo y la mente.
+
 Estas son algunas herramientas para escribir novelas:
 
 - [novelator](https://github.com/allnulled/novelator): lenguaje de programación para escribir novelas en clave de obra de teatro y novela gráfica.
 - [novelator-lector](https://github.com/allnulled/novelator-lector): aplicación web para leer novelas de [novelator](https://github.com/allnulled/novelator).
+- [constructor de novelas de castelog](https://github.com/allnulled/constructor-de-novelas-de-castelog): esto es una aplicación avanzada donde puedes escribir novelas interactivas.
