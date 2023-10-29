@@ -48,3 +48,7 @@ Algunos de los repositorios más destacables de mi perfil de Github son:
 - [contratos](https://github.com/allnulled/contratos): es un lenguaje y editor para diseñar interfaces de programación (clases, funciones, etc.).
 - [nodelive](https://github.com/allnulled/nodelive): es una API para inyectar código asíncronamente en mitad de cualquier programa basado en Node.js.
 
+Estas son algunas herramientas para escribir novelas:
+
+- [novelator](https://github.com/allnulled/novelator): lenguaje de programación para escribir novelas en clave de obra de teatro y novela gráfica.
+- [novelator-lector](https://github.com/allnulled/novelator-lector): aplicación web para leer novelas de [novelator](https://github.com/allnulled/novelator).
