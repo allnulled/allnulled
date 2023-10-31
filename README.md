@@ -45,6 +45,7 @@ Estos son algunos front-ends escritos en Vue.js:
 - [tiempometria](https://allnulled.github.io/tiempometria/index.html#/tareas): web app para organizarse el tiempo, con la ventaja de que puedes mover todas las tareas adelante en el tiempo de forma masiva.
 - [react-cv](https://allnulled.github.io/react-cv/#/): mi CV en ReactJS.
 - [mind-and-body-control](https://allnulled.github.io/mind-and-body-control/): web app para el control del cuerpo y la mente.
+- [app-de-notas](https://allnulled.github.io/app-de-notas/#/): web app para tomar notas. Letra pequeña para ser mobile-friendly.
 
 Algunos de los repositorios más destacables de mi perfil de Github de tipos varios (herramientas, lenguajes, APIs) son:
 
