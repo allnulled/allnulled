@@ -21,8 +21,25 @@ Soy Carlos Jimeno Hernández.
 
 ✨ Bases de datos ✨
 
-- MySQL / SQL Server / PostgreSQL / SQLite / Doctrine / Sequelize / Hibernate
+- MySQL / SQL Server / PostgreSQL / SQLite
+- Doctrine / Sequelize / Hibernate
 - MongoDB / Mongoose / ...
+- MySQL Workbench / mysql-schema
+
+✨ Testing ✨
+
+- QUnit / Mocha+Chai+Sinon / Cypress / Puppeteer / CasperJS / PhantomJS / 
+- PHPUnit
+- JUnit
+
+✨ Empaquetadores de aplicaciones ✨
+
+- Ionic / Cordova / PWA Manifest
+- Node-webkit / Electron
+
+✨ Análisis de software ✨
+
+- Mermaid / PlantUML / Contratos
 
 ✨ Repositorios ✨
 
