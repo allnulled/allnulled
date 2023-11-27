@@ -7,11 +7,11 @@ Soy Carlos Jimeno Hernández.
 
 ✨ Front-end ✨
 
-- HTML
-- CSS
-- JavaScript
-- jQuery / Bootstrap
-- Vue.js / ReactJS / Angular.js
+- HTML / Jade
+- CSS / Sass / Scss / Less / PostCss
+- JavaScript / TypeScript / CoffeeScript / Castelog / ...
+- jQuery / jQuery UI / jQuery Mobile / Bootstrap / Tailwind / Win7.css / ...
+- Vue.js / ReactJS / Angular v17 / Ember.js / ...
 
 ✨ Back-end ✨
 
@@ -21,8 +21,8 @@ Soy Carlos Jimeno Hernández.
 
 ✨ Bases de datos ✨
 
-- MySQL / SQL Server / PostgreSQL / SQLite
-- MongoDB / Mongoose
+- MySQL / SQL Server / PostgreSQL / SQLite / Doctrine / Sequelize / Hibernate
+- MongoDB / Mongoose / ...
 
 ✨ Repositorios ✨
 
