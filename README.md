@@ -25,6 +25,7 @@ Soy Carlos Jimeno Hernández.
 - Doctrine / Sequelize / Hibernate
 - MongoDB / Mongoose / ...
 - MySQL Workbench / mysql-schema
+- IndexedDB / Dexie / Dexie-relationships / RanasDB
 
 ✨ Testing ✨
 
@@ -50,6 +51,8 @@ Además, también tengo más de 200 proyectos subidos a Github y aproximadamente
 
 Estos son algunos front-ends escritos en Vue.js:
 
+- [inventario-offline](https://allnulled.github.io/inventario-offline/#/). Usando IndexedDB.
+- [classic-agenda](https://allnulled.github.io/classic-agenda/#/). Usando IndexedDB.
 - [constructor de novelas de castelog (versión online)](https://allnulled.github.io/constructor-de-novelas-de-castelog/#/).
 - [mind-and-body-control](https://allnulled.github.io/mind-and-body-control/): es una aplicación para llevar agenda/calendario, alimentación y otros temas.
 - [core-nlp-by-http](https://github.com/allnulled/core-nlp-by-http): es una aplicación que hace análisis gramatical en inglés. Necesita que inicies un servidor con Node.js y NPM.
