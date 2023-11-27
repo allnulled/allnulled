@@ -3,7 +3,7 @@ Soy Carlos Jimeno Hernández.
 - 📱 Teléfono: +34 619 98 26 22
 - 📨 Correo: carlosjimenohernandez@gmail.com
 
-😊 Estas son las tecnologías que he tocado más separadas por ámbito 😊
+😊 Estas son las tecnologías que más he tocado separadas por ámbito 😊
 
 ✨ Front-end ✨
 
