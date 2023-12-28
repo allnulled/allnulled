@@ -50,7 +50,8 @@ Soy Carlos Jimeno Hernández.
 Además, también tengo más de 200 proyectos subidos a Github y aproximadamente 100 a NPM. Llevo más de 10 años en el ámbito de la programación, aprendo rápido y soy muy autoexigente.
 
 Estos son algunos front-ends escritos en Vue.js:
-
+- [otra-agenda-mas](https://allnulled.github.io/otra-agenda-mas/#/). Usando IndexedDB.
+- [notetaker](https://allnulled.github.io/notetaker/#/). Usando IndexedDB.
 - [inventario-offline](https://allnulled.github.io/inventario-offline/#/). Usando IndexedDB.
 - [classic-agenda](https://allnulled.github.io/classic-agenda/#/). Usando IndexedDB.
 - [constructor de novelas de castelog (versión online)](https://allnulled.github.io/constructor-de-novelas-de-castelog/#/).
